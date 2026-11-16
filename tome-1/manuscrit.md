@@ -656,7 +656,7 @@ Le premier spécialiste qu'ils consultèrent refusa de se prononcer sur une phot
 
 Le deuxième leur demanda d'apporter les monnaies.
 
-Le troisième, un numismate que Savio avait choisi pour sa réputation et sa prudence, prit beaucoup de temps.
+Le troisième, un expert en pièces anciennes que Savio avait choisi pour sa réputation et sa prudence, prit beaucoup de temps.
 
 Trop, selon Victor.
 
@@ -678,7 +678,7 @@ Victor se pencha.
 
 — Combien elle vaut ?
 
-Le numismate leva les yeux.
+L'expert leva les yeux.
 
 — D'abord, il faut comprendre ce que vous avez.
 
@@ -706,7 +706,7 @@ Julien, lui, ne riait pas. Il pensait au garde, à la porte lumineuse et au marc
 
 Savio fit tourner entre ses doigts la monnaie qu'ils avaient conservée.
 
-— Le numismate a établi qu'elles étaient authentiques. Il n'a pas établi d'où elles venaient. Un collectionneur aurait pu les fournir à une reconstitution. Un commerçant aurait pu confondre deux bourses. Il y a des hypothèses plus raisonnables que celle à laquelle on pense tous.
+— L'expert a établi qu'elles étaient authentiques. Il n'a pas établi d'où elles venaient. Un collectionneur aurait pu les fournir à une reconstitution. Un commerçant aurait pu confondre deux bourses. Il y a des hypothèses plus raisonnables que celle à laquelle on pense tous.
 
 — Celle de la porte magique ? demanda Nino.
 
@@ -740,7 +740,7 @@ Julien, lui, regardait la fenêtre. Dehors, les voitures passaient, un voisin pr
 
 — On n'a toujours aucune idée de ce qu'il y a derrière cette porte, dit-il.
 
-Savio avait posé les rapports du numismate à côté de plusieurs photographies du village.
+Savio avait posé les rapports de l'expert à côté de plusieurs photographies du village.
 
 — On sait que les pièces sont authentiques, répondit-il. On ne sait pas pourquoi elles étaient là.
 
@@ -1066,11 +1066,11 @@ Et la première preuve qu'ils avaient rapportée sans l'emporter.
 
 La première règle commerciale de Victor était simple : ne jamais laisser une découverte exceptionnelle entre les mains d'un homme qui voulait la faire étudier.
 
-— Tu as trouvé un passage vers le Moyen Âge, dit-il à Savio, et ta première idée a été d'aller dans une bibliothèque.
+— Tu découvres un passage vers le Moyen Âge, dit-il à Savio, tu reviens avec une bourse de monnaies, et ta première idée, c'est de faire examiner les pièces ?
 
-— Chez un numismate.
+— Il fallait vérifier qu'elles étaient authentiques.
 
-— Voilà. Encore pire. Il y a « numismate » dans le mot. C'est presque une punition.
+— Moi, j'aurais commencé par vérifier combien de briquets rentrent dans le coffre.
 
 Ils avaient étalé sur la table du salon de Julien une collection d'objets d'une banalité affligeante : briquets, stylos à bille, petites lampes à piles, coupe-ongles, ciseaux de précision, outils pliants et quelques accessoires de bricolage.
 
