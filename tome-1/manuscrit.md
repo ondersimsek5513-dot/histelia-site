@@ -4237,323 +4237,265 @@ Il se trompait.
 
 ---
 
-## Chapitre 12 — L'ennemi qui ne l'est plus
+## Chapitre 12 — Les marchands des Sères
 
-Raoul arriva près de Nino avant le garde.
+— Si on est libres, pourquoi on attend encore ? demanda Nino.
 
-Il ne chercha pas à frapper l'homme. Il se plaça entre les deux, les mains levées, criant qu'ils avaient cessé de combattre.
+Victor regarda la porte fermée.
 
-Le garde s'arrêta une seconde, surpris par ce prisonnier qui lui demandait presque la permission de ne plus se faire tuer.
+— Ils enregistrent la décision.
 
-Une seconde suffisait.
+— Chez moi, quand on libère quelqu'un, on ouvre d'abord la porte.
 
-Julien réussit à les rejoindre.
+Raoul était assis à l'écart. Ses mains tremblaient encore malgré tous ses efforts pour le cacher.
 
-Savio, qui avait conservé la lampe, fit jaillir une nouvelle fois son faisceau.
+Julien le regarda sans parler. L'homme avait frappé un notable et contribué à les faire emprisonner. Mais il avait aussi tenté de les aider, puis risqué sa vie sous les griffes du lion. Nino avait couru vers lui avec un filet plutôt que de l'abandonner.
 
-Sur les gradins, les murmures devinrent des exclamations.
-
-L'homme important que Victor avait remarqué se leva et s'adressa à l'organisateur.
-
-Il parla longtemps.
-
-L'organisateur secoua la tête, désigna la piste, protesta. L'autre homme ne baissa pas la voix.
-
-Les spectateurs voulaient comprendre ce qui se passait.
-
-Ce ne fut pas une victoire.
-
-Ce fut une interruption.
-
-Les gardes reçurent l'ordre de séparer les prisonniers et de les ramener dans une galerie latérale.
-
-Nino tremblait encore lorsqu'il réussit à se tenir debout.
-
-Raoul avait une coupure au bras et une épaule douloureuse.
-
-— Tu aurais pu filer, dit Julien en regardant la grille restée ouverte.
-
-L'homme tourna la tête.
-
-— Où ça ?
-
-— Tu l'as vue.
-
-Raoul ne répondit pas tout de suite.
-
-Il regarda Nino, puis la poussière sur sa propre tunique.
-
-— Ça ne m'aurait pas amené très loin.
-
-Julien savait qu'il mentait un peu.
-
-Et pour la première fois, il choisit de ne pas le lui reprocher.
+Personne ne savait encore ce que cela changeait entre eux.
 
 ***
 
-On les fit attendre dans une pièce sans fenêtre.
+Un homme entra avec l'officier chargé des objets saisis.
 
-Une cruche d'eau avait été posée sur une table. Nino s'y accrocha avec tant de conviction que Victor lui demanda s'il avait décidé de l'épouser.
+Il portait une tunique luxueuse sans chercher à étaler sa richesse, et possédait la tranquillité de ceux qui avaient l'habitude d'être écoutés.
 
-— Elle m'a sauvé la vie, répondit Nino.
+— Aulus Marcellus, dit-il. On m'a rapporté que vous transportiez des curiosités extraordinaires.
 
-— C'est ce qu'on dit aussi de lui, fit Victor en désignant Raoul.
+L'officier posa une lampe compacte et deux talkies-walkies sur la table.
 
-L'ancien militaire s'assit.
+— Montrez-moi, demanda Marcellus.
 
-— Ne commencez pas.
+Savio prit la lampe.
 
-Savio examina la lampe.
+— Elle produit de la lumière sans flamme.
 
-— Elle fonctionne encore, mais pas pour longtemps.
+Il appuya sur le bouton.
 
-Julien lui lança un regard.
+Un faisceau blanc frappa le mur. L'officier recula instinctivement. Le notable, lui, se pencha pour mieux voir.
 
-— Et tu comptes faire quoi avec ? Éclairer la sortie ?
+— Sans huile ? Sans mèche ?
 
-— Non. Je pense qu'elle est la raison pour laquelle on est encore vivants.
+— Sans flamme. Mais sa réserve est limitée.
 
-La porte s'ouvrit.
+Marcellus désigna les deux petits boîtiers noirs.
 
-Un homme bien habillé entra, suivi de deux gardes.
+— Et ceci ?
 
-Il s'assit sans demander la permission.
+Victor prit l'un des talkies-walkies.
 
-— Qui a fabriqué cet objet ?
+— Avec ces deux objets, deux personnes peuvent se parler à distance.
 
-Savio conserva le silence.
+Nino emporta le second dans le couloir, sous la surveillance d'un garde.
 
-L'homme désigna la lampe.
+Victor attendit quelques secondes.
 
-— Vous avez produit une lumière sans flamme. On m'a dit qu'elle pouvait fonctionner dans une pièce entièrement close.
+— Nino, tu m'entends ?
 
-— Jusqu'à épuisement de sa réserve, répondit Savio.
+L'appareil grésilla.
 
-Le visiteur parut apprécier la précision.
+— Oui. Et est-ce qu'on peut enfin manger quelque chose ? Je commence à regretter les rations de la prison.
 
-— Je ne suis pas venu vous demander si vous êtes des dieux ou des sorciers. Je suis venu vous proposer une affaire.
+Le garde apparut dans l'encadrement de la porte, stupéfait d'entendre la voix de Nino sortir de la main de Victor.
 
-Victor se redressa immédiatement.
+Marcellus resta longtemps sans parler.
 
-— Enfin quelqu'un de raisonnable.
+— Aucun messager ? demanda-t-il enfin.
 
-Julien ferma les yeux.
+— Aucun.
 
-— Victor.
+— À quelle distance ?
 
-Le notable leur expliqua qu'il possédait assez d'influence pour négocier leur sort auprès des autorités responsables de l'épreuve. Il pouvait les faire retirer du programme et obtenir leur libération, moyennant un dédommagement et certaines garanties.
+Savio expliqua qu'il existait une limite, variable selon les obstacles. Il évita les détails techniques.
 
-Il voulait les objets lumineux et tout ce qui pourrait prouver qu'ils n'avaient pas imaginé ce qu'il avait vu.
+— Qui fabrique de telles choses ?
 
-Savio fut le premier à protester.
+Victor échangea un regard avec Savio. Ils avaient déjà vendu des inventions modernes à un roi. Ils savaient comment ce genre de transaction pouvait conduire à une guerre.
 
-— Nous ne pouvons pas simplement vous laisser utiliser quelque chose que vous ne comprenez pas.
+Pas question de montrer leurs téléphones.
 
-Le notable sourit.
+— Nous sommes marchands, déclara Victor. Nous représentons des ateliers établis très loin vers l'est, au-delà de l'Inde, dans les terres des Sères.
 
-— Et vous préférez rester ici ?
+Marcellus leva un sourcil.
 
-C'était une question difficile à contester.
+— Le peuple de la soie ?
 
-Victor tenta de négocier.
+— Leurs artisans ne fabriquent pas seulement des tissus.
 
-L'homme accepta de discuter, mais pas très longtemps.
+Le notable sourit, intéressé.
 
-Ils avaient plusieurs objets modernes, même si une partie du matériel avait été confisquée. Ils pourraient en abandonner certains, dont la lampe, contre leur sortie et le paiement exigé par les autorités.
+— Alors vous êtes venus ouvrir une route commerciale ?
 
-Julien posa une condition :
+— Nous cherchons des partenaires capables de reconnaître la valeur de ces objets. Ce ne sont que des échantillons.
 
-— Nous sortons tous les cinq.
+— Et vous avez des marchandises en réserve ?
 
-Le notable compta les hommes.
+— Très loin d'ici. C'est pourquoi nous devons d'abord pouvoir voyager librement.
 
-— Vous êtes donc ensemble ?
-
-La question les surprit.
-
-Ils regardèrent Raoul.
-
-Celui-ci baissa les yeux.
-
-Victor aurait pu répondre que non. Que le cinquième avait été leur ennemi. Qu'il avait volé leur marché, humilié l'un d'eux et contribué à la disparition de Clara.
-
-Il ne dit rien.
-
-Nino répondit à sa place.
-
-— Oui. Maintenant, oui.
-
-Le notable regarda de nouveau la lampe.
-
-— Tous les cinq, alors.
+Nino, revenu dans la pièce, regardait Victor avec inquiétude. Il connaissait ce ton : son ami était déjà en train de vendre quelque chose qu'il ne comptait jamais livrer.
 
 ***
 
-La négociation dura jusqu'à la fin du jour.
+Marcellus posa beaucoup de questions.
 
-Ce ne fut pas une transaction propre, ni une jolie démonstration de commerce.
+Savio expliqua sommairement que la lampe avait une durée de fonctionnement limitée et que les appareils de communication devaient rester à portée. Il ne révéla ni procédé de fabrication ni méthode pour en reproduire.
 
-L'organisateur voulait être indemnisé. Certains responsables réclamaient qu'on ne les revoie plus. Le notable promettait de tirer parti des merveilles qu'il obtenait en échange.
+Victor, lui, évoqua des fournisseurs, des intermédiaires et des voyages à venir, sans donner de date précise.
 
-Les cinq abandonnèrent presque tout ce qui aurait pu attirer d'autres convoitises : des objets modernes, des petits accessoires, une partie du matériel de secours et des biens qu'ils avaient espéré conserver pour retrouver Clara.
+Tout cela n'était qu'un prétexte.
 
-Ils ne purent pas obtenir la libération des autres captifs de l'arène. Ils demandèrent au moins qu'on ne poursuive pas l'épreuve interrompue le matin même. L'homme qui négociait ne leur promit que d'intervenir en leur faveur.
+Ils n'avaient aucune intention de revenir faire du commerce à Rome, surtout après les conséquences désastreuses de leurs affaires au Moyen Âge.
 
-Nino en fut plus affecté qu'il ne voulut le montrer.
+Mais Marcellus était assez intrigué pour vouloir les entendre.
 
-— On ne les connaît même pas, murmura Victor en traversant la cour.
+— Vous serez donc prêts à me réserver votre prochain arrivage ? demanda-t-il.
 
-— Justement, répondit Nino. Nous non plus, personne ne nous connaissait.
+Victor sourit.
 
-Julien ne trouva rien à dire.
+— Si notre route nous ramène dans cette ville, vous serez notre premier interlocuteur.
 
-Ils quittèrent enfin le bâtiment sous escorte.
+La formule engageait moins qu'elle n'en avait l'air.
 
-Il leur fallut encore contourner plusieurs quartiers et convaincre leurs accompagnateurs qu'ils disposaient d'un logement hors des murs. Le notable avait obtenu qu'on cesse de les poursuivre, mais il ne leur offrait pas une vie à Rome.
+Marcellus posa la lampe.
 
-Au premier carrefour tranquille, ils attendirent que les gardes aient disparu.
-
-Puis ils se mirent en marche.
-
-***
-
-La ville semblait différente.
-
-Quelques heures plus tôt, Rome avait été un spectacle grandiose. À présent, les quatre amis voyaient surtout les rues où ils auraient pu être arrêtés, les gens qui n'avaient aucune raison de leur venir en aide, et les mille façons de disparaître dans une foule sans laisser de trace.
-
-Raoul marchait derrière eux.
-
-Personne ne lui avait demandé de le faire.
-
-Il avait simplement suivi.
-
-Victor finit par se retourner.
-
-— Tu comptes aller où ?
-
-L'homme regarda le chemin.
-
-— Vous avez une sortie. Pas moi.
-
-— Tu as trouvé l'entrée tout seul, répliqua Victor.
-
-— Et tu sais comment ça s'est terminé.
-
-La réponse n'était pas vraiment une excuse.
-
-Julien s'arrêta.
-
-— Pourquoi tu es revenu chercher Nino ?
-
-Raoul soupira.
-
-— On a déjà parlé de ça.
-
-— Non. Tu as esquivé.
-
-L'homme fixa Nino, qui mâchonnait nerveusement une miette de pain conservée de leur détention.
-
-— Il était par terre. J'étais près de lui.
-
-— Tu pouvais partir.
-
-— Peut-être.
-
-Julien attendit.
-
-— J'ai passé trop d'années à décider que la peau des autres valait moins cher que la mienne, finit par dire l'ancien militaire. C'est tout.
-
-Nino cessa de mâcher.
-
-Victor regarda ailleurs.
-
-Savio observa longtemps cet homme qu'il n'avait jusque-là connu que comme un rival dangereux.
-
-Rien n'effaçait ce qu'il avait fait.
-
-Mais quelque chose avait changé.
-
-Julien reprit la marche.
-
-— Alors viens.
+— Il reste votre affaire avec Lucius Valerius.
 
 Raoul ne bougea pas.
 
-— Quoi ?
+— L'un de vous l'a frappé. Sa famille demande réparation, et les soldats vous ont confisqué vos biens.
 
-— On a encore une personne à chercher.
+Julien intervint.
 
-— Votre sœur ?
+— Nous avons subi le spectacle que l'organisateur nous a imposé. Il avait promis la liberté aux survivants, et le magistrat avait autorisé l'arrangement.
 
-— Ma sœur. Et la compagne de Victor.
+— C'est exact, reconnut Marcellus. Mais un accord n'empêche pas certains hommes de vous chercher des ennuis.
 
-Julien fit un pas, puis se retourna.
+Victor se pencha vers lui.
 
-— Si tu viens, tu viens pour elle. Pas pour l'or ni pour les armes. Et tu ne nous laisseras pas tomber au premier ennui.
+— Vous pourriez aider à faire appliquer cette décision et éviter une nouvelle plainte. Et nous vous laisserions ces échantillons.
 
-L'homme le regarda longtemps.
+Le notable réfléchit. Il possédait assez d'influence pour obtenir des autorités qu'elles finalisent la remise en liberté et consignent le règlement de la réclamation, sans prétendre effacer la bagarre comme si elle n'avait jamais eu lieu.
 
-— D'accord.
+— Je souhaite être votre premier partenaire.
 
-Victor souffla.
+— Vous le serez, répondit Victor.
 
-— C'est aussi simple que ça ?
+Marcellus accepta.
 
-— Non, répondit Julien. Mais c'est un début.
+Lorsqu'il fut sorti pour faire accélérer les formalités, Julien attrapa Victor par le bras.
+
+— Tu ne vas pas vraiment revenir.
+
+— Après la prison, le lion et notre dernière aventure avec les armes ? Tu me prends pour un fou ?
+
+— Tu viens de promettre un partenariat.
+
+— J'ai promis de penser à lui si nous revenons. J'ai bien l'intention de ne jamais revenir.
+
+Savio approuva.
+
+— Pour une fois, je te demande de tenir parole.
 
 ***
 
-Ils retrouvèrent la galerie d'où ils avaient émergé, puis le passage vers la salle initiale.
+Les démarches prirent encore du temps, mais les cinq récupérèrent enfin leurs effets.
 
-Ils s'arrêtèrent un instant devant l'ouverture.
+On leur rendit les téléphones avec les vêtements, les cartes et le reste des affaires ordinaires, sans les avoir présentés à Marcellus. Les talkies-walkies et la lampe restèrent chez le notable. La bombe au poivre avait été vidée pendant le combat. Certaines provisions avaient disparu.
 
-Nino se tourna vers Raoul.
+Savio vérifia son carnet et les repères permettant de retrouver le portail.
 
-— Alors, maintenant qu'on est amis...
+Lucan revint de l'infirmerie avec le bras bandé. Brennos et Dama l'accompagnaient.
 
-— Ne pousse pas.
+Les trois autres prisonniers avaient eux aussi obtenu leur liberté, conformément à la promesse faite aux huit survivants.
 
-— Je demande juste si tu as un prénom.
+— Tu vas t'en sortir ? demanda Julien à Lucan.
 
-L'homme eut un sourire fatigué.
+— Je vais essayer d'éviter les lions, répondit le jeune homme.
 
-— Tu t'en souviendras quand on aura le temps de parler.
+Brennos salua Raoul.
 
-— Ça promet une relation compliquée.
+— Tu as tenu.
 
-Ils traversèrent.
+— Vous aussi.
 
-De retour dans la première salle, Julien posa les mains sur ses genoux et inspira profondément.
+Les deux hommes échangèrent un regard bref. Personne ne parla de la façon dont le lion avait été tué.
 
-La lettre pour Clara était toujours là.
+Puis les trois anciens prisonniers partirent de leur côté.
 
-Il la releva.
+***
 
-Rien n'indiquait qu'elle ait repassé cette porte.
+Les cinq hommes traversèrent Rome sans admirer les façades ni chercher les meilleurs marchés. Ils évitaient les gardes et pressaient le pas.
 
-Savio fit le point.
+Raoul marchait quelques mètres derrière les autres.
 
-— Rome n'était pas la bonne destination. Il reste l'autre passage qui se trouvait près d'elle.
+Julien ralentit.
+
+— Pourquoi nous as-tu suivis ?
+
+— Je voulais comprendre les autres portes, répondit Raoul. Et je pensais à Clara.
+
+Julien conserva le silence un moment.
+
+— Tu nous as presque fait tuer.
+
+— Je sais.
+
+— Tu as aussi essayé de nous sauver.
+
+Raoul ne répondit pas.
+
+— Je ne sais toujours pas si je te fais confiance.
+
+— Je ne te le demande pas.
+
+Nino surgit entre eux.
+
+— Moi, je propose qu'on arrête de se faire arrêter. Ça me paraît être une excellente base pour une nouvelle équipe.
+
+— Nouvelle équipe ? répéta Victor.
+
+— Une expression. On pourra négocier les détails.
+
+Ils retrouvèrent la galerie qui dissimulait leur passage.
+
+La porte était toujours ouverte.
+
+Avant de traverser, Julien regarda Raoul.
+
+— Tu viens chercher ma sœur. Pas vendre des armes. Pas trouver des clients.
+
+— Je viens pour Clara.
+
+Victor le considéra.
+
+— Ça ne veut pas dire qu'on t'a pardonné.
+
+— Je n'ai pas demandé ça.
+
+Ils franchirent le portail.
+
+Dans la salle initiale, Julien retrouva immédiatement la lettre laissée à sa sœur. Elle était toujours là, sous la même pierre.
+
+Savio examina leurs repères.
+
+— Rome n'était pas la bonne porte. Il reste l'autre passage qui se trouvait près de Clara lorsqu'elle a disparu.
 
 Victor regarda l'ouverture encore inconnue.
 
-— Et si on se trompe encore ?
+— Et si elle n'y est pas ?
 
-Julien releva la tête.
+Julien posa une main sur son épaule.
 
 — Alors on continuera.
 
-Raoul s'approcha à son tour.
+Raoul se rapprocha.
 
-— Je viens avec vous.
-
-Personne ne protesta.
+Personne ne lui demanda de rester en arrière.
 
 Ils étaient partis à quatre.
 
 Ils revenaient à cinq.
 
-Et la dernière porte n'avait pas encore révélé ce qu'elle cachait.
+Et la deuxième piste les attendait.
 
 ---
 
