@@ -876,7 +876,7 @@ Ils s'éloignèrent jusqu'à une prairie, où Savio prit d'autres photographies 
 
 Quand la lumière commença à baisser, Julien rappela qu'ils avaient promis de rentrer tôt.
 
-Il reprirent le même chemin.
+Ils reprirent le même chemin.
 
 En atteignant le carrefour, ils remarquèrent que la place s'était vidée. Les marchands avaient remballé leurs affaires. Un soldat parlait à un passant. Les dernières silhouettes s'éloignaient.
 
