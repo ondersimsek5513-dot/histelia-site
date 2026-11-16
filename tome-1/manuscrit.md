@@ -734,7 +734,7 @@ Pour le moment, cette image ne lui disait rien d'autre que l'endroit où ils ava
 
 L'argent était bien là. C'était précisément ce qui compliquait les choses.
 
-Sur la table du salon de Julien, Victor avait disposé trois briquets neufs, un miroir de poche et une petite lampe. Rien qui ressemblât à une fortune. Pourtant, depuis la vente des monnaies, il regardait ces objets comme un marchand de diamants devant son coffre.
+Sur la table du salon de Julien, Victor avait disposé trois briquets neufs, un mètre ruban rétractable et une petite lampe. Rien qui ressemblât à une fortune. Pourtant, depuis la vente des monnaies, il regardait ces objets comme un marchand de diamants devant son coffre.
 
 Julien, lui, regardait la fenêtre. Dehors, les voitures passaient, un voisin promenait son chien, quelqu'un avait renversé une poubelle. Le monde continuait avec une indifférence presque insultante.
 
@@ -788,11 +788,23 @@ Le village apparut après quelques minutes de marche. Les toits, les enclos et l
 
 Ce qui troublait Savio, ce n'était plus le décor, mais l'absence de public. Personne ne demandait de billet, ne vendait de brochure ou ne sortait de son rôle pour répondre à un visiteur. Les enfants n'avaient pas l'air de jouer. Les hommes qui travaillaient n'interrompaient pas leur tâche pour les regarder.
 
-Victor, en revanche, avait repéré un petit étal où l'on proposait des boucles, des cordelettes et des objets de toilette. Il sortit son miroir de poche et le présenta au vendeur. Après un premier échange méfiant, l'homme demanda à le tenir, observa son propre visage dans le verre lisse, puis proposa plusieurs pièces en paiement.
+Victor, en revanche, avait repéré un petit étal où l'on proposait des boucles, des cordelettes et des lanières de cuir. Le vendeur mesurait un morceau de tissu à l'aide d'une corde nouée. Victor sortit son mètre ruban de poche et tendit la lame métallique.
 
-L'affaire fut conclue moins facilement que Victor l'avait imaginé. Le vendeur discutait durement, et Savio lui fit retirer de la bourse une monnaie si usée qu'il ne parvenait pas à en distinguer les marques. Ils repartirent finalement avec trois pièces et un miroir de moins.
+Le marchand suivit des yeux les chiffres réguliers gravés sur le métal. Victor montra comment mesurer la même longueur plusieurs fois, sans déplacer une corde entre deux marques. L'homme comprit immédiatement l'intérêt : il tira doucement sur le ruban, compara deux lanières, puis posa une question sur sa solidité.
 
-— Trois, dit Victor en refermant la bourse. On avait apporté un petit miroir à quelques euros. Trois véritables pièces anciennes.
+— Ça, c'est de l'acier, répondit Victor avec une assurance dont Savio ne lui connaissait pas le détail.
+
+Nino appuya sur le bouton du boîtier. La lame s'enroula d'un coup sec. Le marchand retira sa main avec un juron, tandis que Nino reculait déjà.
+
+— Il revient tout seul, expliqua-t-il. C'est son côté susceptible.
+
+Le vendeur exigea une seconde démonstration. Puis une troisième. Il ne chercha pas à savoir si l'objet était magique ; il voulut savoir s'il pouvait mesurer les mêmes longueurs chaque jour. Savio lui montra comment utiliser une marque fixe plutôt que les unités inscrites sur le ruban.
+
+La négociation fut âpre. Le vendeur connaissait ses affaires et refusa de payer la somme extravagante d'abord annoncée par Victor. Il finit par offrir trois monnaies en échange de l'outil. Savio fit retirer de la bourse une pièce si usée qu'il n'en distinguait plus les marques.
+
+Ils repartirent avec trois pièces et un mètre ruban de moins.
+
+— Trois, dit Victor en refermant la bourse. Un truc acheté au rayon bricolage. Trois véritables pièces anciennes.
 
 — Peut-être, répondit Julien.
 
@@ -1036,7 +1048,7 @@ Le silence se prolongea. Nino fixa le sifflet qui dépassait du tronc. Il n'avai
 
 Victor, lui, ouvrit la petite bourse contenant leurs trois nouvelles pièces. Leur poids ne semblait plus tout à fait le même dans sa main.
 
-Ils avaient traversé l'histoire, vendu un miroir à un homme qui n'avait jamais vu son reflet aussi nettement et abandonné un sifflet dans un arbre. Pour le chêne, des siècles avaient passé. Pour eux, seulement quelques heures.
+Ils avaient traversé l'histoire, vendu un mètre ruban à un homme qui l'avait jugé utile pour son commerce et abandonné un sifflet dans un arbre. Pour le chêne, des siècles avaient passé. Pour eux, seulement quelques heures.
 
 Julien referma délicatement la main de Victor sur la bourse.
 
@@ -1060,19 +1072,41 @@ La première règle commerciale de Victor était simple : ne jamais laisser une 
 
 — Voilà. Encore pire. Il y a « numismate » dans le mot. C'est presque une punition.
 
-Ils avaient étalé sur la table du salon de Julien une collection d'objets d'une banalité affligeante : briquets, miroirs de poche, lampes, stylos, petits outils, accessoires divers achetés dans plusieurs magasins.
+Ils avaient étalé sur la table du salon de Julien une collection d'objets d'une banalité affligeante : briquets, stylos à bille, petites lampes à piles, coupe-ongles, ciseaux de précision, outils pliants et quelques accessoires de bricolage.
 
-Nino les contemplait comme un enfant devant un buffet.
+Victor avait placé une étiquette de prix devant chaque objet. Des prix du XXIe siècle, bien entendu. À côté, il avait écrit ce qu'il espérait en obtenir dans l'autre monde.
 
-— Ça, dit-il en soulevant un miroir, j'en garde un.
+Julien souleva une étiquette.
 
-— Pour quoi faire ? demanda Julien.
+— Tu as multiplié le prix de ce coupe-ongles par combien ?
 
-— Me regarder quand je serai riche.
+— Ce n'est pas son prix, répondit Victor. C'est son potentiel.
 
-Victor reprit le miroir.
+— Le potentiel de nous faire chasser du village ?
 
-— Justement. Tu le garderas quand tu auras payé ta part.
+Nino avait apporté un autre sac. Il en sortit un gros blaster portatif, couvert de boutons et de grilles de haut-parleur.
+
+— J'ai aussi une proposition culturelle.
+
+— Non, dit Victor.
+
+— Tu ne sais même pas ce que c'est.
+
+— Justement. Quand tu l'annonces comme ça, je sais.
+
+Nino posa le blaster parmi les marchandises. Il avait également apporté un vieux Walkman, un réveil à deux cloches, une poupée parlante et un mégaphone. Il leur présenta le tout comme une sélection personnelle des plus grandes réussites de l'humanité.
+
+— Tu as oublié le grille-pain, observa Julien.
+
+— Il faut une prise.
+
+Savio regarda le sac, intrigué malgré lui. Ces objets étaient parfois moins utiles qu'une bonne paire de ciseaux, mais ils avaient une qualité que Victor sous-estimait : ils pouvaient provoquer des réactions qu'aucun des quatre n'était capable de prévoir.
+
+— On ne vendra pas tout, trancha Julien. Et certainement pas n'importe quoi à n'importe qui.
+
+Nino regarda ses baskets Air Max, puis les souleva légèrement du sol.
+
+— Pour les chaussures, de toute façon, je ne négocie pas.
 
 Savio avait apporté une autre pile. Elle ne contenait pas d'objets à vendre, mais des cartes, des photocopies, des notes et plusieurs pages couvertes de questions.
 
@@ -1116,6 +1150,22 @@ Il y avait effectivement plusieurs listes.
 
 Objets à transporter. Objets à éviter. Coutumes. Moyens de paiement. Itinéraires. Risques sanitaires. Risques politiques. Et une colonne entière consacrée aux situations dans lesquelles il serait préférable de faire demi-tour.
 
+Victor voulait empiler des cartons de briquets. Savio insistait pour distinguer trois catégories : ce qu'un artisan pouvait utiliser dès demain, ce qu'un riche marchand pourrait revendre et ce qu'un noble voudrait simplement montrer à ses invités.
+
+Ils essayèrent les objets dans le salon comme des vendeurs qui ne connaîtraient pas encore leurs propres produits. Le stylo à bille écrivit sans encrier. La lampe illumina le dessous de la table. Un outil multifonction séduisit Julien par sa sobriété. Nino fit retentir les deux cloches du réveil, puis annonça qu'il possédait maintenant « l'horloge la plus agressive du Moyen Âge ».
+
+Savio élimina un petit appareil inutilisable sans prise électrique et rappela que les piles comme les batteries avaient une durée limitée. Pour la musique, Nino avait chargé une sélection de morceaux sur un support que son blaster pouvait lire sans connexion. Il avait aussi prévu des piles de rechange.
+
+— Le village n'a pas de réseau, souligna Savio.
+
+— C'est justement pour ça que j'ai téléchargé, répondit Nino. Je ne suis pas totalement irresponsable.
+
+Julien consulta les prix. Rien de tout cela ne devait les ruiner avant qu'ils sachent réellement ce qui se vendait. Il fixa une règle : pas d'objet que les acheteurs risqueraient de prendre pour un remède, pas de promesse de fonctionnement éternel, et pas d'appareil dont ils seraient incapables d'expliquer les limites.
+
+Victor se montra plus contrarié par la dernière règle que par les deux premières.
+
+Ils mirent de côté les jumelles pour les riches clients et réservèrent les inventions les plus spectaculaires à une éventuelle présentation privée. Le blaster demeura sur la table, entre deux briquets, comme un invité qui aurait forcé la porte.
+
 — Vous avez prévu les batteries ? demanda Savio. Les objets qui fonctionnent avec des piles, ça ne sert à rien quand elles sont vides. Les talkies-walkies non plus.
 
 — On prendra des recharges, dit Julien.
@@ -1134,7 +1184,7 @@ Nino la regarda avec prudence.
 
 Victor examinait surtout la colonne des marchandises.
 
-— Il nous faut des choses faciles à comprendre. Une lampe qui s'allume, un miroir, un objet qui fait du feu. Pas des appareils dont on devra expliquer les boutons pendant vingt minutes.
+— Il nous faut des choses faciles à comprendre. Une lampe qui s'allume, un stylo qui écrit sans encrier, un objet qui fait du feu. Le reste, on le montre seulement si l'acheteur est prêt à écouter.
 
 — Voilà enfin une remarque utile, dit Savio.
 
@@ -1226,9 +1276,59 @@ Le marchand se signa presque de stupeur, puis se pencha si près de la lumière 
 
 — Vous voyez, dit-il, ça aussi, il faut le ménager.
 
-Un miroir provoqua moins de cris, mais beaucoup plus de questions. Un petit mécanisme articulé sembla fasciner le marchand pour des raisons que Savio ne comprit pas. Quant à une boîte jouant une courte mélodie, elle l'obligea à s'asseoir.
+Le marchand s'intéressa ensuite au stylo à bille. Il essaya de tracer un signe sur une chute de papier sans chercher une plume, sans tailler de pointe et sans tremper quoi que ce soit dans un encrier. Il n'en crut pas ses doigts. Julien dut lui expliquer que l'encre finirait, elle aussi, par s'épuiser.
 
-Pendant un moment, les quatre amis eurent le sentiment ridicule d'être des magiciens de foire.
+Un petit outil pliant intéressa davantage l'apprenti du marchand que son maître. L'apprenti reconnut les usages des lames et des pinces, mais voulut savoir comment des pièces si ajustées pouvaient se replier les unes sur les autres.
+
+Victor se préparait à conclure une première affaire quand Nino posa son énorme blaster sur le comptoir.
+
+— Et maintenant, annonça-t-il, le rayon divertissement.
+
+Savio se retourna.
+
+— Nino, on avait dit qu'on commencerait par les objets simples.
+
+— Je commence simplement. J'appuie là.
+
+Un rythme puissant éclata dans l'échoppe. Sur l'appareil, une piste de JUL était en train de jouer. Le marchand sursauta si violemment qu'il heurta une pile de coffrets. Son apprenti regarda derrière la tenture, puis sous le comptoir, persuadé qu'un musicien s'y cachait.
+
+Deux passants s'arrêtèrent devant la porte. Un troisième entra pour vérifier qui faisait tant de bruit.
+
+— C'est quoi, cette fanfare ? cria Victor.
+
+— C'est JUL !
+
+— Je ne te demande pas le nom du général !
+
+Nino baissa enfin le volume. Le marchand posa une main sur la grille du blaster, comme pour s'assurer qu'aucun minuscule orchestre ne s'y débattait.
+
+— L'homme que j'entends... où se trouve-t-il ?
+
+— Très loin, répondit Nino. Et encore, vous avez de la chance.
+
+Savio expliqua prudemment qu'une voix avait été enregistrée auparavant, puis qu'un mécanisme la restituait. Le marchand comprit le principe en théorie et n'en parut pas moins déconcerté.
+
+— Attendez, dit Nino. Il y a aussi Céline Dion.
+
+Il lança un autre morceau, beaucoup plus doux. La voix emplissait toujours la boutique, mais les hommes ne cherchaient plus à fuir. Une femme arrêtée sur le seuil écouta jusqu'à la fin d'un passage sans en comprendre les paroles, émue par une mélodie venue d'un monde qu'elle ne connaîtrait jamais.
+
+— Elle chante pour quel seigneur ? demanda le marchand.
+
+— Elle vient du Québec.
+
+— Est-ce un royaume ?
+
+— C'est compliqué, répondit Nino. Et très froid.
+
+Victor, qui venait de voir une partie de sa clientèle se transformer en public, reprit l'appareil des mains de Nino.
+
+— Cette merveille n'est pas à vendre aujourd'hui, précisa-t-il. Elle exige des réserves d'énergie et un entretien particuliers.
+
+— Mais nous pouvons vous montrer d'autres objets moins capricieux, ajouta Julien.
+
+Le marchand ne quitta pas le blaster des yeux.
+
+Pendant un moment, les quatre amis eurent le sentiment ridicule d'être des magiciens de foire. Puis le vieux commerçant posa une question très terre à terre : combien coûterait un appareil capable de faire entendre une chanson à des gens qui ne pouvaient pas payer un orchestre ?
 
 Puis Victor demanda combien l'homme était disposé à payer.
 
@@ -1328,7 +1428,45 @@ Le marchand lut lentement, puis leva les yeux.
 
 Ils déballèrent leurs marchandises sur une grande table.
 
-Le premier miroir ne lui arracha qu'un mouvement de sourcil. La lampe, en revanche, le fit reculer. Lorsqu'il comprit que plusieurs objets pouvaient être reproduits à l'identique, il demanda à les examiner un à un.
+Le premier stylo ne lui arracha qu'un mouvement de sourcil. Le marchand en possédait déjà plusieurs sortes d'instruments pour écrire. Mais quand Savio lui montra qu'il pouvait couvrir une page sans jamais chercher un encrier, l'homme appela son commis.
+
+Il s'intéressa ensuite à la précision des outils pliants et à une petite balance électronique. Il comprit plus vite que les quatre voyageurs ce qu'une mesure régulière pouvait changer dans le commerce des métaux précieux. Il refusa toutefois d'acheter la balance sans garantie de pouvoir l'alimenter.
+
+— Vous vendez des outils qui se fatiguent, conclut-il.
+
+— Comme les hommes, répondit Victor. Mais ceux-là coûtent moins cher à nourrir.
+
+Nino voulut montrer son Walkman. Il posa le casque sur les oreilles du marchand, inséra une cassette et appuya sur lecture. L'homme sursauta, puis fit taire tout le monde d'un geste autoritaire. Il entendait une voix que personne d'autre n'entendait.
+
+— Le chanteur est dans ma tête, dit-il enfin.
+
+— Oui, mais vous pouvez lui demander de s'arrêter, répondit Nino.
+
+Le marchand essaya le bouton d'arrêt. Le silence revint. Il répéta l'opération plusieurs fois, beaucoup plus intéressé par le secret des sons que par le prix demandé.
+
+Victor installa alors sur la table un réveil mécanique à deux cloches. Il le présenta comme un petit gardien capable de rappeler une heure convenue. Le marchand observa son cadran et songea immédiatement aux rendez-vous de ses commis.
+
+Cinq minutes plus tard, au moment précis où Victor annonçait une somme extravagante, les cloches du réveil se déclenchèrent.
+
+Le commis lâcha sa plume. Une oie, qui s'était introduite derrière eux depuis la cour, protesta avec une vigueur inattendue. Nino recula contre la table et renversa le tabouret du marchand.
+
+— Ça, dit le marchand lorsque le vacarme cessa, vous auriez pu me prévenir.
+
+— C'est justement le principe, répondit Nino.
+
+L'homme ne sourit pas, mais demanda qu'on lui montre comment arrêter la sonnerie.
+
+Il aperçut alors les Air Max de Nino : leurs semelles épaisses, les couleurs inhabituelles et cette fenêtre transparente dans la matière. Il voulut les examiner. Nino dut poser un pied sur un tabouret, sous les regards passionnés de deux serviteurs.
+
+— Ces chaussures ont-elles le pouvoir d'alléger le corps ?
+
+— Le mien, surtout, répondit Nino.
+
+Le marchand proposa de les acheter. Nino refusa. Il augmenta le prix. Nino refusa encore.
+
+— Je peux vendre beaucoup de choses, monsieur. Mais pas mes Air Max.
+
+Victor ferma les yeux. Il venait d'assister au refus de l'offre la plus généreuse de la journée par celui qui, jusque-là, voulait vendre jusqu'aux boutons de sa veste.
 
 Sa curiosité était réelle, mais son enthousiasme demeurait calculé.
 
@@ -1466,7 +1604,7 @@ Victor se tourna vers ses amis.
 
 Pour une fois, personne ne lui répondit par une plaisanterie.
 
-Ils imaginaient déjà les valises.
+Ils imaginaient déjà les valises, les voix enfermées dans les boîtes et les réactions des nobles devant les objets que Nino voulait absolument emporter.
 
 Ils n'imaginaient pas encore ce que leurs prochaines marchandises finiraient par leur coûter.
 
@@ -1478,7 +1616,19 @@ La cour avait prévu une exposition de marchandises.
 
 Victor, lui, avait prévu un triomphe.
 
-Les quatre valises qu'ils traînaient depuis le petit matin étaient assez lourdes pour contenir les regrets de toute une vie. Elles contenaient surtout des objets dont leurs propriétaires n'avaient jamais imaginé qu'ils pussent provoquer des émeutes : lampes, miroirs, jumelles, petits mécanismes, stylos et une foule d'accessoires qui ne valaient presque rien dans un supermarché.
+Les quatre valises qu'ils traînaient depuis le petit matin étaient assez lourdes pour contenir les regrets de toute une vie. Elles contenaient des lampes puissantes, des jumelles, une petite caméra instantanée, un dictaphone, des mécanismes de précision, une poupée parlante, un mégaphone et d'autres objets soigneusement sélectionnés. Une partie du matériel coûtait peu dans leur monde ; certaines démonstrations, pourtant, semblaient capables d'affoler une cour entière.
+
+Nino avait même voulu emporter le blaster. Julien avait opposé son refus : une musique qui surgissait de nulle part avait déjà transformé une boutique en attroupement, et ils n'avaient pas l'intention de commencer une audience royale en déclenchant une émeute.
+
+— Une seule chanson, avait négocié Nino.
+
+— Non.
+
+— Même pas Céline ?
+
+— Non.
+
+Il avait finalement choisi le mégaphone. Savio trouvait ce compromis encore moins rassurant.
 
 — Arrête de sourire comme ça, souffla Julien.
 
@@ -1526,6 +1676,8 @@ Nino leva la main.
 
 Le marchand ignora la remarque.
 
+Il rappela cependant une condition : les petites fusées de fête que Victor avait évoquées ne pourraient être présentées qu'à la nuit tombée, dans un espace extérieur autorisé et sous le contrôle des gardes. Savio approuva. Personne ne devait les confondre avec des armes, ni les utiliser au milieu de la foule. Nino parut un instant déçu de ne pas pouvoir les sortir entre deux ventes.
+
 Les premiers visiteurs entrèrent bientôt : des nobles accompagnés de leurs gens, de riches acheteurs, des membres de l'entourage royal. Ils étaient curieux, prudents et, pour certains, déjà décidés à ne se laisser impressionner par personne.
 
 Victor commença par une lampe.
@@ -1554,7 +1706,57 @@ La dame éclata de rire. Les autres suivirent. La tension était rompue.
 
 À partir de cet instant, la vente devint un spectacle.
 
-Les acheteurs se disputèrent les miroirs, les petites lampes et certains mécanismes. On voulut toucher, essayer, démontrer à un cousin que l'objet était réel. Des domestiques se virent ordonner de chercher des bourses supplémentaires. Le marchand intermédiaire n'arrêtait plus de calculer.
+Les acheteurs se disputèrent les petites lampes, les objets de précision et les mécanismes. On voulut toucher, essayer, démontrer à un cousin que l'objet était réel. Des domestiques se virent ordonner de chercher des bourses supplémentaires. Le marchand intermédiaire n'arrêtait plus de calculer.
+
+Une dame de la cour s'intéressa à une poupée que Nino avait déposée sur un coussin. Elle la trouvait fort bien faite, quoique vêtue d'une manière déconcertante. Nino allait expliquer le mécanisme lorsqu'un jeune garçon appuya sur son ventre.
+
+— Maman ! lança soudain la poupée.
+
+Un valet recula jusqu'au mur. Une invitée porta la main à sa poitrine. La dame, elle, fixa la poupée avec une stupéfaction absolue.
+
+— Qui a parlé ?
+
+Nino prit l'objet, appuya à son tour et le fit répéter. Un petit silence suivit. Puis une autre phrase sortit de la bouche immobile du jouet.
+
+— Ce n'est pas un enfant, protesta Savio. C'est un enregistrement. Un mécanisme reproduit une voix.
+
+— Vous dites que vous avez mis une personne dans cette poupée ? demanda la dame.
+
+— Non, répondit Julien. Justement, nous ne disons pas cela.
+
+Le garçon se mit à rire et réclama aussitôt qu'on recommence. Quelques nobles rirent avec lui. D'autres, moins amusés, prirent soin de ne pas s'approcher.
+
+Victor demanda à Nino de ranger l'objet avant que l'un des conseillers ne décide de faire examiner les voyageurs pour sorcellerie.
+
+Il eut à peine le temps de reprendre son argumentaire qu'un autre curieux désigna l'appareil photo instantané. Savio prévint qu'il contenait une réserve très limitée de feuilles et que chaque image avait un coût. Un noble accepta de poser, persuadé qu'il s'agissait d'une nouvelle manière de peindre.
+
+Un déclic retentit. Une feuille sortit de l'appareil. Le noble voulut la saisir tout de suite ; Savio l'en empêcha doucement et lui demanda un instant.
+
+Lorsqu'un visage commença à apparaître sur le papier, les conversations cessèrent autour d'eux. Le portrait était imparfait, presque banal aux yeux de Nino. Pour le modèle, qui n'avait jamais attendu si peu d'un peintre, il était inconcevable.
+
+— Où avez-vous appris à peindre avec une boîte ?
+
+— Je suis très doué, dit Nino.
+
+— Tu n'as même pas appuyé sur le bouton, répliqua Julien.
+
+Le noble réclama d'autres portraits pour sa famille. Victor, comprenant que les feuilles seraient bientôt épuisées, annonça immédiatement un prix beaucoup moins modeste que le premier.
+
+Un peu plus tard, dans une cour intérieure, Nino obtint l'autorisation d'essayer le mégaphone, devant quelques officiers et invités. Il porta l'appareil à sa bouche.
+
+— Est-ce que tout le monde m'entend ?
+
+Sa voix rebondit sur les murs avec une puissance telle qu'un palefrenier, de l'autre côté du passage, abandonna son travail pour chercher qui venait de donner un ordre.
+
+— Je crois que oui, observa Julien.
+
+Nino sourit et ajouta, beaucoup plus fort :
+
+— ET QUE PERSONNE NE TOUCHE À MES AIR MAX !
+
+Victor lui arracha presque l'appareil des mains. Les officiers, eux, n'avaient pas ri. L'un d'eux voulut savoir si un commandant pourrait parler ainsi à des centaines d'hommes sans se déchirer la voix.
+
+Savio échangea un regard avec Julien. À chaque démonstration, ils découvraient que l'usage le plus spectaculaire n'était pas toujours celui qu'ils avaient prévu.
 
 Victor, lui, négociait avec une énergie presque religieuse.
 
@@ -1631,6 +1833,40 @@ Il ne le savait pas encore. Pas vraiment.
 La vente dura une bonne partie de la journée.
 
 À la fin, Victor comptait ses gains avec l'expression d'un homme qui s'apprêtait à embrasser un coffre. Nino avait négocié le droit de conserver la bille magnétique responsable de l'incident. Julien surveillait les portes.
+
+Mais il restait une démonstration, demandée par le marchand qui organisait la vente.
+
+À la tombée du jour, quelques invités furent conduits hors de l'enceinte habitée, vers un espace ouvert que les gardes avaient fait dégager. Nino aurait voulu annoncer l'événement au mégaphone ; Julien le pria de garder au moins un peu de mystère.
+
+Savio vérifia que les spectateurs demeuraient à distance. Les quatre amis n'avaient apporté qu'un petit nombre d'articles de fête achetés dans leur monde, et aucun ne voulait improviser devant des bâtiments de bois et de paille.
+
+Lorsque la première lumière jaillit dans le ciel, plusieurs invités crièrent. Une couronne colorée apparut au-dessus des arbres, puis disparut presque aussitôt. Un deuxième éclat arracha des applaudissements à une partie du groupe. D'autres reculèrent, persuadés d'avoir assisté à un prodige.
+
+Nino leva les bras comme s'il avait personnellement inventé le feu.
+
+— Mesdames et messieurs, bienvenue au vingt et unième siècle !
+
+— Nino ! souffla Julien.
+
+— Quoi ? Ils n'ont pas compris.
+
+Le vieux conseiller ne regardait pas les invités. Il suivait des yeux les lumières visibles bien au-delà de l'enceinte.
+
+— Une telle clarté se voit-elle de très loin ? demanda-t-il à Savio.
+
+— Dans de bonnes conditions, oui.
+
+— Même si la personne qui regarde ne se trouve pas ici ?
+
+— Oui.
+
+Le conseiller hocha la tête, sans sourire.
+
+— Une fête pour certains, murmura-t-il. Un signe pour d'autres.
+
+Savio avait préparé des réponses sur la beauté des lumières et sur leur durée. Il n'avait aucune envie d'expliquer comment elles pourraient servir à la guerre.
+
+Le spectacle s'acheva rapidement. Nino réclamait un dernier éclat. Julien annonça qu'ils n'en avaient plus. Victor avait déjà commencé à évaluer combien un riche seigneur paierait pour un soir pareil.
 
 Savio, lui, revint auprès du conseiller.
 
@@ -1840,7 +2076,7 @@ Le conseiller marqua une pause.
 
 — Et il a des questions à vous poser.
 
-Savio pensa aux jumelles.
+Savio pensa aux jumelles, au mégaphone, puis aux lumières qui avaient traversé le ciel devant la cour.
 
 Il se souvint du visage de l'homme lorsqu'il avait compris qu'on pouvait observer une troupe de très loin.
 
@@ -1919,6 +2155,12 @@ Il posa les jumelles devant lui.
 — Avec cet objet, mes éclaireurs apercevraient des troupes longtemps avant leur arrivée.
 
 Personne ne répondit.
+
+Le conseiller lui parla à voix basse du mégaphone qui portait une voix au-delà d'une cour, puis des lueurs aperçues le soir de la vente. Le roi écouta sans montrer d'étonnement.
+
+— Vous avez fait rire mes invités, dit-il. Mes officiers ont vu autre chose : un homme capable de se faire entendre de loin, des signes visibles au-delà des murs, des yeux qui rapprochent les distances.
+
+Julien repensa à Nino proclamant la gloire de ses chaussures dans le mégaphone. Il aurait voulu que cet épisode reste une plaisanterie.
 
 — Que possédez-vous d'autre ?
 
@@ -2808,7 +3050,7 @@ Clara regardait tout avec une attention mêlée d'amusement et de méfiance.
 
 Elle goûta un plat, s'étonna des épices, interrogea un serviteur et se rendit compte que personne ne semblait jouer pour elle.
 
-Plus tard, un musicien entama une mélodie que Victor trouva parfaitement romantique jusqu'à ce qu'Clara s'intéresse davantage à l'instrument qu'à sa déclaration.
+Plus tard, un musicien entama une mélodie que Victor trouva parfaitement romantique jusqu'à ce que Clara s'intéresse davantage à l'instrument qu'à sa déclaration.
 
 — Tu as vu comme il le tient ?
 
@@ -3140,7 +3382,7 @@ Julien ferma un instant les yeux.
 
 — Oui.
 
-Ils rédigèrent une lettre. Savio y inscrivit des indications simples et vérifiables, sans mentionner de destination qu'ils ignoraient. Ils repérèrent le passage connu du Moyen Âge, celui qu'Clara avait déjà emprunté, et marquèrent le premier des deux passages qu'ils comptaient explorer.
+Ils rédigèrent une lettre. Savio y inscrivit des indications simples et vérifiables, sans mentionner de destination qu'ils ignoraient. Ils repérèrent le passage connu du Moyen Âge, celui que Clara avait déjà emprunté, et marquèrent le premier des deux passages qu'ils comptaient explorer.
 
 Julien resta le dernier dans la salle.
 
@@ -3678,7 +3920,7 @@ Nino regardait leurs affaires confisquées, disposées sur une table plus loin.
 
 On leur avait retiré la plupart des objets modernes sans chercher à comprendre leur valeur. Certains avaient été emportés par des responsables curieux. D'autres seraient sans doute perdus.
 
-Ils conservaient cependant quelques effets personnels, considérés comme insignifiants par les gardes : un petit miroir, une lampe compacte et une bombe au poivre dont personne n'avait compris l'usage.
+Ils conservaient cependant quelques effets personnels, considérés comme insignifiants par les gardes : un petit coupe-ongles, une lampe compacte et une bombe au poivre dont personne n'avait compris l'usage.
 
 Savio les examina, soucieux.
 
@@ -4394,7 +4636,7 @@ Julien n'écoutait pas.
 
 Il était debout devant la lettre laissée à sa sœur.
 
-Il l'avait déposée avant leur départ pour Rome, convaincu qu'Clara la trouverait peut-être en revenant. Personne ne l'avait déplacée. La pierre qui retenait le papier reposait exactement au même endroit.
+Il l'avait déposée avant leur départ pour Rome, convaincu que Clara la trouverait peut-être en revenant. Personne ne l'avait déplacée. La pierre qui retenait le papier reposait exactement au même endroit.
 
 Il lut les dernières lignes.
 
@@ -4800,7 +5042,7 @@ Il voulait courir partout. Il savait qu'il ne servirait à rien de courir sans m
 
 Nino finit par dire :
 
-— Vous croyez qu'Clara aurait aimé cet endroit ?
+— Vous croyez que Clara aurait aimé cet endroit ?
 
 Victor sourit tristement.
 
@@ -5096,7 +5338,7 @@ Mais ce soir-là, pour la première fois depuis leur arrivée, ils eurent le sen
 
 ## Chapitre 16 — La fille qui donnait des ordres
 
-La première chose qu'Clara comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
+La première chose que Clara comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
 
 La deuxième, que Victor était un imbécile.
 
@@ -6856,7 +7098,7 @@ Elle ne s'excusa pas toujours avec grâce.
 
 Mais elle apprit.
 
-Elle écouta surtout Dara, dont les décisions tenaient compte de dizaines de problèmes qu'Clara découvrait un par un.
+Elle écouta surtout Dara, dont les décisions tenaient compte de dizaines de problèmes que Clara découvrait un par un.
 
 Malo et Solan rendaient des services sur les embarcations du fleuve. Ils savaient réparer des choses, déplacer des charges et reconnaître quand un bateau ne pourrait pas supporter un voyage.
 
