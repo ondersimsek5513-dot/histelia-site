@@ -1,6 +1,6 @@
 # HISTELIA — LES MARCHANDS DU TEMPS
 
-*Tome 1 — Lecture publique. Chapitre 1 réécrit (V3) ; prénoms définitifs harmonisés dans les 31 chapitres ; chapitres 2 à 31 en cours de révision stylistique.*
+*Tome 1 — Lecture publique. Chapitre 1 réécrit (V3) ; prénoms définitifs harmonisés dans les 32 chapitres ; chapitres 2 à 32 en cours de révision stylistique.*
 
 ## Chapitre 1 — Une idée qui ne vaut pas de l'or
 
@@ -692,65 +692,365 @@ Et, après la vente, l'argent arriva réellement sur leur compte.
 
 Pas la somme extravagante qu'ils avaient annoncée en plaisantant. Pas de quoi acheter un château. Mais bien plus qu'ils n'avaient jamais espéré obtenir en échange d'un briquet de poche. L'une des pièces avait attiré une offre exceptionnellement élevée ; les autres avaient ajouté une somme déjà très appréciable.
 
-Nino fixa le chiffre sur l'écran du téléphone d'Julien.
+Nino fixa le chiffre sur l'écran du téléphone de Julien.
 
 — Il manque une virgule ?
 
-— Non, dit Savio.
+— Non, répondit Savio.
 
-— Tu es sûr ?
+Victor éclata de rire, puis se mit à compter sur ses doigts ce que leur aurait rapporté une boîte entière de briquets.
 
-— Oui.
+Julien, lui, ne riait pas. Il pensait au garde, à la porte lumineuse et au marchand qui avait renoncé à une poignée de véritables monnaies pour obtenir un objet en plastique.
 
-Victor éclata de rire.
+— Tu crois vraiment qu'ils nous ont donné des pièces anciennes par erreur ? demanda-t-il.
 
-Julien, lui, ne riait pas.
+Savio fit tourner entre ses doigts la monnaie qu'ils avaient conservée.
 
-— Ça veut dire quoi ? demanda-t-il.
+— Le numismate a établi qu'elles étaient authentiques. Il n'a pas établi d'où elles venaient. Un collectionneur aurait pu les fournir à une reconstitution. Un commerçant aurait pu confondre deux bourses. Il y a des hypothèses plus raisonnables que celle à laquelle on pense tous.
 
-Savio posa la pièce qui n'avait pas été vendue sur la table, à côté du vieux briquet défaillant de Victor.
+— Celle de la porte magique ? demanda Nino.
 
-— Ça veut dire qu'ils n'étaient pas des comédiens.
+— Celle qu'on n'a aucune raison de croire vraie, dit Savio.
 
-Personne ne bougea.
+Victor se pencha vers la table. Pour la première fois depuis la vente, il cessa de sourire.
 
-— Le chevalier... commença Nino.
+— Très bien. Alors on retourne voir. Et on essaie d'obtenir d'autres pièces.
 
-— Un vrai.
+Julien allait refuser. Puis il regarda les photographies du village sur le téléphone de Savio. Ils étaient partis là-bas trop vite, avaient parlé trop fort, et s'étaient enfuis avant d'avoir vraiment observé quoi que ce soit.
 
-— Le garde ?
+— Une seule visite, dit-il. On prend quelques objets, on regarde mieux et on ne s'approche pas de ce garde.
 
-— Aussi.
+— Une enquête scientifique, déclara Victor.
 
-Victor baissa les yeux vers son vieux briquet.
+— Avec une toute petite partie commerciale, précisa Nino.
 
-— Et notre ami le marchand...
+Savio ne répondit pas. Il venait de retrouver une photographie de la vallée prise avant leur première expédition. Au loin, on distinguait la rivière et le vieux pont qu'ils avaient traversé en voiture.
 
-Savio acquiesça.
-
-Le silence changea de nature.
-
-Jusque-là, ils avaient cherché à expliquer une journée absurde. À présent, ils devaient accepter une idée bien pire.
-
-Ils avaient été quelque part où ils n'auraient pas dû pouvoir aller.
-
-Et la porte existait toujours.
-
-Victor regarda ses trois amis.
-
-Son sourire reparut, lentement.
-
-— Dites-moi une chose.
-
-Julien leva les yeux.
-
-— Quoi ?
-
-— On est bien d'accord qu'il existe encore des magasins qui vendent des briquets par cartons ?
+Pour le moment, cette image ne lui disait rien d'autre que l'endroit où ils avaient garé la voiture.
 
 ---
 
-## Chapitre 3 — Les meilleurs vendeurs du royaume
+## Chapitre 3 — Ce que gardait le chêne
+
+L'argent était bien là. C'était précisément ce qui compliquait les choses.
+
+Sur la table du salon de Julien, Victor avait disposé trois briquets neufs, un miroir de poche et une petite lampe. Rien qui ressemblât à une fortune. Pourtant, depuis la vente des monnaies, il regardait ces objets comme un marchand de diamants devant son coffre.
+
+Julien, lui, regardait la fenêtre. Dehors, les voitures passaient, un voisin promenait son chien, quelqu'un avait renversé une poubelle. Le monde continuait avec une indifférence presque insultante.
+
+— On n'a toujours aucune idée de ce qu'il y a derrière cette porte, dit-il.
+
+Savio avait posé les rapports du numismate à côté de plusieurs photographies du village.
+
+— On sait que les pièces sont authentiques, répondit-il. On ne sait pas pourquoi elles étaient là.
+
+Cette distinction agaçait Victor, qui venait de passer la matinée à calculer ce que rapporterait un carton entier de briquets.
+
+Les quatre avaient pourtant trouvé plusieurs explications. Un collectionneur extravagant pouvait avoir fourni des monnaies anciennes aux organisateurs d'une reconstitution. Un marchand pouvait s'être trompé de bourse. Ils avaient peut-être traversé un dispositif spectaculaire donnant accès à une propriété privée, un parc historique ou un tournage dont ils ignoraient tout. Aucune hypothèse n'expliquait vraiment la lumière de l'arche, mais toutes leur paraissaient moins absurdes qu'un voyage dans le temps.
+
+— Il faut y retourner, conclut Victor.
+
+— Pour enquêter, précisa Savio.
+
+— Naturellement. Et si l'enquête produit quelques pièces supplémentaires, je ne vais pas lui faire obstacle.
+
+Nino souleva un briquet.
+
+— Cette fois, je négocie sans toi.
+
+— La dernière fois, tu as demandé la bourse en supplément.
+
+— Et je l'ai obtenue.
+
+Julien finit par accepter une seconde visite. Pas de cartons, pas de grand projet commercial, pas de provocation. Ils prendraient quelques objets, observeraient les habitants et rentreraient avant la tombée de la nuit. Savio emporta son appareil photo, son téléphone chargé et le petit carnet où il consignait tout. Il accrocha aussi un sifflet en laiton à la fermeture de son sac : en forêt, expliqua-t-il, c'était plus fiable qu'un téléphone sans réseau.
+
+Victor se moqua de cette précaution pendant la moitié du trajet.
+
+***
+
+Ils laissèrent la voiture près du chemin forestier et passèrent, comme la première fois, par la salle circulaire. L'arche s'illumina sous leurs yeux. Même à leur deuxième visite, aucun ne sut trouver une explication satisfaisante à ce phénomène.
+
+Ils franchirent le passage en silence.
+
+De l'autre côté, l'air sentait la terre humide. La galerie conduisait toujours vers les mêmes bois, dépourvus de route, de panneaux et de fils électriques. Nino tenta de capter du réseau en levant son téléphone au-dessus de sa tête, puis renonça.
+
+— Ils ont vraiment poussé le concept jusqu'au forfait téléphonique.
+
+Savio prit une photographie du sentier.
+
+— On fera la comparaison au retour.
+
+— Tu veux photographier des arbres ?
+
+— Je veux savoir si ce sont les mêmes.
+
+Le village apparut après quelques minutes de marche. Les toits, les enclos et les fumées étaient encore là. Un garçon guidait deux porcs récalcitrants dans une ruelle. Une femme lavait du linge près d'un baquet. Plus loin, un charpentier travaillait seul sous un auvent.
+
+Ce qui troublait Savio, ce n'était plus le décor, mais l'absence de public. Personne ne demandait de billet, ne vendait de brochure ou ne sortait de son rôle pour répondre à un visiteur. Les enfants n'avaient pas l'air de jouer. Les hommes qui travaillaient n'interrompaient pas leur tâche pour les regarder.
+
+Victor, en revanche, avait repéré un petit étal où l'on proposait des boucles, des cordelettes et des objets de toilette. Il sortit son miroir de poche et le présenta au vendeur. Après un premier échange méfiant, l'homme demanda à le tenir, observa son propre visage dans le verre lisse, puis proposa plusieurs pièces en paiement.
+
+L'affaire fut conclue moins facilement que Victor l'avait imaginé. Le vendeur discutait durement, et Savio lui fit retirer de la bourse une monnaie si usée qu'il ne parvenait pas à en distinguer les marques. Ils repartirent finalement avec trois pièces et un miroir de moins.
+
+— Trois, dit Victor en refermant la bourse. On avait apporté un petit miroir à quelques euros. Trois véritables pièces anciennes.
+
+— Peut-être, répondit Julien.
+
+— Elles sont aussi fausses que les premières, alors ?
+
+— Je dis seulement qu'il faut comprendre ce qui se passe.
+
+À mesure qu'ils traversaient le village, les détails s'accumulaient. Une fillette courait pieds nus dans la boue froide. Un vieillard toussait derrière une porte entrebâillée. Une odeur âcre provenait d'un fossé dont personne ne semblait se préoccuper. Les visages étaient marqués, les vêtements rapiécés. La reconstitution, si c'en était une, n'avait rien de la fête pittoresque que les quatre amis avaient imaginée.
+
+Savio allait questionner un artisan quand Nino lui saisit le bras.
+
+— Ne te retourne pas trop vite.
+
+Près de la palissade se tenait le garde de leur première visite. La même carrure, la même arme, le même visage fermé. Il parlait à deux hommes, mais son regard glissa sur les quatre étrangers.
+
+Julien n'attendit pas de savoir s'il les avait reconnus. Il entraîna ses amis vers une ruelle latérale, puis vers un chemin qui descendait hors du village.
+
+— On aurait pu prendre une autre sortie, marmonna Victor.
+
+— C'est ce qu'on vient de faire.
+
+— Je veux dire, sans avoir l'air de fuir.
+
+Cette fois, Nino ne trouva rien à ajouter. Il se souvenait très bien de la lame que le garde avait sortie.
+
+***
+
+La sente suivait une petite rivière. Ils marchèrent entre des saules et des prairies humides, heureux de mettre de la distance entre eux et les remparts de bois.
+
+Puis le chemin tourna et un pont apparut.
+
+Savio s'arrêta net.
+
+Trois arches de pierre enjambaient l'eau. Celle du milieu était légèrement plus haute que les deux autres. Sur le parapet, près de la rive, une pierre portait une entaille oblique caractéristique, comme si un morceau triangulaire avait été repris par un maçon maladroit.
+
+Julien connaissait ce pont.
+
+Ils l'avaient franchi en voiture en rejoignant le secteur de la forêt. Un panneau patrimonial signalait l'ancienneté de l'ouvrage, et Nino avait plaisanté sur l'étroitesse de ses voies de circulation.
+
+Ici, il n'y avait ni chaussée goudronnée, ni panneaux, ni rambardes modernes aux abords. Seulement le vieux pont, un chemin de terre et des charrettes qui passaient avec précaution sur les pierres.
+
+— C'est le même, murmura Julien.
+
+Savio s'approcha du parapet. Il reconnut la pierre entaillée. Même angle, même succession de blocs, même arche légèrement décentrée. Il photographia les détails.
+
+Victor se força à sourire.
+
+— Une reconstitution autour d'un vrai pont historique, ça reste possible.
+
+— Bien sûr, dit Savio. Mais dans ce cas, explique-moi où est passée la route qui traverse la vallée.
+
+Au-delà du pont s'étendaient des pâturages et des champs. À l'endroit où devait se trouver un lotissement, on ne voyait qu'une ligne d'arbres. Aucun pylône, aucun immeuble, aucune circulation sur les hauteurs.
+
+Ils passèrent plusieurs minutes à essayer de retrouver les reliefs connus : une colline, une courbe de la rivière, un versant boisé. Tout semblait à sa place. Tout ce que les hommes avaient construit depuis avait disparu.
+
+Julien sentit une inquiétude différente de celle provoquée par le garde. Ce n'était plus la peur d'une rencontre dangereuse. C'était l'impression que le sol sous leurs pieds avait cessé d'obéir aux règles ordinaires.
+
+Plus loin, un bruit de foule les détourna de leurs observations.
+
+De l'autre côté du pont, près d'un carrefour, une petite place accueillait un attroupement. Des hommes et des femmes s'étaient regroupés devant une estrade de bois. Quelques soldats maintenaient un passage dégagé.
+
+Sur l'estrade, un homme aux poignets liés se tenait entre deux autres.
+
+— Voilà, souffla Nino. Le spectacle de l'après-midi.
+
+Les amis restèrent en retrait, à bonne distance. Un homme lisait quelque chose à haute voix. Ils n'en comprirent que des fragments. La foule ne riait pas. Quelques personnes baissaient les yeux ; d'autres levaient le menton pour mieux voir.
+
+— C'est peut-être une scène de justice médiévale, suggéra Victor.
+
+Savio regardait surtout le condamné. L'homme semblait incapable de tenir droit. À plusieurs reprises, il chercha quelqu'un dans la foule, comme s'il espérait encore y trouver de l'aide.
+
+Julien détourna les yeux.
+
+— On n'est pas venus pour ça.
+
+Il n'avait aucune envie de rester devant une potence, même s'il ne s'agissait que d'un spectacle. Les autres le suivirent vers le chemin longeant la rivière. Derrière eux, la voix du crieur s'éleva une dernière fois. Une clameur monta puis retomba.
+
+Nino tenta une plaisanterie sur la mauvaise humeur des figurants, mais sa voix manquait de conviction.
+
+Ils s'éloignèrent jusqu'à une prairie, où Savio prit d'autres photographies du pont et des collines. Il nota les directions, dessina le contour du parapet, chercha une explication géographique à ce qu'ils avaient vu. Chaque détail supplémentaire compliquait pourtant sa théorie.
+
+Quand la lumière commença à baisser, Julien rappela qu'ils avaient promis de rentrer tôt.
+
+Il reprirent le même chemin.
+
+En atteignant le carrefour, ils remarquèrent que la place s'était vidée. Les marchands avaient remballé leurs affaires. Un soldat parlait à un passant. Les dernières silhouettes s'éloignaient.
+
+L'estrade, elle, était toujours là.
+
+Et le condamné aussi.
+
+Il pendait au bout d'une corde, immobile, dans la lumière grise du soir.
+
+Victor s'arrêta. Il chercha autour de lui un responsable, une équipe, une caméra, n'importe quel signe indiquant que la représentation était terminée. Il ne vit rien de tel. Personne ne démontait le décor. Personne ne venait détacher l'homme.
+
+Une femme passa à quelques pas d'eux, un panier contre la hanche. Elle jeta un bref regard vers la potence puis poursuivit sa route.
+
+Nino baissa les yeux.
+
+— Ils ne peuvent pas le laisser là...
+
+Savio ne répondit pas. Il avait observé assez de détails, depuis leur arrivée, pour être incapable de prononcer le mot comédien avec la même assurance.
+
+Julien posa une main sur l'épaule de Nino.
+
+— On rentre.
+
+Ils traversèrent de nouveau le pont sans parler. Le bruit de la rivière leur parut étrangement fort.
+
+***
+
+Près de la rive, Savio s'arrêta devant un chêne.
+
+Il se dressait un peu à l'écart du chemin, trapu, avec un tronc noueux et une large branche qui penchait vers l'eau. Son écorce était creusée par une fente profonde, assez basse pour qu'on puisse y glisser la main.
+
+Victor, qui avait encore la place du carrefour en tête, n'apprécia pas cette nouvelle halte.
+
+— Qu'est-ce qu'il y a, maintenant ?
+
+Savio désigna l'arbre.
+
+— Tu disais que tout ça pouvait être un spectacle. Et si on faisait une expérience ?
+
+— Sur un arbre ?
+
+— Il ne risque pas de nous demander de billet.
+
+Nino releva légèrement la tête. C'était la première plaisanterie depuis plusieurs minutes qui ressemblait à celles de leurs premières heures au village.
+
+Savio détacha le sifflet en laiton de son sac. C'était un petit objet robuste, presque banal, avec un anneau à son extrémité. Il en avait toujours un lorsqu'il partait chercher des métaux : on pouvait rappeler quelqu'un sans téléphone ni batterie.
+
+— Si nous sommes simplement dans un parc historique, ce chêne sera là demain, dit-il. Si nous sommes ailleurs...
+
+Il ne termina pas.
+
+— Ailleurs où ? demanda Victor.
+
+— Justement.
+
+Avec la pointe d'un petit outil, Savio raya le rebord du sifflet de trois traits rapprochés, puis prit une photographie suffisamment nette pour montrer les marques.
+
+— Très bien, dit Nino. Tu viens de dégrader un objet qui valait au moins quatre euros.
+
+— Il ne vaut rien.
+
+— C'est ce qu'on disait du briquet.
+
+Savio glissa le sifflet dans la fente du tronc. Il le poussa au fond, à un endroit où la main atteignait encore le métal, mais où celui-ci ne serait pas visible d'un passant. Puis il photographia l'arbre entier, la branche inclinée et l'emplacement exact de la cachette.
+
+Julien observait la scène sans intervenir. Il aurait voulu trouver cette idée absurde. Mais il ne savait plus très bien à quoi ressemblait une idée absurde.
+
+— Et maintenant ? demanda Victor.
+
+— On rentre. Et on regarde si le chêne existe chez nous.
+
+Personne ne souleva d'objection.
+
+Ils retrouvèrent la galerie, franchirent l'arche dans l'autre sens et débouchèrent dans la forêt familière.
+
+Un avion passa très haut au-dessus d'eux. À quelques centaines de mètres, ils entendirent enfin le bruit lointain d'une voiture.
+
+Nino sortit son téléphone. Le réseau était revenu.
+
+— Je n'aurais jamais cru être aussi content de voir des barres sur un écran.
+
+Mais personne ne proposa de rentrer directement chez soi.
+
+***
+
+Ils reprirent la voiture et roulèrent jusqu'au vieux pont.
+
+L'ouvrage était là, exactement où ils l'avaient toujours connu. Il portait toujours ses trois arches, son parapet irrégulier et la pierre entaillée. Seulement, au-delà, la route moderne fendait la vallée. Les maisons grimpaient sur le versant. Des câbles couraient entre les poteaux et la circulation avançait au rythme des feux.
+
+Savio compara ses photographies avec le paysage. Une à une, les lignes du relief se superposaient. La rivière dessinait la même courbe. Le pont occupait le même emplacement.
+
+Victor parla le premier, d'une voix qui cherchait encore sa légèreté.
+
+— Ça ne prouve pas qu'on a voyagé. Ça prouve qu'ils ont choisi un endroit qui ressemble beaucoup à lui-même.
+
+Personne ne releva la formule.
+
+Ils descendirent vers la rive.
+
+Le chêne était toujours là.
+
+Ou plutôt, ce devait être le même chêne, devenu immense. Sa branche inclinée avait épaissi et s'étendait au-dessus d'une partie du chemin. Le tronc avait grossi au point que trois hommes auraient eu du mal à en faire le tour avec leurs bras. Une petite plaque plantée à proximité le présentait comme un arbre remarquable, vieux de plusieurs siècles.
+
+Savio consulta la photo prise de l'autre côté. Ils retrouvèrent la silhouette générale, la branche penchée et la zone noueuse où il avait glissé le sifflet.
+
+Mais la fente avait disparu.
+
+À sa place s'étendait un bourrelet d'écorce, comme une blessure très ancienne refermée par l'arbre.
+
+— Il n'est plus là, dit Victor.
+
+Il semblait presque soulagé.
+
+Savio ne répondit pas. Il fit lentement le tour du tronc, compara l'orientation de la branche et la hauteur de la cicatrice. Puis il retourna au coffre de la voiture et en sortit son détecteur de métaux.
+
+Nino le regarda revenir avec l'appareil.
+
+— Tu sais que si tu trouves un trésor, je prends ma part ?
+
+Savio passa la tête de détection devant le vieux bourrelet.
+
+Un signal retentit.
+
+Il recula, vérifia le réglage, éloigna le détecteur, puis recommença. Le même signal revint au même endroit, précis et obstiné.
+
+Julien s'approcha. Dans une minuscule ouverture de l'écorce, juste sous le bourrelet, quelque chose renvoyait un éclat terne.
+
+Savio écarta doucement les débris végétaux avec un petit morceau de bois. Une extrémité de métal apparut, noircie et verdâtre. Elle était presque entièrement avalée par le tronc.
+
+C'était l'embouchure d'un sifflet.
+
+Sur son rebord, à peine visibles sous la patine, trois petites rayures se suivaient.
+
+Savio leva son téléphone. À l'écran, le laiton était encore brillant, les marques fraîches, la fente béante. Devant eux, un arbre avait grandi autour de l'objet et l'avait emprisonné dans son bois.
+
+— On l'a mis là tout à l'heure, souffla Nino.
+
+Savio ne quittait pas l'écorce des yeux.
+
+— Pour nous, oui.
+
+Victor tendit la main vers le métal, puis la retira. Pour récupérer le sifflet, il aurait fallu entamer le bois vivant. Il n'essaya pas.
+
+Julien regarda le pont, le chêne, puis la route chargée de voitures. Il pensa au garde, au marchand, à la femme qui avait traversé la place sans s'arrêter devant le corps suspendu.
+
+Aucune de ces choses n'était un décor.
+
+De toutes les explications qu'ils avaient inventées, il n'en restait plus une seule qui tienne.
+
+— On était vraiment là-bas, dit-il.
+
+Savio acquiesça lentement.
+
+— Mais pas à la même époque.
+
+Le silence se prolongea. Nino fixa le sifflet qui dépassait du tronc. Il n'avait plus envie de plaisanter.
+
+Victor, lui, ouvrit la petite bourse contenant leurs trois nouvelles pièces. Leur poids ne semblait plus tout à fait le même dans sa main.
+
+Ils avaient traversé l'histoire, vendu un miroir à un homme qui n'avait jamais vu son reflet aussi nettement et abandonné un sifflet dans un arbre. Pour le chêne, des siècles avaient passé. Pour eux, seulement quelques heures.
+
+Julien referma délicatement la main de Victor sur la bourse.
+
+— Avant d'y retourner, il va falloir qu'on parle sérieusement.
+
+Victor ne protesta pas.
+
+Au bord de la rivière, le métal demeurait prisonnier du bois. Il était la seule chose qu'ils avaient volontairement laissée derrière eux.
+
+Et la première preuve qu'ils avaient rapportée sans l'emporter.
+
+---
+
+## Chapitre 4 — Les meilleurs vendeurs du royaume
 
 La première règle commerciale de Victor était simple : ne jamais laisser une découverte exceptionnelle entre les mains d'un homme qui voulait la faire étudier.
 
@@ -760,7 +1060,7 @@ La première règle commerciale de Victor était simple : ne jamais laisser une 
 
 — Voilà. Encore pire. Il y a « numismate » dans le mot. C'est presque une punition.
 
-Ils avaient étalé sur la table du salon d'Julien une collection d'objets d'une banalité affligeante : briquets, miroirs de poche, lampes, stylos, petits outils, accessoires divers achetés dans plusieurs magasins.
+Ils avaient étalé sur la table du salon de Julien une collection d'objets d'une banalité affligeante : briquets, miroirs de poche, lampes, stylos, petits outils, accessoires divers achetés dans plusieurs magasins.
 
 Nino les contemplait comme un enfant devant un buffet.
 
@@ -1138,7 +1438,7 @@ Victor ferma les yeux.
 
 Ils reprirent la route vers la grotte, puis vers leur époque, chargés de biens que leur monde considérait comme anciens et que l'autre tenait pour ordinaires.
 
-De retour au présent, ils étalèrent leurs gains sur la table du salon d'Julien.
+De retour au présent, ils étalèrent leurs gains sur la table du salon de Julien.
 
 La somme qu'ils avaient déjà obtenue grâce aux monnaies paraissait soudain presque modeste.
 
@@ -1172,7 +1472,7 @@ Ils n'imaginaient pas encore ce que leurs prochaines marchandises finiraient par
 
 ---
 
-## Chapitre 4 — Les merveilles du roi
+## Chapitre 5 — Les merveilles du roi
 
 La cour avait prévu une exposition de marchandises.
 
@@ -1238,7 +1538,7 @@ Savio répondit honnêtement sur les limites de l'objet. Victor transforma cette
 
 La dame qui s'était exclamée la première la voulut immédiatement.
 
-Nino fit ensuite rouler une petite bille métallique aimantée qui attira plusieurs objets. Il avait préparé une démonstration minutieuse, répétée dans le salon d'Julien.
+Nino fit ensuite rouler une petite bille métallique aimantée qui attira plusieurs objets. Il avait préparé une démonstration minutieuse, répétée dans le salon de Julien.
 
 Elle se passa parfaitement pendant six secondes.
 
@@ -1556,7 +1856,7 @@ Le conseiller rangea le rapport sous son bras.
 
 ---
 
-## Chapitre 5 — Le prix des armes
+## Chapitre 6 — Le prix des armes
 
 Le roi les reçut comme des hommes qui méritaient une récompense.
 
@@ -1702,7 +2002,7 @@ Le roi se leva.
 
 Ils attendirent d'être revenus au XXIe siècle pour se disputer.
 
-La première phrase d'Julien fut prononcée dans le couloir du souterrain.
+La première phrase de Julien fut prononcée dans le couloir du souterrain.
 
 La dernière, deux heures plus tard, dans son salon.
 
@@ -2002,7 +2302,7 @@ C'était l'homme qu'ils lui avaient amené.
 
 ---
 
-## Chapitre 6 — Une victoire qui coûte trop cher
+## Chapitre 7 — Une victoire qui coûte trop cher
 
 Au début, les soldats trouvaient les armes modernes magnifiques.
 
@@ -2374,7 +2674,7 @@ Mais il avait envie, lui aussi, de croire qu'une soirée pouvait réparer quelqu
 
 ---
 
-## Chapitre 7 — La mauvaise porte
+## Chapitre 8 — La mauvaise porte
 
 Clara avait posé trois questions avant de monter en voiture.
 
@@ -2704,7 +3004,7 @@ Il appela Julien.
 
 ***
 
-Quand Julien décrocha, Victor n'arriva pas à prononcer le nom d'Clara.
+Quand Julien décrocha, Victor n'arriva pas à prononcer le nom de Clara.
 
 Il essaya deux fois.
 
@@ -2870,7 +3170,7 @@ Ils allaient traverser l'inconnu pour retrouver quelqu'un.
 
 ---
 
-## Chapitre 8 — La porte des inconnus
+## Chapitre 9 — La porte des inconnus
 
 Julien avait préparé trois sacs, deux listes et une règle.
 
@@ -2880,7 +3180,7 @@ Nino avait proposé de l'imprimer sur des tee-shirts.
 
 Personne n'avait ri.
 
-Depuis la disparition d'Clara, l'appartement d'Julien ressemblait à un centre de secours monté par des gens qui n'avaient jamais secouru personne. Il y avait des cartes, des chargeurs, des bouteilles d'eau, de la nourriture emballée et des vêtements choisis pour ressembler le moins possible à quelque chose de précis.
+Depuis la disparition de Clara, l'appartement de Julien ressemblait à un centre de secours monté par des gens qui n'avaient jamais secouru personne. Il y avait des cartes, des chargeurs, des bouteilles d'eau, de la nourriture emballée et des vêtements choisis pour ressembler le moins possible à quelque chose de précis.
 
 — C'est quoi, cette veste ? demanda Victor.
 
@@ -2916,7 +3216,7 @@ Julien hocha la tête.
 
 Victor garda le silence.
 
-Il avait passé la nuit à regarder les messages d'Clara sur son téléphone.
+Il avait passé la nuit à regarder les messages de Clara sur son téléphone.
 
 Le dernier disait simplement : *Je suis prête. Tu m'emmènes où, cette fois ?*
 
@@ -3022,7 +3322,7 @@ Victor regarda les passants.
 
 Julien tenta de distinguer les visages féminins de la foule.
 
-Chaque silhouette qui avait la taille d'Clara lui coupait un instant le souffle.
+Chaque silhouette qui avait la taille de Clara lui coupait un instant le souffle.
 
 Il se répétait de ne pas regarder ainsi.
 
@@ -3178,7 +3478,7 @@ Et quelque part derrière les murs de Rome, une porte vers leur époque resta ou
 
 ---
 
-## Chapitre 9 — Cinq hommes pour une arène
+## Chapitre 10 — Cinq hommes pour une arène
 
 La cellule avait un défaut majeur : elle obligeait les quatre amis à se regarder.
 
@@ -3494,7 +3794,7 @@ Et cinq hommes qui avaient découvert les portails pour des raisons très diffé
 
 ---
 
-## Chapitre 10 — Le spectacle et la peur
+## Chapitre 11 — Le spectacle et la peur
 
 Le sable était plus clair que Nino l'avait imaginé.
 
@@ -3522,7 +3822,7 @@ Un arbre, par exemple.
 
 Une boulangerie.
 
-La cuisine d'Julien, avec son évier qui fuyait et son frigo toujours vide.
+La cuisine de Julien, avec son évier qui fuyait et son frigo toujours vide.
 
 Une voix porta à travers l'arène. L'homme qui présentait les jeux fit de grands gestes. Les spectateurs réagirent avec enthousiasme.
 
@@ -3748,7 +4048,7 @@ La foule rugit lorsque les deux silhouettes se rejoignirent au milieu du sable.
 
 ---
 
-## Chapitre 11 — L'ennemi qui ne l'est plus
+## Chapitre 12 — L'ennemi qui ne l'est plus
 
 Raoul arriva près de Nino avant le garde.
 
@@ -3886,7 +4186,7 @@ Ils regardèrent Raoul.
 
 Celui-ci baissa les yeux.
 
-Victor aurait pu répondre que non. Que le cinquième avait été leur ennemi. Qu'il avait volé leur marché, humilié l'un d'eux et contribué à la disparition d'Clara.
+Victor aurait pu répondre que non. Que le cinquième avait été leur ennemi. Qu'il avait volé leur marché, humilié l'un d'eux et contribué à la disparition de Clara.
 
 Il ne dit rien.
 
@@ -4068,7 +4368,7 @@ Et la dernière porte n'avait pas encore révélé ce qu'elle cachait.
 
 ---
 
-## Chapitre 12 — La deuxième piste
+## Chapitre 13 — La deuxième piste
 
 Le premier réflexe de Victor, en revenant de Rome, fut de regarder son téléphone.
 
@@ -4316,7 +4616,7 @@ Devant eux commençait une île qu'ils allaient bientôt connaître beaucoup mie
 
 ---
 
-## Chapitre 13 — Une île, une barrette
+## Chapitre 14 — Une île, une barrette
 
 À la fin de la première heure, ils avaient découvert trois choses.
 
@@ -4356,7 +4656,7 @@ Seulement de l'eau, des arbres et la sensation qu'ils étaient arrivés très lo
 
 Il toucha sa poche.
 
-La barrette d'Clara était toujours là.
+La barrette de Clara était toujours là.
 
 — Elle a quitté la grotte, dit-il. Il faut trouver par où.
 
@@ -4524,7 +4824,7 @@ Et pour cela, ils allaient devoir apprendre à vivre sur cette île.
 
 ---
 
-## Chapitre 14 — Robinson à cinq
+## Chapitre 15 — Robinson à cinq
 
 Au troisième matin, Victor annonça qu'il démissionnait.
 
@@ -4634,7 +4934,7 @@ Victor acquiesça.
 
 Il comprenait.
 
-Le camp n'était pas une prison. C'était un choix, un moyen de rester au plus près de la piste d'Clara.
+Le camp n'était pas une prison. C'était un choix, un moyen de rester au plus près de la piste de Clara.
 
 Et ce choix leur coûtait davantage qu'ils ne l'auraient cru.
 
@@ -4794,7 +5094,7 @@ Mais ce soir-là, pour la première fois depuis leur arrivée, ils eurent le sen
 
 ---
 
-## Chapitre 15 — La fille qui donnait des ordres
+## Chapitre 16 — La fille qui donnait des ordres
 
 La première chose qu'Clara comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
 
@@ -5180,7 +5480,7 @@ Et, pour la première fois depuis sa disparition, elle n'avait plus envie d'atte
 
 ---
 
-## Chapitre 16 — Ceux qui connaissent l'île
+## Chapitre 17 — Ceux qui connaissent l'île
 
 Au matin, Savio décida que la carte ressemblait suffisamment à une carte pour être utile.
 
@@ -5308,7 +5608,7 @@ Savio l'observa.
 
 — Il parle peut-être de gens venus par mer.
 
-Julien sortit la barrette d'Clara.
+Julien sortit la barrette de Clara.
 
 Il la montra avec précaution.
 
@@ -5404,11 +5704,11 @@ Un navire signifiait des voyageurs.
 
 Des voyageurs signifiaient des histoires.
 
-Et peut-être que l'une de ces histoires parlerait enfin d'Clara.
+Et peut-être que l'une de ces histoires parlerait enfin de Clara.
 
 ---
 
-## Chapitre 17 — Autour du feu
+## Chapitre 18 — Autour du feu
 
 Le navire aborda l'île en fin d'après-midi.
 
@@ -5548,13 +5848,13 @@ Le capitaine dévisagea les cinq hommes surgis de la nuit.
 
 Julien ouvrit sa main.
 
-La barrette d'Clara brillait faiblement à la lumière du feu.
+La barrette de Clara brillait faiblement à la lumière du feu.
 
 — Nous cherchons une femme. Elle s'appelle Clara. Vous venez de parler d'elle.
 
 Le capitaine fixa l'objet.
 
-Puis le visage d'Julien.
+Puis le visage de Julien.
 
 — Vous êtes de sa famille ?
 
@@ -5708,7 +6008,7 @@ Et Victor avait passé une bonne partie de sa vie à apprendre comment convaincr
 
 ---
 
-## Chapitre 18 — Dix jours et beaucoup d'or
+## Chapitre 19 — Dix jours et beaucoup d'or
 
 Victor attendit le lendemain matin pour aborder à nouveau le capitaine.
 
@@ -5878,7 +6178,7 @@ Au cours des journées suivantes, les cinq revinrent périodiquement sur l'île 
 
 Ils ne possédaient aucune règle certaine sur l'écoulement du temps entre les mondes. Savio consigna donc les observations plutôt que de prétendre avoir résolu le problème.
 
-Dans l'intervalle, Julien passa une soirée dans l'appartement d'Clara.
+Dans l'intervalle, Julien passa une soirée dans l'appartement de Clara.
 
 Il avait demandé son accord à personne.
 
@@ -5962,7 +6262,7 @@ Pour Julien, ces trois jours étaient déjà trop longs.
 
 ---
 
-## Chapitre 19 — Trois jours vers l'inconnu
+## Chapitre 20 — Trois jours vers l'inconnu
 
 Le premier jour, Victor eut le mal de mer.
 
@@ -6062,7 +6362,7 @@ Il la referma.
 
 Raoul connaissait mieux que les autres la peur d'une situation qu'on ne maîtrisait plus.
 
-Il la reconnaissait dans les épaules d'Julien, dans les calculs incessants de Savio, jusque dans la façon dont Victor parlait davantage dès que l'horizon devenait vide.
+Il la reconnaissait dans les épaules de Julien, dans les calculs incessants de Savio, jusque dans la façon dont Victor parlait davantage dès que l'horizon devenait vide.
 
 Une nuit, il trouva Nino assis près d'un cordage.
 
@@ -6196,7 +6496,7 @@ Et, sous leurs pas, la pierre sembla rendre un écho qui ne venait pas tout à f
 
 ---
 
-## Chapitre 20 — Le deuxième mécanisme
+## Chapitre 21 — Le deuxième mécanisme
 
 Savio retrouva dans cette grotte la sensation qui l'avait saisi lors de leur première découverte : l'impression d'être entré dans un endroit qui ne voulait pas être compris.
 
@@ -6354,7 +6654,7 @@ Ce qui le rassura un peu.
 
 Puis il regarda les maisons, les embarcations, les hommes et les femmes qui vivaient devant eux.
 
-À chaque époque, ils avaient cru être près d'Clara.
+À chaque époque, ils avaient cru être près de Clara.
 
 Et à chaque époque, ils avaient dû repartir.
 
@@ -6390,7 +6690,7 @@ Il regarda ses compagnons.
 
 ---
 
-## Chapitre 21 — L'étrangère et les deux pirates
+## Chapitre 22 — L'étrangère et les deux pirates
 
 Clara avait découvert qu'un capitaine pouvait être très têtu.
 
@@ -6450,7 +6750,7 @@ Puis ils avaient découvert l'Égypte.
 
 ***
 
-La première difficulté d'Clara fut la chaleur.
+La première difficulté de Clara fut la chaleur.
 
 La deuxième fut de convaincre deux pirates habitués à la mer qu'un grand fleuve n'était pas nécessairement un chemin vers leur bateau.
 
@@ -6656,7 +6956,7 @@ Et cette idée, elle n'était pas encore prête à l'affronter.
 
 ---
 
-## Chapitre 22 — La reine qu'ils cherchaient
+## Chapitre 23 — La reine qu'ils cherchaient
 
 Julien n'avait jamais autant détesté les compliments.
 
@@ -7030,7 +7330,7 @@ Elle n'avait simplement pas attendu qu'il vienne pour commencer une autre vie.
 
 ---
 
-## Chapitre 23 — Un peuple qui dit non
+## Chapitre 24 — Un peuple qui dit non
 
 Le représentant du pharaon arriva avec six soldats et un sourire.
 
@@ -7286,7 +7586,7 @@ Il restait désormais à lui donner une chance.
 
 ---
 
-## Chapitre 24 — Des signes dans les archives
+## Chapitre 25 — Des signes dans les archives
 
 Savio avait toujours aimé les bibliothèques.
 
@@ -7550,7 +7850,7 @@ Le premier, lui, allait bientôt se régler dans la douleur.
 
 ---
 
-## Chapitre 25 — L'or ne vaut rien
+## Chapitre 26 — L'or ne vaut rien
 
 Raoul vérifia trois fois que la porte vers l'Égypte était bien celle qu'ils venaient d'emprunter.
 
@@ -7864,7 +8164,7 @@ Mais, grâce à lui, ils ne revenaient pas les mains vides.
 
 ---
 
-## Chapitre 26 — Au pays où l'or commande
+## Chapitre 27 — Au pays où l'or commande
 
 La première chose que Nino vit fut un cheval.
 
@@ -8132,7 +8432,7 @@ Mais la décision de se battre appartenait à d'autres.
 
 ---
 
-## Chapitre 27 — Les premières victoires
+## Chapitre 28 — Les premières victoires
 
 Le pharaon apprit la nouvelle au milieu d'un repas.
 
@@ -8372,13 +8672,13 @@ Ou la détruire.
 
 ---
 
-## Chapitre 28 — Le pharaon perd son trône
+## Chapitre 29 — Le pharaon perd son trône
 
 Ils entendirent les tambours avant de voir l'armée.
 
 Le bruit montait de la route, régulier, obstiné, si vaste qu'il semblait venir du paysage lui-même.
 
-Dara se tenait près d'Julien.
+Dara se tenait près de Julien.
 
 — Combien ? demanda-t-elle.
 
@@ -8712,7 +9012,7 @@ Cette fois, il avait compris pourquoi elle le demandait.
 
 ---
 
-## Chapitre 29 — Un pays à eux
+## Chapitre 30 — Un pays à eux
 
 Le premier problème du nouveau pays fut de trouver une salle assez grande pour y réunir tout le monde.
 
@@ -8954,7 +9254,7 @@ Elle ne leur avait pas encore rendu la maison.
 
 ---
 
-## Chapitre 30 — Trois jours d'eau entre nous et chez nous
+## Chapitre 31 — Trois jours d'eau entre nous et chez nous
 
 Victor avait dessiné cinq flèches sur une feuille.
 
@@ -9184,7 +9484,7 @@ Et, peut-être, infiniment plus vaste.
 
 ---
 
-## Chapitre 31 — Derrière chaque porte
+## Chapitre 32 — Derrière chaque porte
 
 Savio demanda une table plus grande.
 
