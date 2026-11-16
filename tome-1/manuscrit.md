@@ -1,388 +1,204 @@
 # HISTELIA — LES MARCHANDS DU TEMPS
 
-*Tome 1 — Premier jet en cours de révision. Lecture publique.*
+*Tome 1 — Lecture publique. Chapitre 1 réécrit (V2) ; chapitres 2 à 31 : premier jet en cours de révision.*
 
 ## Chapitre 1 — Une idée qui ne vaut pas de l'or
 
-Nino avait trouvé trois capsules de bière, un clou tordu et quelque chose qui ressemblait à un morceau de grille-pain.
+Le samedi où tout commença, Julien avait prévu un départ à huit heures.
 
-Il les avait disposés sur une souche avec le soin d'un conservateur de musée.
+À huit heures vingt, il se tenait toujours près de sa voiture, un gobelet de café tiède à la main, en train de reconsidérer l'utilité des sorties entre amis.
 
-— Messieurs, annonça-t-il, notre fortune.
+Il avait choisi le point de rendez-vous pour sa proximité avec la route, vérifié deux fois l'itinéraire et rangé le matériel dans le coffre. Les lampes d'un côté, les bouteilles d'eau de l'autre. Une trousse de secours, dont personne ne s'était moqué parce que personne ne l'avait encore remarquée, occupait un compartiment à part. Son métier de responsable logistique lui avait appris qu'une matinée réussie dépendait souvent de ce qu'on avait préparé avant qu'elle commence. Ses amis avaient une théorie différente : une matinée réussie, selon eux, commençait lorsqu'il cessait de leur donner des instructions.
 
-Victor baissa les yeux vers le butin.
+Savio, au moins, était à l'heure.
 
-— On est riches. Je propose qu'on arrête immédiatement de travailler.
+Le jeune technicien avait étalé son carnet sur le capot. On y trouvait des plans, des reproductions de monnaies et des notes si petites que Julien aurait eu besoin d'une loupe pour les lire. Un détecteur de métaux reposait à ses pieds. Savio l'avait vérifié avec le sérieux d'un homme qui ne supportait pas de découvrir le fonctionnement d'un appareil au moment où il en avait besoin.
 
-— Tu travailles depuis quand ? demanda Adrien.
+Ils n'avaient pas fait connaissance au travail, mais autour d'une passion commune pour les choses qu'on pouvait démonter, examiner et comprendre. Avec Julien, Savio partageait le goût des problèmes résolus. La différence était simple : Julien voulait savoir ce qu'on faisait ensuite ; Savio voulait d'abord savoir pourquoi le problème existait.
 
-— Depuis que j'ai soulevé cette grille de barbecue antique.
+Ce matin-là, Savio avait trouvé une ancienne limite de propriété sur un plan. Elle ne figurait plus sur les cartes récentes. Il ignorait ce que cette disparition signifiait, et cette ignorance le travaillait davantage que l'espoir de découvrir une pièce d'or.
 
-— C'est une ferrure, corrigea Sami sans quitter son détecteur de métaux.
+Julien surveilla le chemin qui menait au parking. Aucun mouvement.
 
-— Encore mieux. Une ferrure de barbecue antique.
+— Tu es sûr de ton terrain ? demanda-t-il enfin.
 
-Sami poussa un soupir.
+Savio releva la tête. Il lui montra l'emplacement exact où ils étaient autorisés à prospecter, puis la ligne qu'il voulait simplement observer de plus près. Il avait tout vérifié. Il ne promettait aucun trésor : tout au plus l'occasion de comprendre une anomalie dans les vieux relevés.
 
-Il avait organisé cette sortie comme d'autres organisent un mariage : itinéraire, matériel, cartes, autorisations, bouteilles d'eau et même une petite trousse de secours. Il avait passé plusieurs semaines à se renseigner sur le terrain et son histoire. Les trois autres avaient accepté de venir à condition qu'il cesse de leur parler de parcelles cadastrales avant le petit déjeuner.
+Julien préférait encore cela à une promesse de fortune. Les promesses de fortune lui rappelaient Victor.
 
-Il avait tenu huit minutes.
+Un moteur se fit entendre. La voiture qui entra sur le parking se gara de travers, avec cette assurance particulière des conducteurs qui arrivent en retard et espèrent que leur manière de se ranger passera pour une décision volontaire.
 
-À présent, ils progressaient entre des arbres maigres, sur une pente humide, dans un morceau de campagne que personne ne semblait avoir pris la peine de nommer.
+Victor en sortit le premier. Grand par sa façon de se tenir plutôt que par une taille exceptionnelle, il affichait déjà ce sourire combatif que Julien lui connaissait depuis l'adolescence. Clara, installée côté passager, attendit qu'il finisse de consulter un message avant de descendre à son tour.
 
-— Je vous rappelle qu'on ne cherche pas nécessairement de l'or, dit Sami.
+Elle était la sœur de Julien. Ils avaient hérité de leur père la même obstination et cette manie de regarder les autres droit dans les yeux quand une décision devait être prise. Chez Clara, pourtant, cette fermeté s'accompagnait d'une attention presque instinctive à ce que les gens traversaient. Elle était infirmière, et le métier n'avait fait qu'affermir une disposition qu'elle possédait depuis longtemps : elle savait reconnaître le moment où quelqu'un avait besoin d'aide sans forcément vouloir l'admettre.
 
-Victor s'arrêta net.
+Julien vit tout de suite que quelque chose n'allait pas chez Victor.
 
-— Pardon ?
+C'était toujours pareil. Une idée, des semaines d'efforts, des calculs sur un coin de table, puis un contretemps qui renvoyait tout au départ. Victor possédait une énergie rare, mais la réussite lui échappait assez souvent pour que les autres aient commencé à accueillir ses nouveaux projets avec prudence. Il le ressentait. Il le supportait mal.
 
-— Un objet ordinaire peut raconter énormément de choses sur une époque.
+Enfants, Julien et lui s'étaient promis d'être riches un jour. Victor, dont la famille avait connu les fins de mois sans argent et les renoncements humiliants, n'avait jamais oublié la promesse. Julien, lui, avait fini par choisir la stabilité. Il n'avait pas cessé de tenir à son ami ; il avait seulement pris l'habitude de commenter ses décisions comme s'il devait l'empêcher de tomber. Victor entendait surtout qu'on ne le croyait plus capable de tenir debout.
 
-— Et un objet en or peut raconter énormément de choses à mon banquier.
+Ce matin-là, Julien se retint de demander ce qui avait encore échoué. Son silence ne trompa personne.
 
-— On pourrait trouver une monnaie, une boucle, une trace de passage...
+— C'est réglé, dit Victor en rangeant son téléphone.
 
-— Une trace de passage vers un restaurant, coupa Nino. Je commence à avoir faim.
+Il en faisait trop pour paraître convaincant.
 
-Adrien marchait un peu en avant. C'était toujours lui qui donnait l'impression de conduire le groupe, même lorsqu'il suivait un autre. Avec les années, les trois amis avaient cessé de lui demander pourquoi. Quand quelque chose tournait mal, c'était pratique d'avoir quelqu'un à blâmer.
+Clara posa brièvement une main sur son bras. Elle lui avait déjà parlé dans la voiture. Julien le comprit à la façon dont Victor s'apaisa sous ce geste, sans cesser de serrer les dents.
 
-— Sami, dit-il, on est dans les bois depuis deux heures. Tu nous promets un trésor depuis deux heures. Si tu sors encore un morceau de ferraille, Victor va le vendre à la ferraille et Nino va le manger.
+— On aura le temps d'en reparler, lui souffla-t-elle.
 
-— Je ne vous ai jamais promis un trésor.
+Julien consulta l'heure, réflexe malheureux. Clara le remarqua aussitôt.
 
-— Tu as dit « découverte exceptionnelle », protesta Victor.
+— Et toi, tu vas réussir à passer une matinée sans diriger la planète ?
 
-— Ce n'est pas la même chose.
+La question n'avait rien d'agressif. Son frère eut tout de même la mauvaise grâce de regarder sa montre une seconde fois.
 
-— Dans mon esprit, si.
+Nino fit alors son apparition, portant un sac en papier et quatre cafés, comme si les vingt minutes de retard étaient une sorte de pause qu'ils avaient eu la bonne idée d'organiser pour lui.
 
-Le détecteur émit trois notes brèves.
+Il travaillait dans un bar. Il avait gardé de ses services tardifs un art de la conversation rapide, la capacité de repérer une humeur en quelques secondes et, malheureusement, aucune habitude de retenir la première phrase qui lui traversait l'esprit.
 
-Tout le monde s'immobilisa.
+Il observa Victor, son téléphone, le regard de Clara, puis les mines fermées de chacun. Il comprit presque immédiatement qu'une affaire venait de mal tourner. Ce qui ne l'empêcha pas de déclarer :
 
-Même Nino, qui venait de découvrir qu'une brindille pouvait faire un sifflet médiocre.
+— Alors, aujourd'hui, on cherche de l'or pour de vrai ou c'est encore une réunion de créanciers ?
 
-Sami balaya lentement le sol. Le signal revint. Il se baissa près d'une pierre à moitié enfoncée dans la terre.
+Personne ne rit. Nino comprit pourquoi avant même que Victor se retourne vers lui. Il tendit silencieusement un café, façon peu convaincante de retirer une phrase déjà prononcée.
 
-— Là.
+Clara intervint sans hausser le ton. Elle rappela à Nino qu'on pouvait être malin et se taire, puis poussa le sac de viennoiseries vers Victor. Le geste était minuscule. Pourtant, la tension baissa d'un cran.
 
-Victor était déjà à genoux.
+Savio, resté près du capot, referma son carnet. Son détecteur était prêt. Ses questions, elles, ne l'étaient pas ; et c'était précisément pour cela qu'il tenait tant à partir.
 
-— Fais doucement, prévint Sami.
+Clara n'allait pas les accompagner. Elle avait une journée à elle, et les quatre amis avaient suffisamment parlé de leur excursion pour qu'elle sache qu'y participer aurait signifié entendre débattre pendant des heures de la différence entre un bouton rouillé et une monnaie médiévale.
 
-— Tu m'as déjà vu ne pas faire doucement ?
+Elle embrassa Julien, souhaita bonne chance à Savio, puis attira Victor contre elle. Ce dernier, pendant un instant, cessa de jouer au type auquel rien n'arrivait.
 
-Adrien et Nino échangèrent un regard.
+Quand elle remonta dans sa voiture, Julien eut l'impression désagréable qu'elle avait réussi en dix minutes ce que lui n'obtenait plus de Victor depuis des mois : une conversation sans confrontation.
 
-— Oui, répondirent-ils ensemble.
+Il referma le coffre. Ils partirent enfin.
 
-Ils dégagèrent la terre avec précaution. Sous les racines et les feuilles humides apparut un anneau de fer noirci, prisonnier d'un bloc de pierre.
+***
 
-Victor tira dessus.
+Le bois était humide. Les pluies de la veille avaient collé les feuilles au sol et fait ressortir l'odeur de la terre noire. Les quatre hommes progressaient à travers les troncs espacés, sur une pente que Julien trouvait plus raide que sur la carte.
 
-Rien.
+Savio menait la prospection. Son détecteur balayait lentement le sol, décrivant des arcs réguliers. Il avançait sans se presser. Chaque signal pouvait être un déchet moderne, une vieille ferrure ou quelque chose de plus intéressant. La plupart du temps, c'était un déchet. Cela ne le décourageait pas : identifier ce qu'on avait trouvé était déjà une manière d'éliminer une hypothèse.
 
-Il recommença avec les deux mains.
+Victor n'avait pas la même patience. Il s'intéressait aux objets anciens surtout depuis qu'il avait découvert combien certains se revendaient. Cette différence n'avait rien d'un secret entre eux. Savio recherchait un fragment d'histoire ; Victor espérait enfin une trouvaille qui ne se solderait pas par une déception.
 
-— Ça doit être un coffre.
+Julien observait les deux hommes. Il aurait voulu que cette matinée se déroule simplement, sans incident et sans discussion sur les derniers revers de Victor. À intervalles réguliers, il jetait un coup d'œil au chemin. Il n'avait pas besoin de conduire pour vouloir tenir la direction.
 
-— Ou un anneau de fixation, répondit Sami.
+Nino, lui, avait adopté une méthode personnelle. Chaque objet sans valeur devenait une découverte d'une importance capitale. Il avait déjà mis de côté des capsules, un clou tordu et une ferrure qui ressemblait à un morceau de grille-pain. Il les transportait comme les pièces d'une collection dont personne ne comprenait encore la valeur artistique.
 
-— Tu es incapable d'être heureux cinq minutes ?
+Quand il les exposa sur une souche, il laissa aux autres le temps de contempler leur fortune.
 
-Adrien s'accroupit à son tour. En retirant les feuilles autour du bloc, il aperçut une ligne droite qui ne devait rien à la nature. Une jointure. Puis une autre.
+— Je crois qu'on peut annoncer notre retraite, déclara-t-il.
 
-— Sami.
+Victor eut un sourire. Le premier vrai sourire de la matinée. Julien en fut presque soulagé.
 
-Son ami se pencha.
+Le détecteur de Savio émit alors un signal plus net.
 
-La pierre n'était pas isolée. Elle faisait partie d'un assemblage plus vaste, presque entièrement mangé par la mousse.
+La plaisanterie s'arrêta d'elle-même. Savio repassa l'appareil sur une bande de terre, puis recommença en changeant d'angle. Le son revint, bref et précis. Il demanda qu'on lui laisse un peu d'espace et s'agenouilla près d'une pierre couverte de mousse.
 
-— Il y a quelque chose dessous, murmura Sami.
+Victor était déjà à côté de lui.
 
-Nino recula d'un pas.
+Sous la terre humide apparut un anneau de fer noirci, enchâssé dans un bloc de pierre. Victor tenta de le soulever. L'anneau résista. Il recommença, cette fois avec les deux mains, le visage fermé de celui qui refuse qu'un objet gagne une discussion.
 
-— Une cave ?
+Savio, lui, regardait moins l'anneau que ce qui l'entourait. La pierre semblait taillée. Plus loin, sous les racines, une ligne droite courait sur quelques dizaines de centimètres.
 
-Victor sourit.
+Julien s'accroupit. Il dégagea prudemment les feuilles qui masquaient l'autre bord du bloc. Une deuxième jointure apparut, puis une troisième. Quelqu'un avait assemblé ces pierres. Pas récemment.
 
-— Une cave remplie d'or ?
+Ils travaillèrent ensemble, sans grandes explications. Quand la mousse céda, ils comprirent que l'anneau appartenait à une construction presque entièrement enterrée. À sa droite, un pan de maçonnerie s'était effondré et laissait entrevoir une ouverture sombre.
 
-— Une cave remplie de rats, dit Nino. Ça aussi, c'est possible.
+Savio posa la main sur la paroi. Son premier réflexe fut d'observer les joints, la taille des pierres, leur disposition. Il n'avait plus l'air d'un homme venu chercher de la monnaie. Julien reconnaissait ce regard : c'était celui que prenait son ami lorsqu'une réponse possible entraînait dix nouvelles questions.
 
-Ils mirent un moment à comprendre la forme de ce qu'ils avaient sous les yeux. Les blocs dessinaient l'entrée effondrée d'une petite construction enterrée. À côté de l'anneau, un pan de maçonnerie s'était affaissé, ménageant une ouverture assez large pour s'y glisser.
+Victor contempla le passage avec une satisfaction croissante. L'idée d'une cachette, d'un coffre ou d'un objet précieux avait déjà remplacé son humeur du matin.
 
-Sami posa la main sur la pierre.
+Nino observa l'ouverture, puis la noirceur derrière elle.
 
-— Ce n'est pas récent.
+— Si c'est la cave de quelqu'un, j'espère qu'il est parti depuis longtemps.
 
-— Formidable, dit Victor. De l'or ancien, alors.
+Personne ne lui répondit. Cette fois, la remarque n'appelait pas de plaisanterie.
 
-— Vous pouvez arrêter avec l'or ? lança Adrien.
+Julien sortit ses lampes. Il hésita. Entrer dans une construction inconnue était à peu près le contraire de tout ce qu'il avait prévu. Pourtant, il savait qu'ils ne repartiraient pas sans regarder. Il insista sur un point : personne ne descendrait seul, et ils reviendraient au premier signe de danger.
 
-— Tu n'as pas encore vu combien il y en a.
+Les quatre hommes s'engagèrent dans l'ouverture.
 
-Sami alluma sa lampe. Le faisceau révéla des marches irrégulières, puis l'obscurité.
+***
 
-Il aurait préféré appeler quelqu'un. Prévenir un spécialiste. Attendre d'avoir une idée plus précise du lieu. Il le savait et ils le savaient tous.
+Les marches étaient irrégulières, le passage bas. L'air sentait la pierre humide et une poussière confinée depuis si longtemps qu'elle semblait étrangère au monde extérieur.
 
-Mais l'ouverture était là.
+Savio avançait lentement. Il relevait les différences entre les blocs, les reprises visibles dans les murs, les marques d'outils. Par endroits, les pierres paraissaient anciennes ; ailleurs, elles semblaient avoir été ajustées bien plus tard.
 
-Victor avait déjà passé la tête à l'intérieur.
+Julien comptait silencieusement les bifurcations.
 
-— Ça sent le vieux château.
+Derrière eux, Victor avait cessé de parler de trésor. La perspective de découvrir quelque chose de réellement précieux n'avait pas disparu, mais le lieu imposait une réserve nouvelle.
 
-— Ça sent la terre mouillée, répondit Nino.
+Nino fermait la marche. Il n'était pas peureux par principe ; il avait simplement une confiance limitée dans les constructions souterraines découvertes un samedi matin par quatre amateurs. Lorsqu'il braqua sa lampe sur une alcôve, sa propre ombre grandit brutalement sur la paroi. Il sursauta, s'en rendit compte et décida, pour une fois, de ne rien dire.
 
-— Tu manques d'imagination.
+Après un couloir étroit, le sol devint plus régulier. Savio ralentit. Les murs, jusque-là faits de blocs distincts, semblaient désormais d'un seul tenant. Plus de joints apparents, plus de réparations, aucune trace évidente d'assemblage.
 
-Adrien saisit la sangle du sac de Victor.
+C'était impossible à concilier avec ce qu'il venait d'observer.
 
-— Personne ne descend tout seul.
+Il s'agenouilla, toucha la pierre, suivit une ligne du bout du doigt. Il aurait voulu prendre des mesures, revenir avec du matériel, confronter ce lieu à une documentation. Son besoin de comprendre avait rarement été aussi fort. Il ne s'agissait plus de satisfaire une curiosité : cette architecture mettait en échec toutes ses explications habituelles.
 
-— C'est ce que je disais.
+Au bout d'un passage étroit, une salle circulaire s'ouvrit devant eux.
 
-— Tu n'as rien dit.
+Ils y entrèrent un par un.
 
-— Je le pensais très fort.
+La voûte se perdait dans l'ombre. Les murs portaient des rangées de signes gravés : cercles interrompus, traits enchevêtrés, caractères répétés suivant une régularité qui évoquait un langage ou une formule. L'endroit semblait trop vaste pour tenir sous le petit bois qu'ils venaient de traverser.
 
-Ils vérifièrent leurs lampes, laissèrent un repère discret près de l'entrée et descendirent ensemble.
+Au centre, un socle bas faisait face à une arche de pierre. Derrière l'arche, il n'y avait qu'un mur.
 
-Les premières marches conduisaient à un couloir bas où leurs épaules frottaient presque les parois. L'air y était plus froid qu'à la surface. Une odeur de pierre humide et de poussière longtemps enfermée flottait autour d'eux.
+Savio chercha aussitôt une logique aux inscriptions. Il compara les motifs du socle à ceux de l'arche et découvrit qu'un symbole revenait aux deux endroits. Il le reproduisit dans son carnet, consciencieusement, même s'il était incapable de dire ce qu'il signifiait.
 
-— Quelqu'un voit des araignées ? demanda Nino.
+Julien examinait la salle, ses issues, les risques d'effondrement. Il n'aimait ni l'impossibilité de comprendre le lieu ni celle de prévoir ce qui allait arriver. Victor, attiré par le socle, tentait de déterminer si certains éléments pouvaient être déplacés. Nino avait fait quelques pas de côté pour dégager le passage.
 
-— Non, répondit Adrien.
+Le silence dura si longtemps que le frottement d'une bretelle contre la pierre sembla soudain très bruyant.
 
-— Tant mieux.
+Nino voulut retirer son sac de l'épaule. Une sangle accrocha une saillie du socle ; en se tournant pour la libérer, il posa machinalement la main sur une petite plaque ronde, presque invisible sous la poussière.
 
-— Tu veux que je te dise si j'en vois ?
+Un déclic retentit.
 
-— Surtout pas.
+Il retira aussitôt la main.
 
-Sami avançait lentement, fasciné par les traces dans la roche.
+Un deuxième bruit monta de sous leurs pieds. Cette fois, la vibration se propagea jusque dans les parois.
 
-— Regardez ces joints. Et là, les marques de taille. Ce couloir a été repris à plusieurs époques.
+— J'ai touché quelque chose, dit Nino.
 
-— Plusieurs ? demanda Victor.
+La phrase avait perdu toute son insouciance.
 
-— Je dirais que c'est possible.
+Julien lui fit signe de reculer. Les quatre hommes se regroupèrent à distance du socle.
 
-— Donc plusieurs propriétaires. Plusieurs coffres.
+Une lumière pâle apparut autour de l'arche. Elle suivait certains caractères et en ignorait d'autres. La poussière se mit à tourner lentement dans l'air. Puis l'espace vide à l'intérieur du cadre trembla, comme une surface d'eau troublée par un souffle.
 
-— Tu vas me rendre fou.
+Lorsque le mouvement s'apaisa, le mur avait disparu.
 
-Ils arrivèrent à une bifurcation. L'un des boyaux s'arrêtait presque aussitôt derrière un éboulis. L'autre s'enfonçait dans une obscurité plus dense.
+À sa place se trouvait un autre couloir.
 
-Nino braqua sa lampe dans la mauvaise direction et sursauta.
+Savio resta immobile. Sa main tenait encore le carnet ouvert. Il aurait dû chercher une explication, reconnaître un dispositif ou formuler au moins une hypothèse. Rien, dans ses connaissances, ne permettait d'expliquer ce qu'il voyait.
 
-— Quoi ? demanda Adrien.
+Victor approcha la lampe de son téléphone. Son faisceau traversa l'arche et éclaira une paroi qui n'existait pas une minute plus tôt. Il essaya de reprendre son sourire, sans y parvenir.
 
-— Mon ombre.
+Julien sentit le froid émaner du passage avant même d'en effleurer le bord. Son premier réflexe fut de les faire ressortir. Il avait promis une promenade, pas une expérience dont personne ne pouvait mesurer le danger.
 
-Un silence passa.
+Nino regardait l'ouverture sans plaisanter. Pour la première fois de la matinée, il semblait manquer de mots.
 
-— Bon, dit Victor, est-ce qu'on peut le laisser là ?
+Ils auraient pu partir. Ils savaient où se trouvait l'escalier et leurs lampes fonctionnaient toujours. Aucun trésor ne justifiait de franchir une porte qui venait de se former au milieu d'un mur.
 
-Ils continuèrent.
+Mais derrière cette arche se trouvait une chose que personne au monde, peut-être, n'avait jamais vue.
 
-Le couloir s'élargit peu à peu. Une première alcôve contenait des débris de pierre et une poterie brisée, que Sami examina sans la toucher. Plus loin, le sol devint étonnamment régulier.
+Savio finit par refermer son carnet. Il ne demanda pas aux autres de le suivre ; il observa simplement qu'ils ne sauraient jamais ce qu'ils avaient découvert s'ils faisaient demi-tour sans regarder.
 
-Sami ralentit.
+Julien reconnut chez lui ce besoin irrépressible de comprendre. Il reconnut aussi, chez Victor, l'idée qu'une chance pareille ne se présenterait pas deux fois. Il connaissait assez Nino pour savoir qu'il ne dirait rien tant que quelqu'un d'autre n'aurait pas proposé une décision.
 
-Il venait de remarquer quelque chose qui n'avait aucun sens.
+Alors Julien en prit une.
 
-La maçonnerie avait changé. Les murs semblaient d'un seul tenant, sans les raccords, les différences de taille ni les réparations qu'il observait depuis l'entrée.
+— Deux mètres, tous ensemble. Au moindre problème, on revient.
 
-— Attendez.
+Il avait prononcé ces mots comme on établit une règle qu'il suffirait de respecter pour rendre l'inconnu supportable.
 
-Adrien se retourna.
+Savio se plaça près de l'arche. Victor alluma sa lampe. Nino resserra la sangle de son sac, cette fois en vérifiant ce qu'elle pouvait accrocher.
 
-— Quoi ?
-
-— Je ne comprends pas comment cette partie a été construite.
-
-— On aurait dû prendre un maçon, dit Nino.
-
-— Ce n'est pas ce que je veux dire.
-
-Un nouveau passage apparut derrière un angle, étroit puis soudain très haut. Au bout se trouvait une salle circulaire.
-
-Ils y entrèrent l'un après l'autre.
-
-Aucun d'eux ne parla pendant plusieurs secondes.
-
-La pièce paraissait trop grande pour se trouver sous un simple sous-bois. Sa voûte disparaissait dans l'ombre. Sur les murs couraient des rangées de signes gravés : lignes, cercles incomplets, caractères inconnus, répétés selon une symétrie qui suggérait un langage ou un calcul.
-
-Sami approcha sa lampe des inscriptions.
-
-— Ce n'est pas possible...
-
-— Qu'est-ce que c'est ? demanda Adrien.
-
-— Je n'en sais rien.
-
-Victor siffla.
-
-— Pour une fois, ça me rassure de t'entendre dire ça.
-
-Au centre de la salle se dressait un socle bas, relié à une arche de pierre accolée au mur. L'arche était vide. Sa forme évoquait une porte dont quelqu'un aurait oublié de construire le battant.
-
-Nino fit le tour du socle.
-
-— Il est où, le trésor ?
-
-— Là, dit Sami en désignant les murs.
-
-— Tu me fatigues.
-
-— Ces inscriptions pourraient être incroyablement importantes.
-
-— Ça se revend ?
-
-Sami ne répondit pas. Il avait découvert, sous une couche de poussière, une répétition de signes semblable à celle de l'arche. Les deux ensembles semblaient dialoguer sans qu'il parvienne à en comprendre le principe.
-
-Un motif se distinguait pourtant des autres, au sommet de l'arche : quelques traits disposés comme un emblème. Le même revenait près du socle. Sami le reproduisit dans son carnet. Il ignorait ce qu'il désignait, mais il ne voulait pas l'oublier.
-
-Adrien examinait l'ouverture.
-
-— On dirait qu'elle devrait mener quelque part.
-
-— Au mur, observa Victor.
-
-Il avait raison : derrière l'arche, il n'y avait que de la pierre nue.
-
-Nino voulut poser son sac sur le socle. La sangle s'accrocha à une petite saillie. Il tira, trébucha, chercha un appui et enfonça sa paume contre un disque à moitié dissimulé dans la poussière.
-
-Un déclic sec retentit.
-
-— J'ai rien fait.
-
-Un deuxième bruit répondit au premier. Plus profond. Il semblait venir de sous leurs pieds.
-
-— Nino, dit Adrien lentement, enlève ta main.
-
-— C'est fait.
-
-— Recule.
-
-Ils reculèrent tous les quatre.
-
-Les inscriptions de l'arche s'illuminèrent d'une clarté pâle. Pas toutes. Seulement une succession de caractères autour de l'ouverture. Puis un souffle traversa la salle, faisant tournoyer la poussière en fines spirales.
-
-Le vide au milieu de l'arche se troubla.
-
-Sami sentit son cœur accélérer.
-
-La pierre nue qu'ils avaient observée derrière le cadre avait disparu.
-
-À sa place se dessinait un couloir obscur.
-
-Victor leva les yeux vers le plafond.
-
-— Il y a un projecteur quelque part.
-
-Personne ne répondit.
-
-Le couloir visible au-delà de l'arche semblait réel. Une paroi humide, un sol irrégulier et, très loin, une pénombre grisâtre.
-
-Nino ramassa son sac sans quitter l'ouverture des yeux.
-
-— C'est une blague ?
-
-Adrien s'approcha à un mètre du cadre. Il tendit la main, s'arrêta avant de toucher ce qui ressemblait à un voile d'air.
-
-Un froid étrange lui frôla les doigts.
-
-Il recula aussitôt.
-
-— On ressort.
-
-— Attends, dit Sami.
-
-— Non.
-
-— Regarde derrière. On voyait le mur il y a trente secondes.
-
-— Justement.
-
-Victor alluma la lampe de son téléphone et dirigea son faisceau à travers l'arche. La lumière traversa l'ouverture et se posa plus loin sur la paroi du couloir.
-
-Le téléphone ne détectait rien d'extraordinaire.
-
-— On pourrait juste regarder de l'autre côté, proposa-t-il.
-
-— Tu viens de m'entendre ? demanda Adrien.
-
-— Je ne dis pas qu'on doit y aller loin. Deux mètres.
-
-— Ah. Alors c'est parfaitement raisonnable.
-
-Nino se rapprocha de Sami.
-
-— Dis quelque chose d'intelligent.
-
-Sami contemplait le cadre.
-
-— Je ne connais aucun phénomène capable de faire ça.
-
-— Ce n'est pas intelligent. C'est inquiétant.
-
-Victor passa sa lampe dans l'ouverture, puis la retira.
-
-Elle fonctionnait toujours.
-
-— Vous voyez ? Rien.
-
-— Tu viens de prouver que ta lampe survit à une expérience dont on ne sait rien, dit Adrien. Bravo.
-
-Un silence s'installa.
-
-Ils avaient tous peur. Chacun le montrait à sa manière : Adrien en distribuant des ordres, Victor en parlant davantage, Nino en serrant son sac contre lui. Sami, lui, cherchait une explication et se heurtait, pour la première fois depuis longtemps, à une absence totale de réponse.
-
-— On n'est pas obligés, dit-il enfin.
-
-Adrien le regarda, surpris.
-
-Sami désigna le passage.
-
-— Mais si on part maintenant, aucun de nous ne saura jamais ce que c'est.
-
-Victor hocha lentement la tête.
-
-— Voilà. C'est exactement ce que je voulais dire.
-
-— Non. Toi, tu cherchais de l'or.
-
-— Les deux ne sont pas incompatibles.
-
-Adrien ferma les yeux une seconde.
-
-Il connaissait ses amis depuis assez longtemps pour savoir que cette discussion ne s'arrêterait pas devant la porte. Elle les suivrait jusqu'à la sortie, dans la voiture, puis pendant des années.
-
-Il rouvrit les yeux.
-
-— Deux mètres. Tous ensemble. Et au moindre problème, on revient.
-
-Nino leva un doigt.
-
-— On est d'accord que « problème », ça inclut les monstres ?
-
-— Oui.
-
-— Les serpents ?
-
-— Oui.
-
-— Les beaux-parents ?
-
-— Nino.
-
-Victor alluma de nouveau sa lampe.
-
-Sami se plaça près de l'arche.
-
-Et, pour la première fois, les quatre amis décidèrent d'entrer dans un passage qui n'aurait jamais dû exister.
+Et les quatre amis s'avancèrent vers un passage qui n'aurait jamais dû exister.
 
 ---
 
