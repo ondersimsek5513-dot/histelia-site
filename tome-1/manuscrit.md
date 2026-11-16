@@ -3839,317 +3839,199 @@ Derrière les murs de Rome, une porte vers leur époque resta ouverte, parfaitem
 
 ## Chapitre 10 — Cinq hommes pour une arène
 
-La cellule avait un défaut majeur : elle obligeait les quatre amis à se regarder.
+La cellule avait un défaut majeur : elle obligeait les cinq hommes à se regarder.
 
-Depuis une heure, Victor expliquait pourquoi ce qui leur arrivait n'était pas vraiment sa faute.
+Julien fixait Raoul.
 
-Depuis une heure, Julien lui répondait que personne ne lui avait demandé de faire une conférence.
+— Tu nous as suivis depuis la salle des portails.
 
-Savio, assis contre le mur, essayait d'estimer la distance jusqu'au portail. Nino, à côté de lui, massait son épaule endolorie.
+— Oui.
 
-— Ça aurait pu être pire, déclara soudain Nino.
+— Et tu ne t'es pas dit qu'on avait déjà assez de problèmes ?
 
-Julien le fixa.
+— J'ai vu Nino se faire frapper. Je suis intervenu.
 
-— Je t'écoute.
+Victor le regarda, incrédule.
 
-— On pourrait être enfermés dans une prison médiévale.
+— Tu as surtout assommé un homme que tout Rome semble connaître.
 
-Personne ne répondit.
+Raoul baissa les yeux. Il n'avait pas oublié Clara ni la bagarre qui avait provoqué sa disparition. Il avait voulu faire quelque chose d'utile, cette fois. Le résultat le faisait taire.
 
-— Non, dit-il finalement. C'était une mauvaise tentative.
+— Est-ce qu'on peut demander un avocat ? tenta Nino.
 
-Victor se leva.
-
-— On ne va quand même pas rester ici pour avoir voulu aider un vieux monsieur !
-
-— On a bousculé des hommes armés, répondit Savio.
-
-— C'est eux qui nous ont frappés !
-
-— Pour eux, ça ne change peut-être pas grand-chose.
-
-La porte s'ouvrit.
-
-Un soldat entra, suivi d'un homme aux habits soignés, tenant une tablette. Ce dernier posa plusieurs questions : leur origine, leur statut, l'homme qui pouvait répondre pour eux, les personnes susceptibles de payer des réparations.
-
-Ils donnèrent des réponses qui n'avaient aucune valeur ici.
-
-Ils n'étaient citoyens de rien que le fonctionnaire connaissait.
-
-Ils ne disposaient d'aucun protecteur local.
-
-Ils ne pouvaient même pas indiquer une famille à prévenir.
-
-L'homme nota quelques mots et s'apprêta à sortir.
-
-Savio se leva.
-
-— Nous pouvons payer.
-
-Le fonctionnaire le regarda.
-
-— Avec quoi ?
-
-Victor pensa immédiatement à l'or qu'ils n'avaient plus : leurs sacs avaient été fouillés et presque tout leur équipement retiré.
-
-Il sourit comme un homme qui venait de découvrir le prix des assurances.
-
-— Nous pouvons faire venir de l'argent.
-
-— D'où ?
-
-Victor indiqua vaguement le nord.
-
-L'homme referma sa tablette.
-
-— Vous parlerez à celui qui décide.
-
-La porte claqua.
+— Pas un que nous puissions appeler, répondit Savio.
 
 ***
 
-L'homme qui décida ne les reçut jamais.
+Un fonctionnaire entra avec deux gardes et une tablette. Il demanda les noms des prisonniers, leur cité d'origine, leur statut, le nom de leur famille et celui du citoyen capable de répondre de leurs actes.
 
-À sa place, un intendant expliqua qu'une altercation publique avait troublé une activité commerciale, qu'un garde avait été blessé et que les étrangers n'avaient aucun soutien pour répondre de leurs actes.
+Les cinq donnèrent des noms. Pour le reste, leurs réponses ne lui convenaient pas.
 
-Ils seraient présentés dans une épreuve publique.
+Lucius Valerius, le notable frappé par Raoul, était vivant, mais sérieusement blessé. Ses proches réclamaient une réparation et une punition exemplaire.
 
-Au début, les quatre ne comprirent pas.
+— Nous pouvons payer, dit Victor.
 
-Puis Victor demanda :
+Le fonctionnaire regarda leurs sacs, alignés hors de la cellule.
 
-— Une épreuve de quoi ?
+— Avec quoi ? Vos biens ont été saisis pour examen.
 
-L'intendant se contenta de dire :
+Les gardes avaient confisqué les téléphones, les lampes, les talkies-walkies et presque tout le matériel. Personne ne comprenait la provenance de ces appareils.
 
-— On vous donnera l'occasion de montrer votre valeur.
+— Nous sommes marchands, insista Victor.
 
-Il repartit.
+— Vous le dites.
 
-Nino attendit que ses pas se soient éloignés.
+Le fonctionnaire sortit sans autre explication.
 
-— Ce serait le moment où tu nous expliques qu'ils organisent des Jeux olympiques ?
+Nino contempla la porte.
 
-Savio leva lentement les yeux.
+— J'aurais vraiment dû demander deux avocats.
 
-— Non.
+***
 
-— Un tournoi ?
+Les journées passaient.
 
-— Je crains que non.
+Ils n'avaient pas été condamnés à combattre. Ils attendaient la décision du magistrat, sans protecteur local, dans une affaire où la victime était un homme influent.
 
-Julien se tourna vers lui.
+Raoul avait conservé discrètement le petit aérosol de défense emporté dans les bagages. Les gardes ne l'avaient pas identifié comme un objet utile. Il savait pourtant qu'aucune petite bombe ne les sortirait de prison.
 
-— Dis-le.
+Un matin, des cris traversèrent le couloir.
 
-Savio regarda la porte.
+— Vous pensez que je vais annuler devant tout le monde ? tempêtait un homme. Les invités sont installés !
 
-— Une arène.
+Un combattant prévu pour la première partie des jeux venait de se blesser gravement. Impossible de le faire entrer dans l'arène. L'organisateur avait besoin d'une solution immédiate.
 
-Victor se laissa retomber sur le banc.
+Il aperçut les prisonniers derrière la grille.
+
+— Ceux-là ? demanda-t-il.
+
+— Cinq étrangers arrêtés après une bagarre, répondit l'administrateur. L'un d'eux a frappé Lucius Valerius. Aucun n'a de protecteur.
+
+L'organisateur considéra les cinq hommes.
+
+— Vous savez vous battre ?
+
+Victor se redressa.
+
+— Cela dépend de ce que vous entendez par...
+
+— Avec des armes.
 
 — Ah.
 
-Un instant passa.
+Nino s'efforça d'afficher un visage courageux. Savio regarda le sol. Julien serra les poings.
 
-— Je préférais le tournoi.
+L'organisateur soupira.
 
-***
+— Vous avez tous peur.
 
-La nuit suivante, on les conduisit dans une autre partie du bâtiment.
+— Moi, j'ai déjà combattu, répondit Raoul.
 
-Le couloir sentait la paille mouillée, la sueur et le métal. Au-delà d'une grille, plusieurs hommes attendaient, les yeux fixés sur les nouveaux arrivants.
-
-L'un d'eux leva la tête.
-
-Victor s'arrêta.
+— Dans une arène ?
 
 — Non.
 
-Julien suivit son regard.
+L'homme leva les yeux au ciel. Puis son regard se tourna vers un garde qui lui rappela que les décors d'une chasse africaine étaient prêts et qu'un vieux lion attendait dans les enclos.
 
-L'homme assis au fond de la cellule avait une arcade sourcilière enflée et un air extrêmement mécontent.
+— Une chasse improvisée, murmura l'organisateur. Oui. Huit chasseurs et une bête.
 
-C'était Raoul.
+Nino cligna des yeux.
 
-— Vous ? demanda Victor.
+— Huit chasseurs ? Nous sommes cinq.
 
-— Vous avez l'air surpris.
-
-— Qu'est-ce que tu fais ici ?
-
-— Je passe des vacances.
-
-Nino regarda le plafond.
-
-— Il faut arrêter de lui donner nos adresses de vacances.
-
-Raoul se leva avec difficulté.
-
-Il avait quitté la salle des portails de son côté, intéressé par ce qu'il pouvait découvrir dans les autres époques. Après son passage vers Rome, il avait voulu utiliser ses talents de négociateur sans comprendre les règles de la ville. La conversation s'était mal terminée avec des gardes.
-
-— J'ai été arrêté, résuma-t-il.
-
-— Ça, on avait deviné, dit Julien.
-
-L'homme regarda leurs vêtements.
-
-— Et vous ?
-
-— On cherchait Clara, répondit Victor.
-
-L'expression de Raoul changea, à peine.
-
-— Vous ne l'avez pas trouvée.
-
-Ce n'était pas une question.
-
-Julien fit un pas vers lui.
-
-— On n'est pas ici pour recommencer notre bagarre.
-
-— Tu crois que j'en ai envie ?
-
-Il désigna les portes.
-
-— Ici, vos querelles ne valent rien.
-
-Victor ouvrit la bouche, puis renonça.
+— Je vais vous trouver des collègues.
 
 ***
 
-Le lendemain, on leur expliqua qu'ils passeraient ensemble devant le public.
+Les trois autres prisonniers s'appelaient Brennos, Dama et Lucan.
 
-Cinq hommes.
+Brennos portait des cicatrices anciennes et la carrure d'un homme habitué aux combats. Dama, maigre et calme, observait les armes comme quelqu'un qui avait déjà eu à s'en servir. Aucun des deux ne prétendait connaître la chasse au lion. Lucan, plus jeune, paraissait aussi terrifié que Nino.
 
-Aucun n'était préparé à l'exercice qu'on leur imposait. Le responsable voulait du spectacle, pas des professionnels : des étrangers ignorants des usages, assez maladroits pour divertir, assez vulnérables pour créer du suspense.
+L'organisateur leur expliqua sa nouvelle attraction : une chasse africaine représentée devant le public, avec un lion vieillissant et toutes les armes et protections disponibles pour le spectacle.
 
-Savio essaya d'obtenir des précisions sur leurs adversaires.
+— Et qu'est-ce qu'on y gagne ? demanda Brennos.
 
-Un garde lui répondit par un haussement d'épaules.
+— Votre liberté.
 
-Julien demanda s'ils pouvaient refuser.
+Le silence tomba.
 
-On lui montra la porte fermée.
+— Tous les huit ? demanda Julien.
 
-Nino regardait leurs affaires confisquées, disposées sur une table plus loin.
+— Tous ceux qui sortiront vivants.
 
-On leur avait retiré la plupart des objets modernes sans chercher à comprendre leur valeur. Certains avaient été emportés par des responsables curieux. D'autres seraient sans doute perdus.
+Julien exigea que cette promesse soit autre chose qu'une parole. L'administrateur confirma qu'un magistrat avait accepté un arrangement exceptionnel : leur détention serait convertie en participation aux jeux, avec remise de liberté pour chacun des survivants. La décision serait consignée.
 
-Ils conservaient cependant quelques effets personnels, considérés comme insignifiants par les gardes : un petit coupe-ongles, une lampe compacte et une bombe au poivre dont personne n'avait compris l'usage.
+— Et si l'un de nous est blessé ? demanda Lucan.
 
-Savio les examina, soucieux.
+— S'il respire encore après le spectacle, il sort aussi.
 
-— Ça ne nous sauvera pas.
+Le jeune homme pâlit.
 
-— Tu vois, dit Nino, même toi tu deviens optimiste.
+— Vous nous donnez vraiment le choix ? demanda Savio.
 
-Raoul s'approcha.
+L'organisateur désigna la prison, puis les gardes.
 
-— Écoutez-moi. On ne connaît pas leurs règles, et eux ne connaissent pas nos objets. Mais il y a une chose que je sais : si vous commencez à courir chacun de votre côté, vous êtes morts.
+— Vous pouvez toujours retourner attendre que l'affaire du notable soit jugée.
 
-Julien le fixa.
-
-— Tu veux nous diriger ?
-
-— Non. Je veux que tu cesses de discuter avec moi au lieu de regarder devant.
-
-Ce fut Victor qui intervint.
-
-— Il n'a pas tort.
-
-Julien se retourna vers lui, incrédule.
-
-— Tu viens vraiment de dire ça ?
-
-— La situation est suffisamment grave pour que je fasse un effort.
-
-Savio observa les hommes autour d'eux.
-
-Raoul semblait capable de garder son sang-froid. Julien savait rassembler le groupe. Lui pouvait analyser ce qu'ils voyaient. Victor comprenait les échanges de regards et les intentions des gens. Nino avait parfois l'idée à laquelle personne ne pensait.
-
-Cela ne ressemblait pas à une armée.
-
-C'était pourtant tout ce qu'ils avaient.
+Ce n'était pas un vrai choix.
 
 ***
 
-La veille de leur présentation, on leur permit de recevoir un peu d'eau et du pain.
+On leur ouvrit l'arsenal.
 
-Nino divisa consciencieusement une miche en cinq portions, avant de s'apercevoir que l'une était beaucoup plus grosse que les autres.
+Raoul, Brennos et Dama se concertèrent. Aucun n'avait combattu de lion, mais ils connaissaient suffisamment le danger pour ne pas se raconter d'histoires. Ils choisiraient des lances et tâcheraient de ne pas se disperser.
 
-Victor tendit la main.
+— Surtout, personne ne joue au héros, dit Dama.
 
-— Celle-là est pour moi.
+— Nous n'avons pas de héros, répondit Nino. Nous avons Victor.
 
-— Pourquoi ?
+Victor lui lança un regard noir.
 
-— Parce que j'ai faim.
+On confia à Victor, Savio et Nino trois filets de rétiaire, ces grands réseaux de cordes nouées utilisés par certains gladiateurs. Ils permettraient peut-être de gêner le fauve, sans offrir la moindre garantie.
 
-— Argument universel, répondit Nino.
+Nino déplia son filet.
 
-Il donna finalement la plus grosse part à Raoul.
+Il s'y prit immédiatement le pied.
 
-L'ancien militaire la regarda.
+— Voilà, annonça-t-il. J'ai capturé quelque chose.
 
-— Pourquoi moi ?
+— Toi-même ? demanda Savio.
 
-— Parce que tu vas probablement nous empêcher de mourir demain.
+— C'est déjà une victoire.
 
-Raoul ne prit pas le pain tout de suite.
+Julien et Lucan reçurent de grandes protections, des épées et plusieurs javelots placés près d'eux pour l'épreuve.
 
-— Tu crois que je peux faire ça ?
+Au fond d'un couloir, un rugissement fit vibrer les grilles.
 
-Nino haussa les épaules.
+Tous se turent.
 
-— Non. Mais j'espère.
+— Il est vraiment vieux ? murmura Nino.
 
-L'homme prit sa part.
+— C'est ce qu'ils disent, répondit Raoul.
 
-Il resta silencieux un long moment.
-
-Puis il rompit un morceau et le lui rendit.
-
-— Garde tes forces.
-
-Nino considéra la mie.
-
-— Ça veut dire qu'on est amis ?
-
-— Ça veut dire que tu vas me fatiguer même après ma mort.
-
-— Donc presque.
+— Et lui, il est au courant ?
 
 ***
 
-Au matin, ils entendirent le public avant de voir l'arène.
+L'arène avait été transformée à la hâte en paysage africain. Des serviteurs dressaient de fausses palmes, plaçaient des branchages et poussaient des supports peints dans le sable. L'organisateur criait des instructions qui changeaient toutes les deux minutes.
 
-Un grondement montait des galeries, rythmé de cris et de bruits métalliques. L'air vibrait d'une impatience qui n'avait rien à voir avec leur peur.
+La foule attendait.
 
-Julien se plaça devant les quatre autres.
+Raoul échangea un dernier regard avec les deux prisonniers aguerris.
 
 — On reste ensemble.
 
-Victor acquiesça.
+Brennos hocha la tête.
 
-Savio inspira profondément.
+Julien examina les autres : Victor transpirait, Savio essayait de mémoriser le terrain, Nino tenait son filet comme une couverture qui aurait mal tourné.
 
-Nino glissa un regard vers Raoul.
-
-— Au fait, si on survit, tu me dois une explication.
-
-— Sur quoi ?
-
-— Sur la façon dont tu as réussi à te faire arrêter sans nous.
-
-Raoul eut un sourire bref, le premier depuis leur rencontre en prison.
+L'organisateur fit signe aux gardes.
 
 La grille s'ouvrit.
 
-La lumière du jour envahit le couloir.
+Huit hommes entrèrent dans l'arène.
 
-Et cinq hommes qui avaient découvert les portails pour des raisons très différentes entrèrent ensemble dans une arène où aucun d'eux n'avait sa place.
+Ils ne savaient pas encore à quel point un vieux lion pouvait être dangereux.
 
 ---
 
