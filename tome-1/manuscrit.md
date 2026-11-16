@@ -3788,46 +3788,53 @@ C'était trop tard.
 
 Des gardes traversèrent la place.
 
-La foule recula avec la rapidité de ceux qui connaissent exactement ce qui va suivre.
+La foule se dispersa. Julien reçut un coup dans le dos. Un soldat immobilisa Victor, tandis que Nino, encore étourdi, se retrouvait coincé contre un pilier.
 
-Julien reçut un choc dans le dos. Quelqu'un immobilisa Victor. Savio essaya de calmer les soldats, mais les voix se couvraient les unes les autres.
+Un homme surgit de la foule.
 
-Nino se remit péniblement debout.
+Raoul.
 
-— Attendez, dit-il. On essayait juste d'aider.
+Il les avait suivis discrètement depuis la salle des portails. Il voulait voir ce qui se trouvait derrière les nouvelles ouvertures, mais aussi comprendre ce qui était arrivé à Clara. Il avait prévu de rester invisible. Voir Nino malmené par les soldats lui fit oublier cette résolution.
 
-Le responsable de la cour les regarda avec une colère froide.
+— Lâchez-le !
 
-— Vous attaquez mes hommes et vous dérangez la vente ?
+Raoul repoussa un garde, puis essaya de dégager les garçons. Un homme vêtu d'une toge richement bordée s'interposa et saisit Victor au col. Raoul, qui ne l'avait pas vu arriver, le prit pour un autre agresseur.
 
-Julien voulut expliquer.
+Son poing partit.
 
-L'homme ne le laissa pas finir.
+Le coup fut violent. L'homme heurta le rebord d'une fontaine et s'effondra. Ses accompagnateurs accoururent.
 
-Il appela un officier, désigna les quatre étrangers et parla assez fort pour que la foule les entende.
+— Vous avez frappé Lucius Valerius ! cria l'un d'eux.
 
-Savio ne distingua pas chaque mot.
+Un officier pâlit.
 
-Mais il comprit le principal.
+— Le protecteur de cette place ! Arrêtez-les tous !
 
-Ils étaient désormais considérés comme des fauteurs de trouble, et leur absence de statut local n'allait pas les aider.
+Les gardes se jetèrent sur Raoul. Il se débattit un instant, vit les quatre autres plaqués au sol, puis cessa de résister.
 
-Victor tourna la tête vers Julien.
+Victor le fixa.
 
-— On est vraiment très mauvais pour passer inaperçus.
+— Tu nous as suivis ?
 
-Julien ne répondit pas.
+— Oui.
 
-Il venait d'apercevoir, au-delà des gardes, la rue qui les avait conduits ici.
+— Et tu trouves le moyen d'aggraver les choses ?
 
-Le portail était à quelques centaines de mètres.
+Raoul regarda la toge du blessé.
 
-Il aurait tout donné pour que cette distance ne soit pas devenue impossible à franchir.
+— J'ai essayé de vous aider.
 
-Les soldats les emmenèrent.
+— C'est raté.
 
-Et quelque part derrière les murs de Rome, une porte vers leur époque resta ouverte, parfaitement inutile.
+Le responsable du marché exigea leurs noms, leur origine et l'identité du citoyen qui répondrait d'eux. Savio tenta de répondre. Rien de ce qu'il disait ne ressemblait à une explication acceptable.
 
+Julien aperçut encore la rue menant à leur passage.
+
+Le portail était tout près. Jamais quelques centaines de mètres n'avaient semblé aussi impossibles à parcourir.
+
+Les soldats emmenèrent les cinq hommes sous les cris.
+
+Derrière les murs de Rome, une porte vers leur époque resta ouverte, parfaitement inutile.
 ---
 
 ## Chapitre 10 — Cinq hommes pour une arène
@@ -5468,21 +5475,27 @@ Elle posa la main sur son front. Sa coiffure s'était défaite dans la chute. El
 
 — Magnifique. Une soirée romantique.
 
-À quelques mètres, un passage lumineux tremblait encore dans l'obscurité.
+À quelques mètres, une lueur tremblait encore dans l'obscurité.
 
-Elle le reconnut immédiatement.
-
-Pas exactement le même que celui par lequel Victor l'avait conduite au dîner, mais suffisamment proche pour comprendre qu'elle avait traversé une autre de ces portes dont il refusait de lui expliquer le fonctionnement.
+Elle reconnut aussitôt le phénomène : ce n'était pas tout à fait le passage par lequel Victor l'avait conduite au dîner, mais cela ressemblait aux autres portes qu'il refusait de lui expliquer.
 
 Elle se mit debout.
 
 — Bon. On va se calmer.
 
+Elle avança vers la lueur.
+
+Celle-ci se réduisit à une ligne mince, puis disparut dans la pierre.
+
+Clara posa la main contre la paroi froide.
+
+— Ah. Même la porte m'abandonne.
+
 Elle regarda autour d'elle.
 
 — On va surtout retrouver cet idiot et lui arracher la vérité.
 
-Elle allait revenir vers le passage lorsqu'un besoin beaucoup plus ordinaire se rappela à elle.
+Un besoin beaucoup plus ordinaire se rappela alors à elle.
 
 Depuis le dîner, les boissons s'étaient succédé. L'accident n'avait visiblement rien changé aux lois de son organisme.
 
