@@ -4035,257 +4035,205 @@ Ils ne savaient pas encore à quel point un vieux lion pouvait être dangereux.
 
 ---
 
-## Chapitre 11 — Le spectacle et la peur
+## Chapitre 11 — Le vieux lion
 
-Le sable était plus clair que Nino l'avait imaginé.
+Le sable collait aux chaussures de Nino.
 
-Il n'y avait jamais pensé, avant ce matin. Il avait vu des films, des images, des reconstitutions. Il savait qu'une arène avait du sable.
+Il n'avait jamais pensé à ce détail devant les films de gladiateurs. Il aurait voulu réfléchir à quelque chose d'aussi insignifiant encore quelques minutes.
 
-Mais il ne s'était jamais demandé si ce sable collait aux chaussures quand on avait peur.
+Au-dessus des gradins, un homme annonçait huit chasseurs courageux venus affronter un fauve d'Afrique. Les spectateurs applaudirent. Personne ne leur avait précisé que cinq de ces chasseurs auraient préféré être ailleurs.
 
-Il collait.
+À l'autre extrémité, la grille se souleva.
 
-Beaucoup.
+Le lion apparut.
 
-Le public les accueillit par un grondement de curiosité. De hautes tribunes enfermaient la piste sous le soleil. Sur une plate-forme, des hommes vêtus plus richement que les autres regardaient les arrivants comme on examine une marchandise dont on a payé le prix.
+Sa crinière s'était éclaircie avec l'âge. Son pelage portait des traces anciennes. Mais sa tête était immense et ses épaules semblaient capables de renverser un cheval.
 
-— Ils nous prennent pour quoi ? murmura Victor.
+— C'est ça, votre vieux lion ? souffla Nino.
 
-— Pour quelque chose qui va les distraire, répondit Savio.
+— Apparemment, dit Savio.
 
-Julien faisait de son mieux pour regarder droit devant lui.
+— Il a oublié de vieillir.
 
-Raoul observait les portes.
+Raoul, Brennos et Dama se rapprochèrent avec leurs lances. Les trois autres hommes, chargés des filets, restaient derrière Julien et Lucan, qui tenaient leurs grands boucliers.
 
-Nino aurait préféré observer autre chose. N'importe quoi.
+Le lion s'arrêta. Il regarda autour de lui, déconcerté par les cris et les panneaux peints qui l'entouraient.
 
-Un arbre, par exemple.
-
-Une boulangerie.
-
-La cuisine de Julien, avec son évier qui fuyait et son frigo toujours vide.
-
-Une voix porta à travers l'arène. L'homme qui présentait les jeux fit de grands gestes. Les spectateurs réagirent avec enthousiasme.
-
-Une grille s'ouvrit à l'autre extrémité.
-
-Trois hommes entrèrent. Ils paraissaient aussi malheureux qu'eux.
-
-Nino comprit que ce n'était peut-être pas un combat contre des gladiateurs professionnels, mais une épreuve montée avec des prisonniers. Il se demanda si cette précision était supposée le rassurer.
-
-Elle ne le rassura pas.
-
-Un garde posa près d'eux quelques protections grossières et des objets de bois destinés à l'affrontement. L'organisateur voulait une lutte visible, violente et bruyante.
-
-Julien se tourna vers les autres.
-
-— Restez près de moi.
-
-Raoul secoua la tête.
-
-— On reste ensemble, pas derrière toi.
-
-Julien accepta la correction.
-
-Le signal fut donné.
+Le public, lui, voulait du mouvement.
 
 ***
 
-Au début, ce ne fut pas un combat.
+Les premières minutes semblèrent interminables.
 
-Ce fut un désordre.
+Les trois combattants aguerris essayaient de conserver une distance avec l'animal sans se séparer. Aucun ne cherchait à l'attaquer pour impressionner les tribunes. Ils espéraient seulement que la bête se fatiguerait ou hésiterait suffisamment longtemps.
 
-Les hommes de l'autre groupe avancèrent avec hésitation. Victor recula si brusquement qu'il heurta Savio. Un objet de bois frappa la terre près de Nino. Celui-ci poussa un cri qu'il aurait préféré ne jamais entendre sortir de sa bouche.
+Le public commença à huer.
 
-Le public éclata de rire.
+Un organisateur leur cria d'avancer.
 
-— Je déteste cet endroit ! hurla-t-il.
+Personne ne bougea.
 
-— Concentre-toi ! lança Julien.
+Alors un serviteur fit claquer une planche derrière le lion.
 
-— Sur quoi ? Ils ont tous envie de nous frapper !
+L'animal bondit.
 
-Savio essaya de comprendre ce que les spectateurs attendaient. Les cinq n'étaient pas entraînés. Leurs adversaires non plus. Il n'y avait pas de logique glorieuse, seulement des corps qui cherchaient maladroitement à ne pas tomber.
+La ligne des hommes se déforma aussitôt. Lucan recula, heurta un support du décor et tomba. Avant que Julien ait réussi à le relever, le lion l'atteignit.
 
-Victor comprit le premier qu'ils pouvaient essayer de parler.
+Le jeune prisonnier hurla.
 
-Il leva les mains.
+Son bras avait été sérieusement blessé. Il essaya de se traîner loin de la bête, incapable de saisir son épée.
 
-— On ne veut pas vous faire de mal !
+— Il faut l'aider ! cria Savio.
 
-L'un des captifs, le visage couvert de sueur, répondit d'une voix brisée :
+Raoul et les deux autres réussirent à détourner l'attention du fauve suffisamment longtemps pour que Julien tire Lucan à l'abri d'un panneau de bois.
 
-— Nous non plus.
+Brennos regarda la blessure.
 
-Nino entendit ces mots.
+— Il ne survivra pas à un deuxième coup.
 
-Ils lui firent davantage peur que les armes.
-
-Des gardes, sur le bord, crièrent pour qu'ils reprennent l'affrontement. Le public huait déjà l'hésitation.
-
-Raoul regarda les autres prisonniers.
-
-Il les avait considérés comme une menace.
-
-Il vit soudain les mêmes expressions que sur les visages de ses compagnons.
-
-Il baissa son arme de bois.
-
-— Personne ne veut jouer à leur jeu, dit-il.
-
-Julien hésita.
-
-— Alors qu'est-ce qu'on fait ?
-
-La réponse vint d'un choc derrière eux.
-
-L'un des captifs, poussé par la peur, s'était élancé. Son geste renversa Savio. Un deuxième homme courut à leur rencontre, et les sept hommes se retrouvèrent à se débattre presque à l'aveugle.
-
-Nino sortit un petit objet de sa poche.
-
-Il se souvint de la bombe au poivre qu'ils avaient emportée au départ.
-
-Dans une confusion de bras et de cris, il en fit un usage bref et maladroit. Le captif qui le menaçait recula en se couvrant le visage. Nino recula aussi, surpris par son propre geste et par la violence de la réaction.
-
-— Désolé ! cria-t-il.
-
-L'homme se mit à tousser.
-
-— Nino ! hurla Savio.
-
-— Je sais ! Je sais !
-
-Raoul attrapa Nino par la veste et l'éloigna de la mêlée.
-
-L'effet avait interrompu l'affrontement quelques secondes. Il n'avait rien réglé.
-
-Le public, qui n'avait pas compris ce qu'il venait de voir, se redressa avec un bruit nouveau.
-
-Les organisateurs se penchèrent en avant.
-
-Un des gardes appela quelqu'un.
-
-Savio, au sol, remarqua tout cela.
-
-Ils étaient en train de devenir le spectacle qu'on attendait d'eux.
+Nino, qui ne disait plus un mot depuis l'ouverture de la grille, serra son filet plus fort.
 
 ***
 
-L'un des captifs voulut reculer, mais un garde lui barra le passage.
+Julien aperçut les javelots placés près d'une fausse palmeraie.
 
-Il avait le visage rougi par la poussière et les larmes.
+Il en prit un.
 
-Julien le vit trébucher.
+Son premier lancer se ficha dans le sable.
 
-Il tendit la main.
+— Tu l'as raté, constata Victor.
 
-— Venez !
+— Merci, je sais !
 
-L'homme hésita.
+Il reprit un second javelot.
 
-Puis il se rapprocha d'eux.
+Raoul reculait devant le lion, soutenu par Brennos et Dama. L'animal changeait brusquement de direction, cherchant une issue que les murs lui refusaient. Julien vit Raoul exposé et lança sans avoir le temps de réfléchir davantage.
 
-Raoul jura.
+Cette fois, le javelot atteignit le lion à la cuisse.
 
-— Tu vas faire entrer tout le monde dans notre groupe ?
+Le rugissement couvrit les tribunes.
 
-— On n'est pas obligés de se tuer, répondit Julien.
+La foule explosa de joie.
 
-Raoul regarda le garde, puis le public.
+Julien resta figé. La bête souffrait. Elle n'avait rien demandé, ni cette arène, ni ces hommes qui l'entouraient.
 
-— Essaie de leur expliquer.
+Le lion, blessé et acculé, bondit soudain vers Raoul.
 
-Savio se releva avec difficulté.
+L'ancien militaire tenta de reculer. Il glissa, perdit sa lance et tomba sous la masse du fauve.
 
-— Ils veulent voir quelque chose, dit-il.
+— RAOUL ! cria Nino.
 
-Victor le fixa.
+Il ne restait plus assez d'espace pour se relever.
 
-— Ne commence pas.
+Raoul arracha de ses vêtements le petit aérosol de défense qu'il avait conservé. Dans la panique, il l'actionna de toutes ses forces vers la gueule de l'animal, jusqu'à en épuiser le contenu.
 
-— Je ne dis pas qu'on va le leur donner. Je dis qu'ils veulent être surpris.
+Le lion secoua la tête et recula, désorienté pendant quelques instants.
 
-Nino regarda l'objet qui avait provoqué l'étrange interruption.
+Ce n'était pas une garantie. L'animal n'était ni inconscient ni inoffensif. Mais Raoul put ramper loin de lui.
 
-— Pour ça, ils ont été servis.
-
-Il avait encore un peu de souffle et une idée.
-
-La petite lampe qu'ils avaient conservée.
-
-Elle ne pouvait pas combattre à leur place. Elle ne pouvait pas ouvrir les grilles. Mais elle pouvait produire quelque chose que personne autour d'eux n'avait jamais vu.
-
-— Savio, chuchota-t-il, le truc qui fait de la lumière...
-
-Savio comprit.
-
-Il vérifia que la lampe fonctionnait encore.
-
-Un faisceau blanc jaillit entre leurs mains.
-
-En plein soleil, son effet était moins spectaculaire qu'ils ne l'avaient espéré. Mais lorsque Savio le dirigea vers une partie ombragée de la piste, plusieurs hommes près de la grille reculèrent de surprise.
-
-L'organisateur se leva.
-
-Un nouveau murmure traversa les tribunes.
-
-Raoul regarda la lampe.
-
-— Qu'est-ce que vous faites ?
-
-— J'essaie de nous faire remarquer pour autre chose que notre mort, répondit Savio.
-
-Victor tourna la tête vers la plate-forme réservée aux personnages importants.
-
-Un homme à la tunique richement bordée s'était penché en avant. Il échangeait des mots rapides avec un autre.
-
-Il regardait la lampe.
-
-Pas les combattants.
-
-— Celui-là, dit Victor, il comprend qu'on a quelque chose à vendre.
-
-Julien ne savait pas si cette phrase devait lui redonner espoir ou le désespérer.
-
-Mais une nouvelle porte venait peut-être de s'ouvrir.
+— LES FILETS ! hurla-t-il.
 
 ***
 
-L'organisateur donna un ordre.
+Victor lança le sien.
 
-Les gardes avancèrent pour séparer les hommes.
+Les cordes se prirent dans une branche du décor.
 
-Un des captifs, paniqué, se précipita dans une mauvaise direction. Il heurta Nino et le fit tomber près d'un bord de la piste où la poussière dissimulait une faible dénivellation.
+— Non, mais c'est pas possible !
 
-Nino se retrouva au sol, sonné.
+Savio eut plus de chance. Son filet retomba sur le dos du lion, qui commença aussitôt à s'en dégager.
 
-Julien voulut courir vers lui.
+Nino tremblait tellement qu'il manqua de lâcher le sien avant de le lancer. Il fit deux pas pour se rapprocher de Raoul, puis jeta les cordes par-dessus celles de Savio.
 
-Un garde lui barra la route.
+Les deux filets s'emmêlèrent. Le fauve se débattit et fut gêné pendant un bref instant.
 
-Raoul, lui, avait une ouverture. Il se trouvait presque au niveau d'une grille latérale. Un soldat avait déplacé une barrière ; pendant quelques secondes, il aurait pu atteindre le passage.
+— Il est pris ! cria Nino.
 
-Il l'aperçut.
+— Il est gêné ! corrigea Dama. Ça ne durera pas !
 
-Il aperçut aussi Nino, qui tentait de se relever pendant qu'un homme armé avançait vers lui.
+Julien tira Nino en arrière. Savio retourna aider Lucan. Victor abandonna son filet accroché à l'arbre.
 
-Victor cria.
+Les deux prisonniers aguerris échangèrent un regard.
 
-Savio leva la lampe.
+Brennos et Dama se rapprochèrent avec leurs lances.
 
-Julien se débattait pour passer.
+— Attendez ! cria Julien. Il ne peut plus...
 
-Raoul hésita.
+Il n'acheva pas sa phrase.
 
-Une seconde seulement.
+Les deux hommes frappèrent sans hésitation.
 
-Puis il tourna le dos à la grille ouverte et courut vers Nino.
+Le lion s'effondra dans les cordes.
 
-Personne dans les tribunes ne savait ce que ce choix signifiait.
+Il ne se releva pas.
 
-Pour lui, pourtant, il marqua la frontière entre l'homme qui ne cherchait qu'à sauver sa peau et celui qui commençait à reconnaître les autres comme les siens.
+***
 
-La foule rugit lorsque les deux silhouettes se rejoignirent au milieu du sable.
+Un silence passa sur la piste. Puis la foule éclata en acclamations.
+
+Nino regarda le lion, puis les deux combattants.
+
+— Mais il était coincé...
+
+Brennos essuya la sueur de son visage.
+
+— Et tu voulais attendre qu'il se libère ?
+
+Nino baissa les yeux.
+
+Raoul, encore sous le choc, revint vers le groupe. Sa tunique était déchirée et ses mains tremblaient.
+
+— Tu m'as aidé, dit-il à Nino.
+
+— J'ai jeté mon filet de travers.
+
+— Tu l'as jeté.
+
+Julien et Savio soutenaient Lucan, pâle mais conscient. Des soigneurs vinrent enfin s'occuper de son bras.
+
+Huit hommes étaient entrés dans l'arène.
+
+Huit étaient encore vivants.
+
+Victor reconnut l'organisateur près de la grille.
+
+— Vous avez promis ! cria-t-il. La liberté pour les huit !
+
+L'homme hésita. Le public continuait de célébrer le spectacle ; quelques spectateurs reprirent les mots du marchand, ravis de participer.
+
+L'organisateur se tourna vers l'administrateur, puis leva les mains.
+
+— Les huit survivants sont libres, conformément à l'accord !
+
+Les acclamations redoublèrent.
+
+Nino regarda le corps du lion.
+
+— On a gagné ?
+
+Julien considéra Lucan blessé, les deux hommes qui avaient achevé la bête et Raoul, qui respirait encore avec difficulté.
+
+— Nous sommes vivants.
+
+— Ce n'est pas exactement la même chose, murmura Nino.
+
+***
+
+Les gardes les conduisirent dans une salle où leur remise en liberté serait enregistrée.
+
+L'organisateur avait tenu sa promesse devant la foule. Il leur restait à récupérer leurs affaires et à régler les formalités. À Rome, rien ne semblait jamais aussi simple que la porte d'une cellule qui s'ouvre.
+
+Dans le couloir, Julien aperçut l'officier chargé de leurs objets confisqués. Il tenait une petite lampe et deux boîtiers noirs.
+
+Il les montrait à un homme richement vêtu qui les examinait avec une curiosité manifeste.
+
+Le nouveau venu suivit les cinq survivants du regard.
+
+— Faites-les venir, ordonna-t-il.
+
+Julien croyait que le lion serait leur dernier problème à Rome.
+
+Il se trompait.
 
 ---
 
