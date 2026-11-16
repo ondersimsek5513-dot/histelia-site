@@ -1456,21 +1456,39 @@ Le commis lâcha sa plume. Une oie, qui s'était introduite derrière eux depuis
 
 L'homme ne sourit pas, mais demanda qu'on lui montre comment arrêter la sonnerie.
 
-Il aperçut alors les Air Max de Nino : leurs semelles épaisses, les couleurs inhabituelles et cette fenêtre transparente dans la matière. Il voulut les examiner. Nino dut poser un pied sur un tabouret, sous les regards passionnés de deux serviteurs.
+À la fin des démonstrations, le marchand aperçut les Air Max de Nino.
 
-— Ces chaussures ont-elles le pouvoir d'alléger le corps ?
+Il lui demanda de poser un pied sur un tabouret, puis contempla longuement la semelle épaisse, les coutures régulières, les couleurs franches et cette étrange fenêtre transparente dans la matière.
 
-— Le mien, surtout, répondit Nino.
+— Voilà un travail d'une finesse remarquable, dit-il. Regardez ces assemblages. Et cette matière qui ne ressemble ni au cuir ni à la toile de nos ateliers !
 
-Le marchand proposa de les acheter. Nino refusa. Il augmenta le prix. Nino refusa encore.
+Nino sourit.
+
+— Vous êtes le premier à comprendre que je suis un homme de goût.
+
+Le marchand insista pour examiner une chaussure de près. Nino finit par la retirer, à condition qu'on ne lui fasse pas payer la visite guidée de son propre pied. Le commerçant la tourna sous la lumière et la rapprocha de son pied pour en estimer la taille.
+
+— Ce sont des chaussures dignes d'un grand seigneur, déclara-t-il. Élégantes, légères, et d'une fabrication que nos meilleurs cordonniers envieraient.
+
+Victor observa les couleurs vives.
+
+— Vous trouvez vraiment ça raffiné ?
+
+— Extrêmement. Les riches seigneurs portent parfois de l'or aux pieds sans posséder la moitié de cette habileté.
+
+Nino reprit sa chaussure avant qu'on ne lui fasse une offre.
 
 — Je peux vendre beaucoup de choses, monsieur. Mais pas mes Air Max.
 
-Victor ferma les yeux. Il venait d'assister au refus de l'offre la plus généreuse de la journée par celui qui, jusque-là, voulait vendre jusqu'aux boutons de sa veste.
+Le marchand le regarda avec une tristesse sincère.
 
-Sa curiosité était réelle, mais son enthousiasme demeurait calculé.
+— Même pour une belle somme ?
 
-Victor l'apprécia immédiatement.
+— Même pour le trésor du roi. Enfin... je réfléchirais deux minutes.
+
+Savio remarqua le regard que le marchand posa une dernière fois sur les baskets. Il retint aussi la taille approximative de son pied.
+
+Victor, qui cherchait surtout à vendre son stock, avait trouvé un excellent intermédiaire. Savio venait peut-être de trouver un moyen de le remercier.
 
 Les négociations furent plus longues que dans le village. Les quatre comprirent que leur fortune nouvelle ne serait pas faite seulement de merveilleuses inventions : il faudrait aussi apprendre à discuter avec des hommes beaucoup plus habiles qu'eux.
 
@@ -1676,6 +1694,48 @@ Nino leva la main.
 
 Le marchand ignora la remarque.
 
+Savio lui demanda ensuite de les accompagner un instant à l'écart. Il ouvrit un sac qu'il avait gardé fermé depuis leur arrivée et en sortit une paire d'Air Max neuves, de la même famille que celles que Nino refusait obstinément de vendre.
+
+— Nous avons remarqué que ces chaussures vous plaisaient, dit-il. Je les ai apportées pour vous remercier de nous avoir présenté à la cour. C'est un cadeau.
+
+Le marchand resta immobile. Puis il prit une chaussure comme s'il s'agissait d'un bijou.
+
+— Vous m'offrez vraiment cet ouvrage ?
+
+— Oui. Essayez-les.
+
+L'homme retira ses souliers de cuir avec une précipitation peu compatible avec son rang. Les baskets lui allaient presque parfaitement. Il fit quelques pas, plia le pied, s'arrêta et contempla son reflet dans une grande coupe de métal poli.
+
+— Une merveille de raffinement, déclara-t-il.
+
+Nino observa sa tenue : tunique richement brodée, manteau de marchand important, ceinture ouvragée... et, sous l'ensemble, deux baskets colorées dignes d'un adolescent du XXIe siècle.
+
+— On dirait un prince qui part au city-stade, murmura-t-il.
+
+— Tais-toi, répondit Victor. Il est heureux.
+
+Le marchand traversa la salle de long en large pour tester le confort. Puis, ravi, il décida qu'il accueillerait ainsi les invités. Un valet lui proposa discrètement de remettre ses anciens souliers.
+
+— Certainement pas ! Ces chaussures méritent d'être vues.
+
+Quelques minutes plus tard, des nobles virent avancer vers eux un négociant médiéval drapé de tissu précieux et chaussé d'Air Max éclatantes. Il marchait plus lentement que d'ordinaire, relevant légèrement sa robe à chaque pas pour qu'on puisse admirer ses pieds.
+
+Une dame lui demanda où il avait fait confectionner ces merveilles.
+
+Le marchand prit un air mystérieux.
+
+— Un présent de mes amis venus de très loin.
+
+Nino se pencha vers Savio.
+
+— Tu viens de lancer une mode que personne ne pourra assumer.
+
+Savio regarda le marchand se pavaner devant un groupe de courtisans.
+
+— Je pensais seulement le remercier.
+
+— C'est pire, répondit Nino. Il a du style, maintenant.
+
 Il rappela cependant une condition : les petites fusées de fête que Victor avait évoquées ne pourraient être présentées qu'à la nuit tombée, dans un espace extérieur autorisé et sous le contrôle des gardes. Savio approuva. Personne ne devait les confondre avec des armes, ni les utiliser au milieu de la foule. Nino parut un instant déçu de ne pas pouvoir les sortir entre deux ventes.
 
 Les premiers visiteurs entrèrent bientôt : des nobles accompagnés de leurs gens, de riches acheteurs, des membres de l'entourage royal. Ils étaient curieux, prudents et, pour certains, déjà décidés à ne se laisser impressionner par personne.
@@ -1752,7 +1812,7 @@ Sa voix rebondit sur les murs avec une puissance telle qu'un palefrenier, de l'a
 
 Nino sourit et ajouta, beaucoup plus fort :
 
-— ET QUE PERSONNE NE TOUCHE À MES AIR MAX !
+— ET QUE PERSONNE NE MARCHE SUR LES PIEDS DE NOTRE MARCHAND !
 
 Victor lui arracha presque l'appareil des mains. Les officiers, eux, n'avaient pas ri. L'un d'eux voulut savoir si un commandant pourrait parler ainsi à des centaines d'hommes sans se déchirer la voix.
 
@@ -2160,7 +2220,7 @@ Le conseiller lui parla à voix basse du mégaphone qui portait une voix au-del�
 
 — Vous avez fait rire mes invités, dit-il. Mes officiers ont vu autre chose : un homme capable de se faire entendre de loin, des signes visibles au-delà des murs, des yeux qui rapprochent les distances.
 
-Julien repensa à Nino proclamant la gloire de ses chaussures dans le mégaphone. Il aurait voulu que cet épisode reste une plaisanterie.
+Julien repensa à Nino hurlant dans le mégaphone pour protéger les chaussures extravagantes du marchand. Il aurait voulu que cet épisode reste une plaisanterie.
 
 — Que possédez-vous d'autre ?
 
