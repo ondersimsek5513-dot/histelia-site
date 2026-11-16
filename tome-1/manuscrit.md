@@ -1,6 +1,6 @@
 # HISTELIA — LES MARCHANDS DU TEMPS
 
-*Tome 1 — Lecture publique. Chapitre 1 réécrit (V2) ; chapitres 2 à 31 : premier jet en cours de révision.*
+*Tome 1 — Lecture publique. Chapitre 1 réécrit (V2) ; prénoms définitifs harmonisés dans les 31 chapitres ; chapitres 2 à 31 en cours de révision stylistique.*
 
 ## Chapitre 1 — Une idée qui ne vaut pas de l'or
 
@@ -210,11 +210,11 @@ Il les rouvrit de l'autre côté.
 
 — Bon. Je suis vivant.
 
-— Une excellente nouvelle, dit Adrien derrière lui. Maintenant, avance, tu bloques tout le monde.
+— Une excellente nouvelle, dit Julien derrière lui. Maintenant, avance, tu bloques tout le monde.
 
 Ils se retrouvèrent dans un couloir humide.
 
-Sami tourna lentement sur lui-même, sa lampe dirigée vers les pierres.
+Savio tourna lentement sur lui-même, sa lampe dirigée vers les pierres.
 
 — C'est presque identique.
 
@@ -226,7 +226,7 @@ Victor examina les parois.
 
 — C'est parce que c'est le même.
 
-— Non, dit Sami.
+— Non, dit Savio.
 
 — Si, dit Victor. On est entrés par une porte, on est sortis par une porte. C'est le principe d'un couloir.
 
@@ -234,17 +234,17 @@ Nino s'approcha d'une fissure.
 
 — Il y avait cette pierre-là, avant ?
 
-— Je ne sais pas, répondit Sami.
+— Je ne sais pas, répondit Savio.
 
 — Donc on a fait tout ça pour trouver un autre couloir.
 
-Ils suivirent un boyau qui montait vers une faible lueur. Le sol était plus sec qu'à l'aller et plusieurs pierres semblaient disposées différemment. Sami nota ces détails dans son téléphone, sans leur trouver d'explication.
+Ils suivirent un boyau qui montait vers une faible lueur. Le sol était plus sec qu'à l'aller et plusieurs pierres semblaient disposées différemment. Savio nota ces détails dans son téléphone, sans leur trouver d'explication.
 
 À la sortie, ils débouchèrent au milieu des bois.
 
 La lumière du jour les aveugla un instant.
 
-Adrien regarda les arbres, puis l'entrée de la galerie.
+Julien regarda les arbres, puis l'entrée de la galerie.
 
 — C'est où, ça ?
 
@@ -258,7 +258,7 @@ Victor leva son téléphone.
 
 — Pas de réseau.
 
-— Il n'y en avait pas non plus de l'autre côté, observa Sami.
+— Il n'y en avait pas non plus de l'autre côté, observa Savio.
 
 — Je signale simplement qu'en plus d'être perdus, on ne peut pas commander de taxi.
 
@@ -268,7 +268,7 @@ Nino les inspecta.
 
 — Il y a des chevaux, ici.
 
-— Probablement une randonnée, dit Adrien.
+— Probablement une randonnée, dit Julien.
 
 — Ou un parc à thème, lança Victor. Il faut bien rentabiliser le budget de la porte lumineuse.
 
@@ -290,9 +290,9 @@ Le cavalier fronça les sourcils.
 
 — Quelles terres servez-vous ?
 
-— Les nôtres, répondit Adrien.
+— Les nôtres, répondit Julien.
 
-Sami intervint aussitôt.
+Savio intervint aussitôt.
 
 — Nous sommes des voyageurs. Nous cherchons le village le plus proche.
 
@@ -308,11 +308,11 @@ Les quatre le regardèrent disparaître entre les arbres.
 
 — Exceptionnel, confirma Nino. Même le cheval était dans son personnage.
 
-— Tu as vu la maille ? demanda Sami. Elle ressemblait à un travail artisanal, pas à un costume de spectacle.
+— Tu as vu la maille ? demanda Savio. Elle ressemblait à un travail artisanal, pas à un costume de spectacle.
 
-— C'est précisément ce que font les grandes reconstitutions, répondit Adrien.
+— C'est précisément ce que font les grandes reconstitutions, répondit Julien.
 
-Sami hésita.
+Savio hésita.
 
 Quelque chose ne collait pas, mais il avait trop peu d'éléments pour tirer une conclusion. Il se remit en marche avec les autres.
 
@@ -332,7 +332,7 @@ Un homme conduisant deux chèvres le poussa légèrement pour passer. Nino s'éc
 
 — Même les figurants secondaires sont agressifs.
 
-Sami s'attardait devant chaque échoppe. Un forgeron frappait le fer, une femme vendait du tissu, un marchand pesait des marchandises sur une petite balance. Tout lui paraissait remarquablement cohérent.
+Savio s'attardait devant chaque échoppe. Un forgeron frappait le fer, une femme vendait du tissu, un marchand pesait des marchandises sur une petite balance. Tout lui paraissait remarquablement cohérent.
 
 À l'angle d'une place, il remarqua une boutique sombre dont la vitrine ouverte débordait de vaisselle, de coffrets, de ferrures, de boucles et d'objets difficiles à identifier.
 
@@ -348,7 +348,7 @@ Il était un homme sec, au visage attentif. Il regarda longuement leurs chaussur
 
 — Que cherchez-vous, messires ?
 
-— À vrai dire, je regarde, dit Sami.
+— À vrai dire, je regarde, dit Savio.
 
 — Vous avez de curieuses tenues.
 
@@ -356,13 +356,13 @@ Il était un homme sec, au visage attentif. Il regarda longuement leurs chaussur
 
 Le marchand parut décider qu'il était inutile d'approfondir.
 
-Sami examina une petite boîte ornée de motifs géométriques. Adrien observait les issues, instinctivement. Victor comptait les pièces visibles sur la table, se demandant quel genre de monnaie on pouvait utiliser dans un pareil endroit.
+Savio examina une petite boîte ornée de motifs géométriques. Julien observait les issues, instinctivement. Victor comptait les pièces visibles sur la table, se demandant quel genre de monnaie on pouvait utiliser dans un pareil endroit.
 
 Puis il sortit son paquet de cigarettes.
 
 — Je vais en griller une.
 
-— Ici ? demanda Adrien.
+— Ici ? demanda Julien.
 
 — Ils font brûler du bois dans tous les coins. Je ne vais pas ruiner l'ambiance.
 
@@ -422,7 +422,7 @@ L'homme posa le briquet avec précaution sur une étoffe.
 
 — Je vous l'achète.
 
-Victor échangea un regard avec Adrien.
+Victor échangea un regard avec Julien.
 
 — C'est une animation ? souffla-t-il.
 
@@ -430,7 +430,7 @@ Victor échangea un regard avec Adrien.
 
 Le marchand revint avec une petite bourse et en renversa le contenu sur la table.
 
-Des pièces claires et jaunes roulèrent entre les vieux objets. Elles portaient des motifs et des inscriptions que Sami ne reconnut pas immédiatement.
+Des pièces claires et jaunes roulèrent entre les vieux objets. Elles portaient des motifs et des inscriptions que Savio ne reconnut pas immédiatement.
 
 — Cela vous convient-il ?
 
@@ -446,7 +446,7 @@ Nino contempla le tas.
 
 — Celui qui coûte moins cher qu'un café ?
 
-Adrien lui donna un coup de coude.
+Julien lui donna un coup de coude.
 
 — Négocie, idiot.
 
@@ -456,11 +456,11 @@ Nino réfléchit.
 
 Le marchand hésita un instant puis la lui tendit.
 
-Victor se mordit la joue pour ne pas rire. Sami, lui, retournait déjà une pièce entre ses doigts.
+Victor se mordit la joue pour ne pas rire. Savio, lui, retournait déjà une pièce entre ses doigts.
 
 Les bords étaient irréguliers. Le métal et la frappe lui semblaient vrais. Très vrais.
 
-— Sami ? demanda Adrien.
+— Savio ? demanda Julien.
 
 — Je voudrais la regarder de plus près.
 
@@ -494,7 +494,7 @@ Toujours rien.
 
 — Ils vous autorisent à cligner des yeux ?
 
-Adrien continua deux pas avant de s'apercevoir que Nino ne suivait plus.
+Julien continua deux pas avant de s'apercevoir que Nino ne suivait plus.
 
 — Laisse-le tranquille.
 
@@ -522,15 +522,15 @@ Victor s'approcha.
 
 Le garde saisit Nino par le col et le plaqua contre la palissade.
 
-Tout se passa très vite. Adrien intervint, Sami tenta d'expliquer, Victor voulut repousser la main du garde. Deux villageois se retournèrent. Un autre soldat s'approcha au pas de course.
+Tout se passa très vite. Julien intervint, Savio tenta d'expliquer, Victor voulut repousser la main du garde. Deux villageois se retournèrent. Un autre soldat s'approcha au pas de course.
 
-— On part ! lança Adrien.
+— On part ! lança Julien.
 
 Nino se dégagea d'un mouvement brusque. Le garde tira une lame courte, qu'il ne pointa pas vers eux mais brandit assez haut pour arrêter toute discussion.
 
 Le soleil éclata sur le métal.
 
-Ce détail-là, Sami devait s'en souvenir longtemps : le métal, la colère dans les yeux de l'homme et l'absence totale de sourire.
+Ce détail-là, Savio devait s'en souvenir longtemps : le métal, la colère dans les yeux de l'homme et l'absence totale de sourire.
 
 Ils reculèrent, bousculèrent une charrette et quittèrent la place presque en courant.
 
@@ -540,11 +540,11 @@ Ils ne ralentirent qu'une fois les premières maisons hors de vue.
 
 — C'est complètement dingue, souffla Victor.
 
-— Le type était malade, dit Adrien.
+— Le type était malade, dit Julien.
 
 — Ou ils poussent leur animation beaucoup trop loin, ajouta Nino, encore pâle.
 
-— Tu aurais pu arrêter de le provoquer, répondit Sami.
+— Tu aurais pu arrêter de le provoquer, répondit Savio.
 
 — Tu aurais pu arrêter d'être dans la boutique d'un fou qui achète des briquets !
 
@@ -570,9 +570,9 @@ Ce fut Victor qui brisa le silence.
 
 — Excellent résumé, confirma Nino.
 
-— Et maintenant ? demanda Adrien.
+— Et maintenant ? demanda Julien.
 
-Sami sortit une pièce de la bourse.
+Savio sortit une pièce de la bourse.
 
 — Maintenant, on fait vérifier ça.
 
@@ -582,7 +582,7 @@ Le premier spécialiste qu'ils consultèrent refusa de se prononcer sur une phot
 
 Le deuxième leur demanda d'apporter les monnaies.
 
-Le troisième, un numismate que Sami avait choisi pour sa réputation et sa prudence, prit beaucoup de temps.
+Le troisième, un numismate que Savio avait choisi pour sa réputation et sa prudence, prit beaucoup de temps.
 
 Trop, selon Victor.
 
@@ -596,7 +596,7 @@ Il la plaça sur une feuille blanche.
 
 — Celle-ci mérite une expertise plus approfondie.
 
-— Elle est fausse ? demanda Adrien.
+— Elle est fausse ? demanda Julien.
 
 — Je ne pense pas. Mais je préfère vous expliquer ce que je peux établir, et ce que je dois encore vérifier.
 
@@ -618,11 +618,11 @@ Et, après la vente, l'argent arriva réellement sur leur compte.
 
 Pas la somme extravagante qu'ils avaient annoncée en plaisantant. Pas de quoi acheter un château. Mais bien plus qu'ils n'avaient jamais espéré obtenir en échange d'un briquet de poche. L'une des pièces avait attiré une offre exceptionnellement élevée ; les autres avaient ajouté une somme déjà très appréciable.
 
-Nino fixa le chiffre sur l'écran du téléphone d'Adrien.
+Nino fixa le chiffre sur l'écran du téléphone d'Julien.
 
 — Il manque une virgule ?
 
-— Non, dit Sami.
+— Non, dit Savio.
 
 — Tu es sûr ?
 
@@ -630,11 +630,11 @@ Nino fixa le chiffre sur l'écran du téléphone d'Adrien.
 
 Victor éclata de rire.
 
-Adrien, lui, ne riait pas.
+Julien, lui, ne riait pas.
 
 — Ça veut dire quoi ? demanda-t-il.
 
-Sami posa la pièce qui n'avait pas été vendue sur la table, à côté du vieux briquet défaillant de Victor.
+Savio posa la pièce qui n'avait pas été vendue sur la table, à côté du vieux briquet défaillant de Victor.
 
 — Ça veut dire qu'ils n'étaient pas des comédiens.
 
@@ -652,7 +652,7 @@ Victor baissa les yeux vers son vieux briquet.
 
 — Et notre ami le marchand...
 
-Sami acquiesça.
+Savio acquiesça.
 
 Le silence changea de nature.
 
@@ -668,7 +668,7 @@ Son sourire reparut, lentement.
 
 — Dites-moi une chose.
 
-Adrien leva les yeux.
+Julien leva les yeux.
 
 — Quoi ?
 
@@ -680,19 +680,19 @@ Adrien leva les yeux.
 
 La première règle commerciale de Victor était simple : ne jamais laisser une découverte exceptionnelle entre les mains d'un homme qui voulait la faire étudier.
 
-— Tu as trouvé un passage vers le Moyen Âge, dit-il à Sami, et ta première idée a été d'aller dans une bibliothèque.
+— Tu as trouvé un passage vers le Moyen Âge, dit-il à Savio, et ta première idée a été d'aller dans une bibliothèque.
 
 — Chez un numismate.
 
 — Voilà. Encore pire. Il y a « numismate » dans le mot. C'est presque une punition.
 
-Ils avaient étalé sur la table du salon d'Adrien une collection d'objets d'une banalité affligeante : briquets, miroirs de poche, lampes, stylos, petits outils, accessoires divers achetés dans plusieurs magasins.
+Ils avaient étalé sur la table du salon d'Julien une collection d'objets d'une banalité affligeante : briquets, miroirs de poche, lampes, stylos, petits outils, accessoires divers achetés dans plusieurs magasins.
 
 Nino les contemplait comme un enfant devant un buffet.
 
 — Ça, dit-il en soulevant un miroir, j'en garde un.
 
-— Pour quoi faire ? demanda Adrien.
+— Pour quoi faire ? demanda Julien.
 
 — Me regarder quand je serai riche.
 
@@ -700,7 +700,7 @@ Victor reprit le miroir.
 
 — Justement. Tu le garderas quand tu auras payé ta part.
 
-Sami avait apporté une autre pile. Elle ne contenait pas d'objets à vendre, mais des cartes, des photocopies, des notes et plusieurs pages couvertes de questions.
+Savio avait apporté une autre pile. Elle ne contenait pas d'objets à vendre, mais des cartes, des photocopies, des notes et plusieurs pages couvertes de questions.
 
 — Il faut commencer par savoir où et quand nous sommes allés.
 
@@ -714,15 +714,15 @@ Sami avait apporté une autre pile. Elle ne contenait pas d'objets à vendre, ma
 
 — Très bien, dit Victor. Pendant que tu recoupes, je vais faire les courses.
 
-Adrien croisa les bras.
+Julien croisa les bras.
 
 — Et il faudra aussi réfléchir à ce qu'on risque.
 
 Victor lui adressa un sourire patient.
 
-— Adrien, nous avons vendu un briquet qui traînait dans une poche pour une somme qui nous a permis de rembourser trois crédits. Le risque, c'est de ne pas y retourner.
+— Julien, nous avons vendu un briquet qui traînait dans une poche pour une somme qui nous a permis de rembourser trois crédits. Le risque, c'est de ne pas y retourner.
 
-— Le risque, répondit Adrien, c'est aussi de finir entre les mains du garde que Nino a insulté.
+— Le risque, répondit Julien, c'est aussi de finir entre les mains du garde que Nino a insulté.
 
 — Je ne l'ai pas insulté, protesta Nino.
 
@@ -730,7 +730,7 @@ Victor lui adressa un sourire patient.
 
 — C'était une question professionnelle.
 
-Sami tira une feuille vers lui.
+Savio tira une feuille vers lui.
 
 — C'est pour ça que j'ai fait une liste.
 
@@ -742,11 +742,11 @@ Il y avait effectivement plusieurs listes.
 
 Objets à transporter. Objets à éviter. Coutumes. Moyens de paiement. Itinéraires. Risques sanitaires. Risques politiques. Et une colonne entière consacrée aux situations dans lesquelles il serait préférable de faire demi-tour.
 
-— Vous avez prévu les batteries ? demanda Sami. Les objets qui fonctionnent avec des piles, ça ne sert à rien quand elles sont vides. Les talkies-walkies non plus.
+— Vous avez prévu les batteries ? demanda Savio. Les objets qui fonctionnent avec des piles, ça ne sert à rien quand elles sont vides. Les talkies-walkies non plus.
 
-— On prendra des recharges, dit Adrien.
+— On prendra des recharges, dit Julien.
 
-— Et de quoi se défendre sans chercher à blesser quelqu'un, ajouta Sami.
+— Et de quoi se défendre sans chercher à blesser quelqu'un, ajouta Savio.
 
 Il posa une petite bombe au poivre sur la table.
 
@@ -762,11 +762,11 @@ Victor examinait surtout la colonne des marchandises.
 
 — Il nous faut des choses faciles à comprendre. Une lampe qui s'allume, un miroir, un objet qui fait du feu. Pas des appareils dont on devra expliquer les boutons pendant vingt minutes.
 
-— Voilà enfin une remarque utile, dit Sami.
+— Voilà enfin une remarque utile, dit Savio.
 
 — C'est le début d'une grande collaboration.
 
-Adrien prit la liste.
+Julien prit la liste.
 
 — Et on ne se sépare pas, cette fois.
 
@@ -788,19 +788,19 @@ Nino s'inclina.
 
 — On nous appelle souvent comme ça.
 
-— Personne ne t'a jamais appelé comme ça, murmura Adrien.
+— Personne ne t'a jamais appelé comme ça, murmura Julien.
 
 Le marchand avait conservé le briquet dans une boîte doublée de tissu. Il le sortit avec la délicatesse que l'on réserve aux objets très anciens.
 
 — Il fonctionne encore, dit-il avec un mélange de fierté et de soulagement.
 
-Sami acquiesça.
+Savio acquiesça.
 
 — Justement, nous devons vous expliquer quelque chose.
 
 Victor se raidit légèrement. Il avait entendu dans cette phrase la possibilité d'une réduction importante de leur bénéfice.
 
-Sami ouvrit un petit sac et en sortit plusieurs briquets neufs.
+Savio ouvrit un petit sac et en sortit plusieurs briquets neufs.
 
 — Celui que vous avez acheté ne produira pas de feu éternellement. Il contient une réserve qui finit par s'épuiser. Nous voulons vous en offrir d'autres, pour que vous ne soyez pas déçu.
 
@@ -808,13 +808,13 @@ Le marchand les regarda sans comprendre.
 
 — Vous me les donnez ?
 
-— Oui, dit Adrien.
+— Oui, dit Julien.
 
 Victor ouvrit la bouche.
 
-Adrien lui marcha discrètement sur le pied.
+Julien lui marcha discrètement sur le pied.
 
-— Sans rien demander en échange, ajouta Sami.
+— Sans rien demander en échange, ajouta Savio.
 
 Le vieil homme leva un briquet vers la lumière.
 
@@ -822,9 +822,9 @@ Le vieil homme leva un briquet vers la lumière.
 
 — C'est un geste commercial, dit Victor entre ses dents.
 
-— De confiance, rectifia Adrien.
+— De confiance, rectifia Julien.
 
-Sami montra comment les utiliser sans les gaspiller et répéta qu'ils finiraient tous par s'éteindre.
+Savio montra comment les utiliser sans les gaspiller et répéta qu'ils finiraient tous par s'éteindre.
 
 Le marchand écouta avec sérieux.
 
@@ -838,7 +838,7 @@ L'idée ne lui avait pas traversé l'esprit.
 
 Pas exactement.
 
-— Nous préférons que vous nous connaissiez bien, répondit Sami.
+— Nous préférons que vous nous connaissiez bien, répondit Savio.
 
 — Alors montrez-moi ce que vous avez apporté.
 
@@ -852,7 +852,7 @@ Le marchand se signa presque de stupeur, puis se pencha si près de la lumière 
 
 — Vous voyez, dit-il, ça aussi, il faut le ménager.
 
-Un miroir provoqua moins de cris, mais beaucoup plus de questions. Un petit mécanisme articulé sembla fasciner le marchand pour des raisons que Sami ne comprit pas. Quant à une boîte jouant une courte mélodie, elle l'obligea à s'asseoir.
+Un miroir provoqua moins de cris, mais beaucoup plus de questions. Un petit mécanisme articulé sembla fasciner le marchand pour des raisons que Savio ne comprit pas. Quant à une boîte jouant une courte mélodie, elle l'obligea à s'asseoir.
 
 Pendant un moment, les quatre amis eurent le sentiment ridicule d'être des magiciens de foire.
 
@@ -864,7 +864,7 @@ On parla de prix, de quantité, de rareté, de pièces et de poids. Victor déco
 
 Cette fois, Victor fut dans son élément.
 
-Nino devait produire une démonstration à la demande. Adrien surveillait le matériel. Sami essayait d'empêcher les promesses impossibles.
+Nino devait produire une démonstration à la demande. Julien surveillait le matériel. Savio essayait d'empêcher les promesses impossibles.
 
 — Non, expliqua-t-il pour la troisième fois, la lampe ne restera pas allumée à jamais.
 
@@ -888,11 +888,11 @@ Puis il demanda qu'on lui apporte de quoi écrire.
 
 — Dans la ville du château vivent des marchands qui n'ont pas mes limites. L'un d'eux m'a déjà acheté des coffrets d'une grande valeur. Il ne m'a jamais laissé une pièce de trop, mais je dois reconnaître qu'il connaît son métier.
 
-— Une ville du château ? répéta Adrien.
+— Une ville du château ? répéta Julien.
 
-— Une ville plus importante, expliqua Sami à ses amis. Sous l'autorité du seigneur de la région.
+— Une ville plus importante, expliqua Savio à ses amis. Sous l'autorité du seigneur de la région.
 
-Le marchand rédigea une lettre, y apposa son sceau et la tendit à Sami.
+Le marchand rédigea une lettre, y apposa son sceau et la tendit à Savio.
 
 — Présentez-vous de ma part. Mais soyez prudents : là-bas, on achète cher et l'on attend de vous que vous le sachiez.
 
@@ -910,9 +910,9 @@ Nino passa une bonne partie du trajet à défendre ses genoux contre une oie tr�
 
 — Je suis sûr qu'elle fait exprès, souffla-t-il.
 
-— Elle a peut-être compris ton caractère, répondit Sami.
+— Elle a peut-être compris ton caractère, répondit Savio.
 
-Sami, justement, ne perdait pas son temps.
+Savio, justement, ne perdait pas son temps.
 
 Il écoutait les voyageurs évoquer les chemins, les récoltes, le seigneur local et des événements qu'il tenta de mémoriser. Il posa quelques questions, puis sortit discrètement un carnet lorsque les autres se turent.
 
@@ -922,7 +922,7 @@ Il écoutait les voyageurs évoquer les chemins, les récoltes, le seigneur loca
 
 — Moi aussi. Je crois qu'on est à l'époque où les oies régnaient sur les hommes.
 
-De chaque conversation, Sami tirait un morceau de contexte. Aucun ne lui permettait encore de dater l'ensemble avec certitude. Mais la carte mentale qu'il construisait devenait moins floue.
+De chaque conversation, Savio tirait un morceau de contexte. Aucun ne lui permettait encore de dater l'ensemble avec certitude. Mais la carte mentale qu'il construisait devenait moins floue.
 
 À l'arrivée, ils découvrirent une ville bien différente du village.
 
@@ -932,7 +932,7 @@ Victor s'arrêta au pied d'une rue commerçante.
 
 — Voilà où est l'argent.
 
-— Il faut croire que tu le sens, dit Adrien.
+— Il faut croire que tu le sens, dit Julien.
 
 — C'est un don.
 
@@ -942,7 +942,7 @@ L'homme qui les reçut n'avait rien du vieux brocanteur émerveillé. Il portait
 
 — Vous venez de sa part ?
 
-Sami présenta le document.
+Savio présenta le document.
 
 Le marchand lut lentement, puis leva les yeux.
 
@@ -970,7 +970,7 @@ Victor était prêt à protester lorsqu'il ouvrit une petite armoire et en sorti
 
 — Je peux vous proposer autre chose que de l'argent.
 
-Sami se pencha.
+Savio se pencha.
 
 L'une des pièces était manifestement travaillée avec un soin remarquable. Son esprit d'historien s'éveilla aussitôt. Il hésita, pesa les questions de datation et de valeur.
 
@@ -980,11 +980,11 @@ Le marchand regarda les quatre amis.
 
 — Cela vous intéresse-t-il ?
 
-— Peut-être, dit Sami.
+— Peut-être, dit Savio.
 
 — Absolument, dit Victor.
 
-Adrien posa sa main sur la table.
+Julien posa sa main sur la table.
 
 — On discute d'abord.
 
@@ -1006,11 +1006,11 @@ Victor s'était redressé.
 
 — Vous proposez des curiosités à des gens qui savent acheter, mais qui doivent compter. À la cour du roi, certaines personnes n'ont pas les mêmes limites.
 
-Sami avait senti son ventre se serrer.
+Savio avait senti son ventre se serrer.
 
 La cour du roi. Ce n'était plus une boutique, ni même la ville d'un seigneur local. C'était un autre niveau de pouvoir.
 
-— Vous pourriez nous y introduire ? demanda Adrien.
+— Vous pourriez nous y introduire ? demanda Julien.
 
 — Je peux organiser une vente privée auprès de certains membres de son entourage. Mais je veux une commission sur chaque affaire conclue.
 
@@ -1026,7 +1026,7 @@ Victor le regarda comme on regarde un bandit honnête sur le montant du vol.
 
 — Ce que je vous offre l'est aussi.
 
-Sami intervint.
+Savio intervint.
 
 — Il nous faut du temps pour préparer davantage d'objets.
 
@@ -1040,9 +1040,9 @@ Une vente à la cour.
 
 Victor songeait déjà à de nouvelles valises.
 
-Adrien se demandait à quel moment ils avaient cessé de jouer.
+Julien se demandait à quel moment ils avaient cessé de jouer.
 
-Sami pensait aux archives historiques, aux noms entendus dans la voiture et au pouvoir immense d'un roi dont ils ne connaissaient pas encore suffisamment l'histoire.
+Savio pensait aux archives historiques, aux noms entendus dans la voiture et au pouvoir immense d'un roi dont ils ne connaissaient pas encore suffisamment l'histoire.
 
 Nino, lui, contemplait une minuscule pièce de métal oubliée dans son sac.
 
@@ -1064,7 +1064,7 @@ Victor ferma les yeux.
 
 Ils reprirent la route vers la grotte, puis vers leur époque, chargés de biens que leur monde considérait comme anciens et que l'autre tenait pour ordinaires.
 
-De retour au présent, ils étalèrent leurs gains sur la table du salon d'Adrien.
+De retour au présent, ils étalèrent leurs gains sur la table du salon d'Julien.
 
 La somme qu'ils avaient déjà obtenue grâce aux monnaies paraissait soudain presque modeste.
 
@@ -1072,15 +1072,15 @@ Victor se mit à rire.
 
 — Vous vous rendez compte ? Dans une semaine, on va vendre des gadgets au plus haut niveau du royaume.
 
-— On va surtout préparer les choses correctement, dit Sami.
+— On va surtout préparer les choses correctement, dit Savio.
 
-— Et rentrer vivants, ajouta Adrien.
+— Et rentrer vivants, ajouta Julien.
 
 Nino leva son bouton de veste.
 
 — Je vais quand même le garder.
 
-Adrien le regarda.
+Julien le regarda.
 
 — Pourquoi ?
 
@@ -1106,7 +1106,7 @@ Victor, lui, avait prévu un triomphe.
 
 Les quatre valises qu'ils traînaient depuis le petit matin étaient assez lourdes pour contenir les regrets de toute une vie. Elles contenaient surtout des objets dont leurs propriétaires n'avaient jamais imaginé qu'ils pussent provoquer des émeutes : lampes, miroirs, jumelles, petits mécanismes, stylos et une foule d'accessoires qui ne valaient presque rien dans un supermarché.
 
-— Arrête de sourire comme ça, souffla Adrien.
+— Arrête de sourire comme ça, souffla Julien.
 
 Victor rajusta son col.
 
@@ -1132,7 +1132,7 @@ Le regard du garde glissa vers l'énorme sac à dos qu'il portait.
 
 — Du bonheur en piles.
 
-Sami l'entraîna avant qu'il n'ait à fournir des explications supplémentaires.
+Savio l'entraîna avant qu'il n'ait à fournir des explications supplémentaires.
 
 Le marchand qui les avait introduits à la cour les attendait à l'entrée d'une salle richement décorée. Il avait fait installer des tables recouvertes de tissu, disposé des sièges pour les personnes importantes et répété aux serviteurs qu'il ne fallait toucher aux curiosités qu'avec l'accord de leurs propriétaires.
 
@@ -1158,13 +1158,13 @@ Victor commença par une lampe.
 
 Il la fit briller dans une coupe vide. Une dame poussa une exclamation. Un homme voulut savoir combien de jours elle pouvait brûler. Un autre demanda si elle pouvait éclairer une armée entière.
 
-Sami répondit honnêtement sur les limites de l'objet. Victor transforma cette prudence en argument de vente.
+Savio répondit honnêtement sur les limites de l'objet. Victor transforma cette prudence en argument de vente.
 
 — Imaginez, déclara-t-il, une lumière que vous pouvez emporter dans la nuit, sans flamme, sans fumée, sans craindre qu'un rideau prenne feu.
 
 La dame qui s'était exclamée la première la voulut immédiatement.
 
-Nino fit ensuite rouler une petite bille métallique aimantée qui attira plusieurs objets. Il avait préparé une démonstration minutieuse, répétée dans le salon d'Adrien.
+Nino fit ensuite rouler une petite bille métallique aimantée qui attira plusieurs objets. Il avait préparé une démonstration minutieuse, répétée dans le salon d'Julien.
 
 Elle se passa parfaitement pendant six secondes.
 
@@ -1184,9 +1184,9 @@ Les acheteurs se disputèrent les miroirs, les petites lampes et certains mécan
 
 Victor, lui, négociait avec une énergie presque religieuse.
 
-Adrien surveillait le déroulement des présentations, aidait Nino à récupérer les objets et s'assurait que personne ne les entraînait séparément vers une autre salle.
+Julien surveillait le déroulement des présentations, aidait Nino à récupérer les objets et s'assurait que personne ne les entraînait séparément vers une autre salle.
 
-Sami observait surtout les visages.
+Savio observait surtout les visages.
 
 Il essayait de retrouver les silhouettes qu'il avait aperçues dans des documents consultés chez lui. Les noms des principaux officiers, les armoiries et les rumeurs de guerre lui revenaient par fragments. Ce monde paraissait appartenir à une histoire qu'il connaissait, mais dont les pages se déplaçaient sous ses yeux.
 
@@ -1198,11 +1198,11 @@ Son visage se durcit.
 
 — Avec ceci, dit-il, on distingue les détails d'une porte à une très grande distance.
 
-— C'est l'idée, répondit Sami.
+— C'est l'idée, répondit Savio.
 
 — Et une troupe qui approche ?
 
-Sami hésita.
+Savio hésita.
 
 — Oui.
 
@@ -1210,7 +1210,7 @@ L'homme reposa les jumelles avec précaution.
 
 — Venez marcher avec moi.
 
-Adrien s'approcha aussitôt.
+Julien s'approcha aussitôt.
 
 — Mon ami n'est pas seul.
 
@@ -1218,9 +1218,9 @@ L'homme l'observa, surpris, puis inclina légèrement la tête.
 
 — Je suis l'un des conseillers du roi. Vos compagnons peuvent nous voir d'ici.
 
-Sami suivit l'homme jusqu'à une alcôve d'où l'on distinguait la salle.
+Savio suivit l'homme jusqu'à une alcôve d'où l'on distinguait la salle.
 
-Le conseiller lui demanda d'abord d'où ils venaient. Sami donna la même réponse prudente que devant les autres. Puis il se risqua à évoquer certaines routes, quelques noms de seigneurs et les tensions entre le royaume et ses voisins.
+Le conseiller lui demanda d'abord d'où ils venaient. Savio donna la même réponse prudente que devant les autres. Puis il se risqua à évoquer certaines routes, quelques noms de seigneurs et les tensions entre le royaume et ses voisins.
 
 L'homme cessa de sourire.
 
@@ -1236,7 +1236,7 @@ Le conseiller fixa son visage.
 
 — Vous connaissez mieux ce royaume que vous ne le prétendez.
 
-Sami sentit sa gorge se serrer.
+Savio sentit sa gorge se serrer.
 
 Il avait cru pouvoir utiliser ses recherches comme une carte. Or une carte, lorsqu'on la tient devant celui qui habite le pays, peut ressembler à un espionnage.
 
@@ -1246,7 +1246,7 @@ L'homme réfléchit.
 
 — Alors comprenez ceci : chaque renseignement peut sauver des hommes ou en faire tuer.
 
-Sami baissa les yeux.
+Savio baissa les yeux.
 
 — Je le sais.
 
@@ -1256,9 +1256,9 @@ Il ne le savait pas encore. Pas vraiment.
 
 La vente dura une bonne partie de la journée.
 
-À la fin, Victor comptait ses gains avec l'expression d'un homme qui s'apprêtait à embrasser un coffre. Nino avait négocié le droit de conserver la bille magnétique responsable de l'incident. Adrien surveillait les portes.
+À la fin, Victor comptait ses gains avec l'expression d'un homme qui s'apprêtait à embrasser un coffre. Nino avait négocié le droit de conserver la bille magnétique responsable de l'incident. Julien surveillait les portes.
 
-Sami, lui, revint auprès du conseiller.
+Savio, lui, revint auprès du conseiller.
 
 Un nom entendu lors de leur conversation continuait de le troubler. Il figurait dans une chronique qu'il avait consultée chez lui. À côté, dans sa mémoire, se trouvait un autre événement : la maladie d'une fille du roi, puis une série de décisions politiques prises dans l'urgence.
 
@@ -1282,7 +1282,7 @@ Il aurait pu mettre fin à la conversation. Il ne le fit pas.
 
 — Elle souffre depuis plusieurs jours, dit-il finalement. Les médecins la voient. Pourquoi cette question ?
 
-Sami choisit ses mots.
+Savio choisit ses mots.
 
 — Dans mon pays, nous connaissons certains remèdes que vous n'utilisez peut-être pas ici. Il pourrait être utile que vos médecins sachent ce qu'ils font et ce qu'ils ne font pas.
 
@@ -1300,15 +1300,15 @@ Il finit par dire :
 
 ***
 
-Quand Sami rapporta la conversation, Victor leva les deux mains.
+Quand Savio rapporta la conversation, Victor leva les deux mains.
 
 — Pas de médecine. On vend des objets, on encaisse, on rentre.
 
-— Il y a quelqu'un de gravement malade, répondit Sami.
+— Il y a quelqu'un de gravement malade, répondit Savio.
 
 — Et nous, nous sommes quatre hommes qui ne devraient même pas être dans ce siècle.
 
-Adrien n'était pas moins inquiet.
+Julien n'était pas moins inquiet.
 
 — Tu n'es pas médecin.
 
@@ -1320,7 +1320,7 @@ Adrien n'était pas moins inquiet.
 
 — Alors ne joue pas au sauveur.
 
-Sami acquiesça, presque à contrecœur.
+Savio acquiesça, presque à contrecœur.
 
 Il leur expliqua qu'il souhaitait d'abord parler aux praticiens de la cour, comprendre les symptômes et consulter ce qu'il avait pu retrouver sur la maladie. Au besoin, ils feraient un aller-retour vers leur époque pour se renseigner auprès de personnes compétentes.
 
@@ -1338,13 +1338,13 @@ Nino réfléchit.
 
 — D'un autre côté, notre banque vient d'encaisser des monnaies qui ont plusieurs siècles d'avance sur leur date d'émission.
 
-— De retard, corrigea Sami.
+— De retard, corrigea Savio.
 
 — Tu vois. Même les mots ne veulent plus rien dire.
 
 Les jours suivants furent différents des jours de vente.
 
-Les quatre firent un aller-retour prudent vers le présent. Sami s'employa à rassembler des informations médicales fiables et chercha une prise en charge adaptée à ce que les praticiens de la cour avaient observé. Rien n'était simple : les descriptions anciennes étaient imprécises, les informations transmises par le conseiller pouvaient être incomplètes et chaque traitement comportait des risques.
+Les quatre firent un aller-retour prudent vers le présent. Savio s'employa à rassembler des informations médicales fiables et chercha une prise en charge adaptée à ce que les praticiens de la cour avaient observé. Rien n'était simple : les descriptions anciennes étaient imprécises, les informations transmises par le conseiller pouvaient être incomplètes et chaque traitement comportait des risques.
 
 Il ne prétendit jamais posséder un remède universel.
 
@@ -1354,7 +1354,7 @@ La princesse avait une infection dont les médecins locaux ne parvenaient pas à
 
 Au début, il ne se passa presque rien.
 
-Sami supporta mal cette attente.
+Savio supporta mal cette attente.
 
 Victor, de son côté, essaya de cacher qu'il regardait régulièrement vers la porte des appartements royaux.
 
@@ -1362,13 +1362,13 @@ Puis la fièvre commença à céder.
 
 Un matin, la jeune femme demanda à s'asseoir.
 
-Le conseiller fit appeler Sami.
+Le conseiller fit appeler Savio.
 
 ***
 
 La princesse était assise près d'une fenêtre. Elle avait le visage encore pâle et semblait agacée par les précautions que chacun prenait autour d'elle.
 
-Elle regarda Sami entrer.
+Elle regarda Savio entrer.
 
 — On me dit que vous venez d'un pays lointain.
 
@@ -1376,7 +1376,7 @@ Elle regarda Sami entrer.
 
 — D'un pays où l'on sait empêcher les gens de mourir ?
 
-Sami n'avait pas prévu cette question.
+Savio n'avait pas prévu cette question.
 
 — Pas toujours.
 
@@ -1404,7 +1404,7 @@ La princesse l'ignora.
 
 — Et qu'avez-vous appris ?
 
-Sami pensa aux piles de livres dans son appartement, aux cartes, aux batailles, aux dates qu'il croyait immuables.
+Savio pensa aux piles de livres dans son appartement, aux cartes, aux batailles, aux dates qu'il croyait immuables.
 
 — Que je connais beaucoup moins de choses que je ne l'imaginais.
 
@@ -1416,7 +1416,7 @@ Il comprit, avec une netteté désagréable, qu'il se souviendrait longtemps de 
 
 ***
 
-Le conseiller n'avait pas oublié les autres avertissements de Sami.
+Le conseiller n'avait pas oublié les autres avertissements de Savio.
 
 Pendant que la princesse retrouvait des forces, il avait fait vérifier certaines informations sur les routes et les correspondances du royaume. Il n'avait pas arrêté un homme simplement parce qu'un marchand étranger connaissait son nom.
 
@@ -1430,7 +1430,7 @@ Puis il avait découvert qu'une partie des informations destinées aux garnisons
 
 L'homme fut confronté à des preuves qu'il ne put expliquer. Son réseau fut démantelé, et le roi reçut le rapport.
 
-Le conseiller convoqua Sami.
+Le conseiller convoqua Savio.
 
 — Vous saviez.
 
@@ -1444,7 +1444,7 @@ L'homme ne semblait pas satisfait.
 
 — Vous devriez avoir peur des conséquences de vos connaissances, aussi.
 
-Ces mots rappelèrent à Sami une conversation vieille seulement de quelques jours.
+Ces mots rappelèrent à Savio une conversation vieille seulement de quelques jours.
 
 Il regarda par la fenêtre les cours du palais, les chariots, les soldats, les serviteurs.
 
@@ -1456,7 +1456,7 @@ Le conseiller reprit :
 
 — Sa Majesté veut vous rencontrer. Tous les quatre.
 
-Sami se retourna.
+Savio se retourna.
 
 — Le roi ?
 
@@ -1466,7 +1466,7 @@ Le conseiller marqua une pause.
 
 — Et il a des questions à vous poser.
 
-Sami pensa aux jumelles.
+Savio pensa aux jumelles.
 
 Il se souvint du visage de l'homme lorsqu'il avait compris qu'on pouvait observer une troupe de très loin.
 
@@ -1478,7 +1478,7 @@ Le conseiller rangea le rapport sous son bras.
 
 ---
 
-**Notes de continuité du premier jet :** le roi est absent de la vente et n'apparaît qu'au chapitre suivant ; la princesse guérit progressivement, sans traitement miracle instantané ; le conseiller enquête réellement et prouve la trahison ; les sentiments naissants de Sami ne préjugent pas des sentiments de la princesse. La nature précise de la maladie et l'usage médical doivent être expertisés avant publication.
+**Notes de continuité du premier jet :** le roi est absent de la vente et n'apparaît qu'au chapitre suivant ; la princesse guérit progressivement, sans traitement miracle instantané ; le conseiller enquête réellement et prouve la trahison ; les sentiments naissants de Savio ne préjugent pas des sentiments de la princesse. La nature précise de la maladie et l'usage médical doivent être expertisés avant publication.
 
 ---
 
@@ -1488,7 +1488,7 @@ Le roi les reçut comme des hommes qui méritaient une récompense.
 
 Cela aurait dû les rassurer.
 
-Au lieu de cela, Adrien se demanda immédiatement combien coûtait le tapis sur lequel ils marchaient.
+Au lieu de cela, Julien se demanda immédiatement combien coûtait le tapis sur lequel ils marchaient.
 
 Ce n'était pas la richesse qui l'inquiétait. C'était la quantité de soldats.
 
@@ -1500,7 +1500,7 @@ Il tenta une inclinaison, se ravisa, en fit une seconde qui le rapprocha dangere
 
 Nino s'inclina à son tour.
 
-— Fais attention, souffla Sami. On n'est pas au théâtre.
+— Fais attention, souffla Savio. On n'est pas au théâtre.
 
 — Je m'adapte, murmura Nino. Je n'ai jamais rencontré de roi.
 
@@ -1512,13 +1512,13 @@ Le souverain les observa sans sourire.
 
 Puis il parla de sa fille.
 
-Le ton de la salle changea. Il remercia Sami, d'une voix que les gardes ne semblaient pas habitués à entendre aussi douce. Il évoqua ensuite l'homme dont la trahison avait été prouvée par l'enquête de son conseiller.
+Le ton de la salle changea. Il remercia Savio, d'une voix que les gardes ne semblaient pas habitués à entendre aussi douce. Il évoqua ensuite l'homme dont la trahison avait été prouvée par l'enquête de son conseiller.
 
 — Vous avez rendu service à ma maison, dit-il. Dites-moi ce que vous souhaitez.
 
 Victor fit un pas en avant.
 
-Adrien lui barra discrètement le chemin du coude.
+Julien lui barra discrètement le chemin du coude.
 
 — Nous sommes honorés, répondit-il.
 
@@ -1532,7 +1532,7 @@ Victor se redressa.
 
 — Votre Majesté, nous avons en effet quelques talents dans ce domaine.
 
-Sami vit le conseiller entrer avec un petit coffret.
+Savio vit le conseiller entrer avec un petit coffret.
 
 Il en sortit les jumelles achetées lors de la vente.
 
@@ -1550,7 +1550,7 @@ Personne ne répondit.
 
 Victor était ravi de la question.
 
-Adrien, beaucoup moins.
+Julien, beaucoup moins.
 
 — Nous vendons des objets destinés à rendre la vie plus simple, dit-il.
 
@@ -1560,7 +1560,7 @@ Le roi s'assit.
 
 — Mon ennemi est plus nombreux que moi. J'ai des hommes courageux. J'ai des chevaux. J'ai des villes fortifiées. Mais ils ont davantage de tout cela.
 
-Il se tourna vers Sami.
+Il se tourna vers Savio.
 
 — Vous connaissez les chemins, les noms des seigneurs, les mouvements de mes adversaires. Vous avez apporté des remèdes que mes médecins ignoraient. Vous m'avez donné un objet permettant de voir là où mes hommes ne peuvent pas.
 
@@ -1568,7 +1568,7 @@ Il marqua une pause.
 
 — Votre pays sait-il fabriquer des armes plus puissantes que les nôtres ?
 
-Adrien sentit son estomac se nouer.
+Julien sentit son estomac se nouer.
 
 — Nous ne sommes pas des fournisseurs d'armes, répondit-il.
 
@@ -1576,19 +1576,19 @@ Adrien sentit son estomac se nouer.
 
 Le conseiller attendait, immobile.
 
-Sami connaissait la réponse. Victor aussi.
+Savio connaissait la réponse. Victor aussi.
 
-— Il existe des armes très différentes, admit Sami.
+— Il existe des armes très différentes, admit Savio.
 
 — Alors apportez-les-moi.
 
-— Ce n'est pas si simple, dit Adrien.
+— Ce n'est pas si simple, dit Julien.
 
 Le roi n'éleva pas la voix.
 
 — J'ai vu votre lumière sans flamme. J'ai vu ma fille quitter son lit. J'ai vu tomber le mensonge d'un homme que je croyais fidèle. Ne me dites pas aujourd'hui que vous n'avez plus rien à offrir.
 
-Adrien se tourna vers Victor pour chercher un soutien.
+Julien se tourna vers Victor pour chercher un soutien.
 
 Il aperçut immédiatement son erreur.
 
@@ -1596,7 +1596,7 @@ Victor regardait déjà les coffres disposés près du trône. Il imaginait des 
 
 — Nous pouvons étudier votre demande, dit-il.
 
-Adrien se raidit.
+Julien se raidit.
 
 — Non.
 
@@ -1618,7 +1618,7 @@ Victor sourit avec une cordialité atroce.
 
 — Votre Majesté, conclut-il, nous pouvons vous apporter une démonstration.
 
-Adrien sentit quelque chose se rompre entre eux.
+Julien sentit quelque chose se rompre entre eux.
 
 Le roi se leva.
 
@@ -1628,13 +1628,13 @@ Le roi se leva.
 
 Ils attendirent d'être revenus au XXIe siècle pour se disputer.
 
-La première phrase d'Adrien fut prononcée dans le couloir du souterrain.
+La première phrase d'Julien fut prononcée dans le couloir du souterrain.
 
 La dernière, deux heures plus tard, dans son salon.
 
 Entre les deux, ils avaient utilisé presque tous les synonymes de « inconscient » disponibles en français.
 
-— Tu as promis des armes à un roi en guerre ! cria Adrien.
+— Tu as promis des armes à un roi en guerre ! cria Julien.
 
 Victor posa les mains sur la table.
 
@@ -1644,7 +1644,7 @@ Victor posa les mains sur la table.
 
 — Non. C'est avant.
 
-Sami passa une main sur son visage.
+Savio passa une main sur son visage.
 
 — Il y a une différence entre faire plaisir à une cour avec des briquets et modifier l'issue d'une guerre.
 
@@ -1652,13 +1652,13 @@ Sami passa une main sur son visage.
 
 La remarque frappa juste.
 
-Sami ne répondit pas immédiatement.
+Savio ne répondit pas immédiatement.
 
 — J'ai essayé d'empêcher une mort, dit-il enfin.
 
 — Et le roi essaie d'empêcher celles de ses soldats.
 
-— Tu simplifies tout, dit Adrien.
+— Tu simplifies tout, dit Julien.
 
 — Et toi, tu refuses de voir la situation. Ce roi nous a donné accès à sa cour, nous a enrichis. Si nous ne l'aidons pas et qu'il perd, nous perdons tout.
 
@@ -1676,7 +1676,7 @@ Personne ne plaisanta.
 
 Victor détourna les yeux, puis revint à son argument préféré : ils pouvaient essayer, mesurer les conséquences, se retirer si nécessaire.
 
-Adrien savait déjà que cela ne se passerait pas ainsi.
+Julien savait déjà que cela ne se passerait pas ainsi.
 
 Mais il savait aussi que Victor avait pris sa décision.
 
@@ -1686,9 +1686,9 @@ Le fournisseur que Victor contacta ne posa aucune question au téléphone.
 
 Il se contenta de donner un lieu de rendez-vous.
 
-Victor le connaissait par son frère aîné, qui avait jadis fréquenté des gens dont Adrien préférait ne pas savoir grand-chose.
+Victor avait obtenu ce contact grâce à son frère aîné. Les deux hommes s'étaient connus en prison : le grand frère y avait été incarcéré pour de petits délits, Raoul pour contrebande d'armes.
 
-L'homme les reçut dans un bureau dépouillé. Il avait cette tranquillité désagréable des personnes habituées à ne pas expliquer ce qu'elles font. Ancien militaire, il avait aussi connu la prison à cause de transactions illégales. Sa réputation lui collait à la peau, même lorsqu'il ne parlait pas.
+À trente-sept ans, l'ancien militaire les reçut dans un bureau dépouillé. Il avait cette tranquillité désagréable des personnes habituées à ne pas expliquer ce qu'elles font. Sa réputation lui collait à la peau, même lorsqu'il ne parlait pas.
 
 — Vous voulez quoi ? demanda-t-il.
 
@@ -1714,7 +1714,7 @@ L'homme accepta finalement une première transaction limitée, à une condition 
 
 Il présenta le matériel de façon sommaire, sans chercher à former une petite armée dans son bureau.
 
-Adrien, qui avait accompagné Victor contre son gré, évita de regarder longtemps les armes.
+Julien, qui avait accompagné Victor contre son gré, évita de regarder longtemps les armes.
 
 — Ça ne me plaît pas, murmura-t-il dans la voiture.
 
@@ -1740,27 +1740,27 @@ Ce que le souverain vit le sidéra.
 
 Il comprit sans difficulté que les armes apportées venaient d'un monde capable de frapper bien plus vite et plus loin que ses archers. Il demanda combien d'hommes pourraient en être équipés.
 
-Adrien refusa de répondre.
+Julien refusa de répondre.
 
 Victor répondit à sa place.
 
 La quantité évoquée fit réfléchir le roi. Le montant qu'il proposa fit réfléchir Victor encore davantage.
 
-Sami, lui, regardait les soldats.
+Savio, lui, regardait les soldats.
 
 Ils ne se demandaient pas seulement comment se servir de ces objets. Ils se demandaient à qui ils seraient destinés.
 
 Le roi donna finalement son accord pour une commande beaucoup plus importante.
 
-En sortant de la cour, Sami rejoignit Adrien.
+En sortant de la cour, Savio rejoignit Julien.
 
 — Je ne sais plus si on empêche une catastrophe ou si on en prépare une.
 
-Adrien le regarda.
+Julien le regarda.
 
 — Tu crois qu'on pourra encore dire non ?
 
-Sami n'avait pas la réponse.
+Savio n'avait pas la réponse.
 
 ***
 
@@ -1792,7 +1792,7 @@ Victor sentit que la conversation dérivait.
 
 — Justement.
 
-Le malfrat réunit le stock demandé. Lorsque les amis vinrent le récupérer, il paraissait aussi professionnel que méfiant.
+Raoul réunit le stock demandé. Lorsque les amis vinrent le récupérer, il paraissait aussi professionnel que méfiant.
 
 Il posa pourtant une question de trop :
 
@@ -1876,7 +1876,7 @@ Victor resta bouche ouverte.
 
 — Non. Je viens de comprendre le marché.
 
-Adrien regarda Sami.
+Julien regarda Savio.
 
 — Voilà.
 
@@ -1898,13 +1898,13 @@ Le fournisseur attendait sa condamnation ou sa libération.
 
 Victor attendait qu'on lui rende sa place d'intermédiaire exclusif.
 
-Adrien attendait presque qu'on leur ordonne de rentrer chez eux.
+Julien attendait presque qu'on leur ordonne de rentrer chez eux.
 
 Le roi décida autre chose.
 
 — J'ai besoin d'armes, dit-il. J'ai besoin de ceux qui peuvent me les fournir. Et j'ai besoin de ceux qui connaissent les terres et les hommes que nous allons affronter.
 
-Il regarda tour à tour le malfrat et Sami.
+Il regarda tour à tour Raoul et Savio.
 
 — Vous travaillerez ensemble, tant que cette guerre nous menace.
 
@@ -1914,7 +1914,7 @@ Le souverain leva un doigt.
 
 — Je n'ai pas demandé votre avis.
 
-Le malfrat se redressa, libéré mais surveillé.
+Raoul se redressa, libéré mais surveillé.
 
 Il adressa à Victor un sourire que celui-ci aurait volontiers acheté très cher pour ne jamais revoir.
 
@@ -1934,9 +1934,9 @@ Au début, les soldats trouvaient les armes modernes magnifiques.
 
 Nino le savait parce qu'il en entendait parler tous les jours.
 
-— J'ai vu un homme embrasser une caisse, racontait-il. Une caisse, Adrien. Ça m'a rendu jaloux. Moi, personne ne m'embrasse quand j'arrive avec les provisions.
+— J'ai vu un homme embrasser une caisse, racontait-il. Une caisse, Julien. Ça m'a rendu jaloux. Moi, personne ne m'embrasse quand j'arrive avec les provisions.
 
-— La caisse ne parlait pas, répondit Adrien.
+— La caisse ne parlait pas, répondit Julien.
 
 — Touché.
 
@@ -1944,15 +1944,15 @@ Ils logeaient à présent dans un bâtiment proche de l'enceinte royale. Le roi 
 
 Victor appelait cela « le sommet de notre carrière internationale ».
 
-Adrien appelait cela « une prise d'otages de luxe ».
+Julien appelait cela « une prise d'otages de luxe ».
 
-Sami avait cessé de trouver des mots.
+Savio avait cessé de trouver des mots.
 
 Il passait ses journées entre les cartes du conseiller, les conversations des officiers et des visites de plus en plus fréquentes aux appartements de la princesse, qui reprenait lentement ses forces.
 
 Elle avait voulu le revoir.
 
-Sami s'était accroché à cette idée avec une application presque scientifique.
+Savio s'était accroché à cette idée avec une application presque scientifique.
 
 La jeune femme l'interrogeait sur les villes, les livres et la façon dont il avait appris tant de choses. Il répondait sans mentir ouvertement, mais chaque phrase exigeait une précaution supplémentaire.
 
@@ -1966,7 +1966,7 @@ Elle tourna la tête vers lui.
 
 — Ce n'était pas ma question.
 
-Sami regarda ses mains.
+Savio regarda ses mains.
 
 — Certaines personnes sont plus libres que d'autres.
 
@@ -1986,17 +1986,17 @@ Mais il était certain de penser trop souvent à elle.
 
 ***
 
-Le malfrat, lui, ne s'intéressait guère aux livres.
+Raoul, lui, ne s'intéressait guère aux livres.
 
 Le roi lui avait donné une place dans les préparatifs, assez importante pour flatter son orgueil, assez surveillée pour lui rappeler qu'il n'était pas l'un des leurs.
 
 L'homme se montrait remarquablement à l'aise devant les officiers. Il parlait peu, observait beaucoup, et savait reconnaître ceux qui prétendaient comprendre pour ne pas perdre la face.
 
-Adrien ne l'aimait pas.
+Julien ne l'aimait pas.
 
 Le sentiment était réciproque.
 
-— Tes amis sont nerveux, dit le malfrat à Victor un matin.
+— Tes amis sont nerveux, dit Raoul à Victor un matin.
 
 — Ils s'inquiètent.
 
@@ -2010,7 +2010,7 @@ Victor le fixa.
 
 Victor tourna les talons.
 
-Nino, qui avait assisté à l'échange, se pencha vers Adrien.
+Nino, qui avait assisté à l'échange, se pencha vers Julien.
 
 — Ils seraient adorables s'ils étaient chacun à cent kilomètres de l'autre.
 
@@ -2022,7 +2022,7 @@ Une colonne ennemie avait franchi une frontière disputée. Des villages se vida
 
 Dans les cours, des hommes répétaient des ordres. D'autres vérifiaient du matériel qui paraissait étranger jusqu'à ceux qui le manipulaient. Les chevaux devenaient nerveux au moindre bruit inattendu.
 
-Sami suivit les informations sur une carte.
+Savio suivit les informations sur une carte.
 
 Il connaissait certains noms. Il avait étudié des batailles ressemblant à celle qui se préparait.
 
@@ -2030,9 +2030,9 @@ Mais des éléments ne correspondaient plus à ce qu'il avait lu.
 
 Un capitaine avait changé de camp. Un village qui aurait dû rester neutre avait été évacué. Un officier dont une chronique mentionnait la mort assistait maintenant, bien vivant, à une réunion.
 
-— On a déjà changé quelque chose, murmura Sami.
+— On a déjà changé quelque chose, murmura Savio.
 
-Adrien leva les yeux.
+Julien leva les yeux.
 
 — Quoi ?
 
@@ -2044,11 +2044,11 @@ Adrien leva les yeux.
 
 — Alors dis-le au roi.
 
-Sami fixa la carte.
+Savio fixa la carte.
 
 — Et je lui dis quoi ? Que les livres de mon pays racontent une histoire dont il n'a jamais entendu parler ?
 
-Adrien n'eut pas de réponse.
+Julien n'eut pas de réponse.
 
 ***
 
@@ -2074,7 +2074,7 @@ Des soldats appelaient des camarades qui ne répondaient plus.
 
 Un jeune homme, pas beaucoup plus âgé que Nino, serrait contre lui un morceau de tissu trempé de sang. Un autre demandait où était son frère.
 
-Adrien se détourna.
+Julien se détourna.
 
 — On arrête.
 
@@ -2092,13 +2092,13 @@ Nino avait perdu toute envie de plaisanter.
 
 Il fixa longtemps les chariots, puis alla aider à porter de l'eau.
 
-Sami le suivit.
+Savio le suivit.
 
 Ils passèrent la journée auprès de ceux qui recevaient les blessés, apportant ce qu'ils pouvaient, découvrant qu'on ne devient pas utile simplement parce qu'on vient d'un siècle plus avancé.
 
 La princesse avait insisté pour que les appartements disponibles soient ouverts aux malades et aux familles déplacées.
 
-Quand Sami la retrouva, elle lui demanda :
+Quand Savio la retrouva, elle lui demanda :
 
 — Est-ce votre guerre ?
 
@@ -2126,13 +2126,13 @@ On sonna des cloches.
 
 Des bannières furent déployées.
 
-Victor reçut une accolade d'un officier qu'il connaissait à peine. Le malfrat fut félicité pour son apport. On évoqua des cadeaux, des terres, des titres et des récompenses pour les quatre étrangers.
+Victor reçut une accolade d'un officier qu'il connaissait à peine. Raoul fut félicité pour son apport. On évoqua des cadeaux, des terres, des titres et des récompenses pour les quatre étrangers.
 
 Dans la grande salle, Nino se servit à boire sans toucher au repas.
 
 — C'est peut-être moi, dit-il, mais ça a un goût étrange, la victoire.
 
-Adrien posa son verre.
+Julien posa son verre.
 
 — Tu n'es pas le seul.
 
@@ -2140,17 +2140,17 @@ Victor les entendit.
 
 — On a aidé un royaume à ne pas se faire écraser.
 
-— Et on a fait de ce qui devait être une bataille un massacre, répliqua Adrien.
+— Et on a fait de ce qui devait être une bataille un massacre, répliqua Julien.
 
 — On ne sait pas combien de vies auraient été perdues sans nous.
 
 — Non. Et tu ne sais pas combien ont été perdues à cause de nous.
 
-Victor regarda Sami.
+Victor regarda Savio.
 
 — Dis quelque chose.
 
-Sami fixait la table.
+Savio fixait la table.
 
 — Il a raison sur une chose, dit-il. On ne peut pas comparer ce qui s'est passé avec ce qui aurait pu se passer. Mais on sait une chose : c'est nous qui avons apporté les armes.
 
@@ -2158,7 +2158,7 @@ Le visage de Victor se ferma.
 
 — Donc maintenant, tout serait de ma faute ?
 
-— Tu as promis sans nous demander notre avis, répondit Adrien.
+— Tu as promis sans nous demander notre avis, répondit Julien.
 
 — Vous êtes tous venus ensuite.
 
@@ -2172,19 +2172,19 @@ Et parce que cette vérité rendait leurs accusations plus douloureuses.
 
 Le roi offrit une cérémonie en leur honneur.
 
-Les quatre se présentèrent, comme il aurait été dangereux de refuser. Le malfrat se tenait non loin, vêtu avec une élégance qu'on ne lui avait jamais connue au présent.
+Les quatre se présentèrent, comme il aurait été dangereux de refuser. Raoul se tenait non loin, vêtu avec une élégance qu'on ne lui avait jamais connue au présent.
 
 Quand le souverain parla de ses « bienfaiteurs », Victor baissa les yeux.
 
-Adrien resta immobile.
+Julien resta immobile.
 
-Sami chercha la princesse parmi les invités. Elle était présente, mais son sourire semblait fatigué.
+Savio chercha la princesse parmi les invités. Elle était présente, mais son sourire semblait fatigué.
 
 Nino regarda les portes.
 
 Il pensait aux hommes qui ne reviendraient jamais pour les franchir.
 
-Après les honneurs, le malfrat s'approcha de Victor.
+Après les honneurs, Raoul s'approcha de Victor.
 
 — Une affaire rentable, finalement.
 
@@ -2198,7 +2198,7 @@ Victor serra les dents.
 
 L'homme eut un sourire froid et s'éloigna.
 
-Adrien avait entendu.
+Julien avait entendu.
 
 Il ne dit rien.
 
@@ -2208,9 +2208,9 @@ Au salon, personne ne voulait regarder l'argent.
 
 Victor tenta de renouer avec sa façon habituelle de parler, lançant deux plaisanteries qui moururent avant d'atteindre Nino.
 
-Sami prétexta du travail.
+Savio prétexta du travail.
 
-Adrien se renferma.
+Julien se renferma.
 
 Ils ne se téléphonèrent presque plus pendant plusieurs jours.
 
@@ -2218,11 +2218,11 @@ Ils ne se téléphonèrent presque plus pendant plusieurs jours.
 
 Ce fut Victor qui finit par proposer quelque chose.
 
-Il entra chez Adrien sans prévenir, une boîte de pâtisseries à la main.
+Il entra chez Julien sans prévenir, une boîte de pâtisseries à la main.
 
 — On devrait sortir un peu.
 
-Adrien ne leva pas les yeux de son téléphone.
+Julien ne leva pas les yeux de son téléphone.
 
 — Pour quoi faire ?
 
@@ -2234,7 +2234,7 @@ Victor posa la boîte sur la table.
 
 — Alors pourquoi tu me regardes comme si je t'avais vendu au poids ?
 
-Adrien finit par sourire, malgré lui.
+Julien finit par sourire, malgré lui.
 
 Victor saisit l'occasion.
 
@@ -2244,7 +2244,7 @@ Victor saisit l'occasion.
 
 — Oui.
 
-Adrien fronça les sourcils.
+Julien fronça les sourcils.
 
 — J'ai du mal à voir en quoi retourner là-bas va nous aider.
 
@@ -2254,11 +2254,11 @@ Victor baissa la voix.
 
 Il hésita.
 
-— J'aimerais emmener Inès.
+— J'aimerais emmener Clara.
 
-Adrien se redressa.
+Julien se redressa.
 
-Inès était sa sœur. Elle partageait la vie de Victor depuis assez longtemps pour connaître son ambition et ses mensonges les plus inoffensifs. Elle ignorait pourtant tout des passages.
+Clara était sa sœur. Elle partageait la vie de Victor depuis assez longtemps pour connaître son ambition et ses mensonges les plus inoffensifs. Elle ignorait pourtant tout des passages.
 
 — Tu veux l'emmener où ?
 
@@ -2268,7 +2268,7 @@ Inès était sa sœur. Elle partageait la vie de Victor depuis assez longtemps p
 
 — Justement. Ça pourrait être une surprise.
 
-Adrien le regarda longuement.
+Julien le regarda longuement.
 
 — Victor. On vient de vivre quelque chose qu'on n'aurait jamais dû faire vivre à personne.
 
@@ -2284,7 +2284,7 @@ Il ouvrit la boîte de pâtisseries.
 
 — On a commencé par vouloir s'amuser. Tu te souviens ?
 
-Adrien se souvenait.
+Julien se souvenait.
 
 C'était peut-être le pire.
 
@@ -2294,7 +2294,7 @@ Il prit une pâtisserie et la posa sur une soucoupe.
 
 Victor acquiesça trop vite.
 
-Adrien aurait dû se méfier de cette rapidité.
+Julien aurait dû se méfier de cette rapidité.
 
 Mais il avait envie, lui aussi, de croire qu'une soirée pouvait réparer quelque chose.
 
@@ -2302,7 +2302,7 @@ Mais il avait envie, lui aussi, de croire qu'une soirée pouvait réparer quelqu
 
 ## Chapitre 7 — La mauvaise porte
 
-Inès avait posé trois questions avant de monter en voiture.
+Clara avait posé trois questions avant de monter en voiture.
 
 La première concernait sa tenue.
 
@@ -2322,7 +2322,7 @@ Victor lui ouvrit la portière avec une solennité exagérée.
 
 Il avait préparé cette soirée comme il préparait désormais ses affaires : en espérant que le spectacle effacerait toutes les objections.
 
-Inès le connaissait suffisamment pour deviner qu'il cachait quelque chose.
+Clara le connaissait suffisamment pour deviner qu'il cachait quelque chose.
 
 Elle ne devinait simplement pas quoi.
 
@@ -2348,7 +2348,7 @@ Victor la prit doucement par la main.
 
 — Fais-moi confiance.
 
-Inès observa son visage.
+Clara observa son visage.
 
 La dernière fois qu'il lui avait dit cela, ils avaient acheté une voiture qui n'avait jamais passé le contrôle technique.
 
@@ -2360,7 +2360,7 @@ La dernière fois qu'il lui avait dit cela, ils avaient acheté une voiture qui 
 
 Ils descendirent.
 
-Inès protesta contre les escaliers, l'humidité et le fait que Victor semblait parfaitement connaître ce lieu qui ressemblait à une cave abandonnée.
+Clara protesta contre les escaliers, l'humidité et le fait que Victor semblait parfaitement connaître ce lieu qui ressemblait à une cave abandonnée.
 
 Dans la salle circulaire, elle découvrit des inscriptions sur les murs et une arche de pierre baignée d'une lumière inhabituelle.
 
@@ -2396,7 +2396,7 @@ Ils remontèrent vers la lumière.
 
 À l'extérieur, un chemin bordé d'arbres conduisait à une voiture attelée qui les attendait.
 
-Inès resta immobile en voyant le cocher, les roues de bois, les chevaux et les vêtements des voyageurs.
+Clara resta immobile en voyant le cocher, les roues de bois, les chevaux et les vêtements des voyageurs.
 
 — Mais c'est quoi, exactement ?
 
@@ -2412,13 +2412,13 @@ Elle se tourna vers lui.
 
 Le palais était illuminé.
 
-Inès s'était attendue à une reconstitution soignée. Elle découvrit des couloirs bruissant de conversations, des serviteurs transportant des plateaux, des nobles qui l'observaient comme une inconnue importante, et une table où les mets semblaient appartenir à un tableau.
+Clara s'était attendue à une reconstitution soignée. Elle découvrit des couloirs bruissant de conversations, des serviteurs transportant des plateaux, des nobles qui l'observaient comme une inconnue importante, et une table où les mets semblaient appartenir à un tableau.
 
 Victor rayonnait.
 
 Il avait obtenu cette invitation grâce aux honneurs accordés au groupe. Le conseiller royal était venu les saluer quelques instants. Plusieurs invités les reconnaissaient.
 
-Inès regardait tout avec une attention mêlée d'amusement et de méfiance.
+Clara regardait tout avec une attention mêlée d'amusement et de méfiance.
 
 — C'est vraiment impressionnant, admit-elle.
 
@@ -2434,7 +2434,7 @@ Inès regardait tout avec une attention mêlée d'amusement et de méfiance.
 
 Elle goûta un plat, s'étonna des épices, interrogea un serviteur et se rendit compte que personne ne semblait jouer pour elle.
 
-Plus tard, un musicien entama une mélodie que Victor trouva parfaitement romantique jusqu'à ce qu'Inès s'intéresse davantage à l'instrument qu'à sa déclaration.
+Plus tard, un musicien entama une mélodie que Victor trouva parfaitement romantique jusqu'à ce qu'Clara s'intéresse davantage à l'instrument qu'à sa déclaration.
 
 — Tu as vu comme il le tient ?
 
@@ -2448,7 +2448,7 @@ Il n'en avait aucune envie.
 
 La soirée se passa pourtant mieux qu'il ne l'avait espéré.
 
-Inès rit de ses maladresses, l'écouta raconter quelques anecdotes et cessa un moment de le soupçonner d'avoir organisé un caprice gigantesque pour se faire admirer.
+Clara rit de ses maladresses, l'écouta raconter quelques anecdotes et cessa un moment de le soupçonner d'avoir organisé un caprice gigantesque pour se faire admirer.
 
 Puis elle lui posa une question.
 
@@ -2476,7 +2476,7 @@ Il fit ce qu'il faisait toujours quand une conversation le dépassait.
 
 Il promit de tout raconter plus tard.
 
-Inès sourit sans enthousiasme.
+Clara sourit sans enthousiasme.
 
 — Tu sais que « plus tard » ne veut pas dire « jamais » ?
 
@@ -2490,7 +2490,7 @@ Elle lui tendit la main.
 
 Ils quittèrent le palais tard.
 
-Inès était fatiguée, heureuse par moments, et de plus en plus intriguée par la façon dont Victor se comportait dans cet étrange monde.
+Clara était fatiguée, heureuse par moments, et de plus en plus intriguée par la façon dont Victor se comportait dans cet étrange monde.
 
 Le trajet vers le souterrain fut silencieux.
 
@@ -2510,7 +2510,7 @@ Il aurait peut-être trouvé les mots si une voix n'avait pas retenti derrière 
 
 — Alors c'est elle, la fameuse princesse ?
 
-Le malfrat sortait de l'ombre du couloir.
+Raoul sortait de l'ombre du couloir.
 
 Il avait encore accès au monde médiéval grâce aux accords avec le roi. Il paraissait parfaitement à son aise dans cette salle dont il ne comprenait pourtant pas davantage le fonctionnement.
 
@@ -2518,7 +2518,7 @@ Victor se crispa.
 
 — Dégage.
 
-L'homme regarda Inès.
+L'homme regarda Clara.
 
 — Il ne vous a pas raconté comment il a gagné sa fortune ?
 
@@ -2530,11 +2530,11 @@ Victor fit un pas vers lui.
 
 — Tu fermes ta bouche.
 
-Le malfrat sourit.
+Raoul sourit.
 
 — Vous avez vu comme il sait parler aux gens ? C'est pour ça qu'ils l'aiment tellement à la cour. Tant qu'il peut revendre ce qui appartient aux autres.
 
-Inès se plaça entre eux.
+Clara se plaça entre eux.
 
 — Victor, qu'est-ce qu'il raconte ?
 
@@ -2550,19 +2550,19 @@ Victor le poussa.
 
 L'homme le repoussa plus violemment.
 
-— Arrêtez, lança Inès.
+— Arrêtez, lança Clara.
 
 Ils ne l'écoutèrent pas.
 
-Les accusations sortirent toutes à la fois : l'argent, les armes, le contrat avec le roi, la guerre, les mensonges. Victor frappa le premier. Le malfrat riposta. Ils heurtèrent le socle central en trébuchant l'un sur l'autre.
+Les accusations sortirent toutes à la fois : l'argent, les armes, le contrat avec le roi, la guerre, les mensonges. Victor frappa le premier. Raoul riposta. Ils heurtèrent le socle central en trébuchant l'un sur l'autre.
 
 Un bruit sec retentit sous la pierre.
 
-Sami aurait peut-être reconnu le motif des inscriptions qui s'éclairèrent.
+Savio aurait peut-être reconnu le motif des inscriptions qui s'éclairèrent.
 
 Personne ici ne le regardait.
 
-Victor recula contre une colonne. Le malfrat voulut le rattraper. Un autre choc déclencha une vibration profonde dans la salle.
+Victor recula contre une colonne. Raoul voulut le rattraper. Un autre choc déclencha une vibration profonde dans la salle.
 
 L'arche familière se mit à luire plus vivement.
 
@@ -2572,13 +2572,13 @@ Des ouvertures apparurent là où il n'y avait eu que des murs.
 
 Une lumière bleue. Une lueur sombre traversée de reflets verts. Une troisième teinte, puis d'autres.
 
-Inès se retourna.
+Clara se retourna.
 
 — Qu'est-ce que...
 
 Un nouveau coup fit chanceler Victor. Il entraîna l'ancien militaire contre le socle. Une secousse parcourut le sol.
 
-Inès recula instinctivement, cherchant un appui.
+Clara recula instinctivement, cherchant un appui.
 
 Ses doigts rencontrèrent la pierre froide.
 
@@ -2588,19 +2588,19 @@ Elle eut juste le temps de pousser un cri.
 
 Puis l'une des ouvertures la happa hors de vue.
 
-Victor et le malfrat étaient toujours agrippés l'un à l'autre lorsqu'ils entendirent sa voix s'interrompre.
+Victor et Raoul étaient toujours agrippés l'un à l'autre lorsqu'ils entendirent sa voix s'interrompre.
 
 Ils se séparèrent immédiatement.
 
-— Inès ?
+— Clara ?
 
 Victor chercha autour de lui.
 
-Le malfrat se redressa, le visage soudain fermé.
+Raoul se redressa, le visage soudain fermé.
 
 — Elle était là.
 
-— Inès !
+— Clara !
 
 Victor courut vers l'endroit où elle s'était trouvée.
 
@@ -2608,7 +2608,7 @@ Il ne vit que des portails ouverts, de couleurs différentes, tournés vers des 
 
 — Tu l'as vue entrer où ? hurla-t-il.
 
-Le malfrat regarda les ouvertures.
+Raoul regarda les ouvertures.
 
 — Non.
 
@@ -2620,21 +2620,21 @@ Victor passa d'une porte à l'autre, sans les franchir. Il cria son nom, tendit 
 
 Rien.
 
-Le malfrat resta immobile.
+Raoul resta immobile.
 
 C'était lui qui avait déclenché la bagarre, mais il ne pouvait plus prétendre ignorer les conséquences. Une jeune femme venait de disparaître sous ses yeux.
 
 Victor tremblait en cherchant son téléphone.
 
-Il appela Adrien.
+Il appela Julien.
 
 ***
 
-Quand Adrien décrocha, Victor n'arriva pas à prononcer le nom d'Inès.
+Quand Julien décrocha, Victor n'arriva pas à prononcer le nom d'Clara.
 
 Il essaya deux fois.
 
-Adrien comprit avant qu'il ait fini.
+Julien comprit avant qu'il ait fini.
 
 — Où est-elle ?
 
@@ -2646,19 +2646,19 @@ Adrien comprit avant qu'il ait fini.
 
 Un silence terrible suivit.
 
-Puis Adrien dit :
+Puis Julien dit :
 
 — Ne bouge pas. J'arrive.
 
 ***
 
-Adrien fut le premier à entrer dans la salle.
+Julien fut le premier à entrer dans la salle.
 
-Sami et Nino le suivirent quelques minutes plus tard. Victor avait passé tout ce temps à marcher devant les passages ouverts, incapable d'en choisir un.
+Savio et Nino le suivirent quelques minutes plus tard. Victor avait passé tout ce temps à marcher devant les passages ouverts, incapable d'en choisir un.
 
-Le malfrat se tenait à l'écart.
+Raoul se tenait à l'écart.
 
-Adrien regarda les nouvelles ouvertures.
+Julien regarda les nouvelles ouvertures.
 
 — Où est ma sœur ?
 
@@ -2668,7 +2668,7 @@ Personne ne répondit.
 
 — Je ne sais pas.
 
-Adrien l'attrapa par le col.
+Julien l'attrapa par le col.
 
 — Tu l'as emmenée ici sans lui dire la vérité.
 
@@ -2682,7 +2682,7 @@ L'ancien militaire intervint.
 
 — C'est moi qui ai commencé à le provoquer.
 
-Adrien tourna la tête.
+Julien tourna la tête.
 
 — Alors tu viens aussi de me donner une raison de te détester.
 
@@ -2702,17 +2702,17 @@ Il finit par dire :
 
 Puis il s'éloigna.
 
-Adrien ne tenta pas de le retenir.
+Julien ne tenta pas de le retenir.
 
 ***
 
-Sami attendit que les voix se calment pour parler.
+Savio attendit que les voix se calment pour parler.
 
 — Nous avons plusieurs portes. Nous savons seulement qu'elle est entrée dans l'une d'elles. Il faut éviter de partir au hasard, sinon nous risquons d'en perdre plusieurs autres.
 
-— Fais ton plan, dit Adrien.
+— Fais ton plan, dit Julien.
 
-Sami inspecta la salle, les positions des portails, la zone où Inès s'était tenue et le socle.
+Savio inspecta la salle, les positions des portails, la zone où Clara s'était tenue et le socle.
 
 Victor se força à reconstituer la scène.
 
@@ -2720,21 +2720,21 @@ Il se souvenait vaguement de deux ouvertures proches de l'endroit où elle avait
 
 — Celles-là, dit-il en désignant deux passages. Je pense que c'était l'une de ces deux.
 
-— Tu penses ? répéta Adrien.
+— Tu penses ? répéta Julien.
 
 — Je n'ai rien vu. Mais elle était de ce côté.
 
-Sami hocha la tête.
+Savio hocha la tête.
 
 — Deux hypothèses. Pas une preuve.
 
-Adrien fixa les portails.
+Julien fixa les portails.
 
 — On commence par l'un des deux.
 
-— Pas ce soir, répondit Sami.
+— Pas ce soir, répondit Savio.
 
-Adrien se tourna vers lui.
+Julien se tourna vers lui.
 
 — Quoi ?
 
@@ -2744,13 +2744,13 @@ Adrien se tourna vers lui.
 
 — Je sais. Mais si nous disparaissons aussi, personne ne la retrouvera.
 
-Nino s'approcha de la place où Inès avait disparu.
+Nino s'approcha de la place où Clara avait disparu.
 
 Il n'avait rien dit depuis son arrivée.
 
 — Elle sait revenir dans cette salle ? demanda-t-il.
 
-Sami réfléchit.
+Savio réfléchit.
 
 — Elle connaît le premier passage depuis ce soir. Mais pas les autres. Et elle ne sait peut-être pas où elle a atterri.
 
@@ -2762,13 +2762,13 @@ Nino haussa les épaules.
 
 — Si elle retrouve la salle avant nous, il faut qu'elle sache qu'on la cherche.
 
-Adrien ferma un instant les yeux.
+Julien ferma un instant les yeux.
 
 — Oui.
 
-Ils rédigèrent une lettre. Sami y inscrivit des indications simples et vérifiables, sans mentionner de destination qu'ils ignoraient. Ils repérèrent le passage connu du Moyen Âge, celui qu'Inès avait déjà emprunté, et marquèrent le premier des deux passages qu'ils comptaient explorer.
+Ils rédigèrent une lettre. Savio y inscrivit des indications simples et vérifiables, sans mentionner de destination qu'ils ignoraient. Ils repérèrent le passage connu du Moyen Âge, celui qu'Clara avait déjà emprunté, et marquèrent le premier des deux passages qu'ils comptaient explorer.
 
-Adrien resta le dernier dans la salle.
+Julien resta le dernier dans la salle.
 
 Il posa la lettre bien en évidence, sous une pierre qui l'empêcherait de glisser.
 
@@ -2776,7 +2776,7 @@ Puis il recula.
 
 Sur le papier figuraient quelques mots écrits de sa main :
 
-*Inès, on te cherche. Ne prends pas de risque inutile. On reviendra ici. Ton frère.*
+*Clara, on te cherche. Ne prends pas de risque inutile. On reviendra ici. Ton frère.*
 
 Il fixa longtemps la feuille.
 
@@ -2788,7 +2788,7 @@ Victor acquiesça.
 
 Nino serra la lanière de son sac.
 
-Sami regarda la porte qu'ils avaient choisie.
+Savio regarda la porte qu'ils avaient choisie.
 
 Pour la première fois, ils n'allaient pas traverser un siècle pour gagner quelque chose.
 
@@ -2798,7 +2798,7 @@ Ils allaient traverser l'inconnu pour retrouver quelqu'un.
 
 ## Chapitre 8 — La porte des inconnus
 
-Adrien avait préparé trois sacs, deux listes et une règle.
+Julien avait préparé trois sacs, deux listes et une règle.
 
 La règle tenait en cinq mots : « On ne se sépare jamais. »
 
@@ -2806,11 +2806,11 @@ Nino avait proposé de l'imprimer sur des tee-shirts.
 
 Personne n'avait ri.
 
-Depuis la disparition d'Inès, l'appartement d'Adrien ressemblait à un centre de secours monté par des gens qui n'avaient jamais secouru personne. Il y avait des cartes, des chargeurs, des bouteilles d'eau, de la nourriture emballée et des vêtements choisis pour ressembler le moins possible à quelque chose de précis.
+Depuis la disparition d'Clara, l'appartement d'Julien ressemblait à un centre de secours monté par des gens qui n'avaient jamais secouru personne. Il y avait des cartes, des chargeurs, des bouteilles d'eau, de la nourriture emballée et des vêtements choisis pour ressembler le moins possible à quelque chose de précis.
 
 — C'est quoi, cette veste ? demanda Victor.
 
-— Une veste sans marque, répondit Sami. Pas de couleurs vives, pas de logo.
+— Une veste sans marque, répondit Savio. Pas de couleurs vives, pas de logo.
 
 — On dirait un inspecteur des impôts qui part camper.
 
@@ -2826,23 +2826,23 @@ Nino essayait les talkies-walkies depuis la cuisine.
 
 — Test. Test. Ici l'agent Nino. À vous.
 
-Adrien leva les yeux.
+Julien leva les yeux.
 
 — On est à trois mètres.
 
 — Justement. La liaison est excellente.
 
-Sami inspecta les sacs une dernière fois. Le matériel comprenait de quoi boire, manger, soigner de petites blessures et se repérer. Ils emportaient aussi quelques objets contemporains utiles, dont une petite bombe au poivre destinée à se défendre en cas de danger.
+Savio inspecta les sacs une dernière fois. Le matériel comprenait de quoi boire, manger, soigner de petites blessures et se repérer. Ils emportaient aussi quelques objets contemporains utiles, dont une petite bombe au poivre destinée à se défendre en cas de danger.
 
-— Ça ne fait pas de nous des soldats, prévint Sami.
+— Ça ne fait pas de nous des soldats, prévint Savio.
 
-Adrien hocha la tête.
+Julien hocha la tête.
 
 — Personne ne veut être soldat.
 
 Victor garda le silence.
 
-Il avait passé la nuit à regarder les messages d'Inès sur son téléphone.
+Il avait passé la nuit à regarder les messages d'Clara sur son téléphone.
 
 Le dernier disait simplement : *Je suis prête. Tu m'emmènes où, cette fois ?*
 
@@ -2852,9 +2852,9 @@ Il n'avait pas trouvé la force d'y répondre.
 
 La salle des portails était telle qu'ils l'avaient laissée.
 
-Plusieurs ouvertures luisaient dans la pierre, silencieuses, incompréhensibles. La lettre déposée pour Inès n'avait pas bougé.
+Plusieurs ouvertures luisaient dans la pierre, silencieuses, incompréhensibles. La lettre déposée pour Clara n'avait pas bougé.
 
-Adrien la relut avant de se retourner vers Sami.
+Julien la relut avant de se retourner vers Savio.
 
 — Tu es certain de notre choix ?
 
@@ -2862,7 +2862,7 @@ Adrien la relut avant de se retourner vers Sami.
 
 — Alors pourquoi celle-là ?
 
-Sami désigna Victor.
+Savio désigna Victor.
 
 — Parce qu'il pense qu'elle était près de ces deux portes. Nous ne savons rien d'autre.
 
@@ -2870,19 +2870,19 @@ Victor baissa la tête.
 
 — Je n'ai pas vu laquelle.
 
-— Je sais, dit Adrien.
+— Je sais, dit Julien.
 
 Il ne parlait pas sur un ton de reproche.
 
 C'était presque pire.
 
-Sami vérifia une dernière fois leurs repères.
+Savio vérifia une dernière fois leurs repères.
 
 — On franchit. On note ce qu'on trouve. On reste capables de revenir.
 
 — Et si elle est là, ajouta Nino, on rentre tous ensemble.
 
-Adrien s'approcha de l'ouverture.
+Julien s'approcha de l'ouverture.
 
 Les autres se rangèrent derrière lui.
 
@@ -2896,19 +2896,19 @@ Au-dessus, quelque chose roulait avec un grondement sourd.
 
 — Des camions ? murmura Nino.
 
-Sami toucha les parois.
+Savio toucha les parois.
 
 — Je ne crois pas.
 
 Ils trouvèrent un escalier qui montait vers une ouverture dans un mur. Le passage débouchait derrière une bâtisse basse. Une odeur d'huile, de fumée et d'animaux emplissait l'air.
 
-Adrien passa la tête dehors.
+Julien passa la tête dehors.
 
 Il vit d'abord les charrettes.
 
 Puis les sandales, les tuniques, les hommes portant des amphores, les colonnes et les façades de pierre.
 
-Sami sortit derrière lui.
+Savio sortit derrière lui.
 
 Une seconde plus tard, il s'arrêta net.
 
@@ -2918,7 +2918,7 @@ Nino suivit son regard.
 
 — Oh quoi ?
 
-Sami tournait lentement sur lui-même.
+Savio tournait lentement sur lui-même.
 
 — Je pense que nous sommes à Rome.
 
@@ -2926,7 +2926,7 @@ Victor scruta la rue.
 
 — Une autre reconstitution ?
 
-Adrien lui lança un regard si dur qu'il leva immédiatement les mains.
+Julien lui lança un regard si dur qu'il leva immédiatement les mains.
 
 — Je retire.
 
@@ -2934,9 +2934,9 @@ La foule les dépassait sans s'intéresser particulièrement à eux. Un porteur 
 
 À gauche, la rue s'ouvrait sur une place animée.
 
-— Il faut retrouver le passage, dit Adrien. On note l'endroit.
+— Il faut retrouver le passage, dit Julien. On note l'endroit.
 
-Sami prit quelques photos discrètes et mémorisa le trajet, puis indiqua qu'il valait mieux s'éloigner du mur sans attirer l'attention.
+Savio prit quelques photos discrètes et mémorisa le trajet, puis indiqua qu'il valait mieux s'éloigner du mur sans attirer l'attention.
 
 Les quatre progressèrent dans une ville qui semblait trop grande pour que leur disparition puisse y laisser la moindre trace.
 
@@ -2946,9 +2946,9 @@ Victor regarda les passants.
 
 — On n'en sait rien.
 
-Adrien tenta de distinguer les visages féminins de la foule.
+Julien tenta de distinguer les visages féminins de la foule.
 
-Chaque silhouette qui avait la taille d'Inès lui coupait un instant le souffle.
+Chaque silhouette qui avait la taille d'Clara lui coupait un instant le souffle.
 
 Il se répétait de ne pas regarder ainsi.
 
@@ -2962,21 +2962,21 @@ Nino observait tout avec une curiosité inquiète.
 
 — Ils n'ont vraiment rien fait pour nous faciliter la visite.
 
-— Ce n'est pas une visite, dit Adrien.
+— Ce n'est pas une visite, dit Julien.
 
 — Je sais.
 
-Sami essayait de comprendre les habitudes locales. Sa passion pour l'histoire demeurait intacte, même si elle se mêlait maintenant à une peur très concrète : il ne connaissait pas les règles qui protégeraient quatre étrangers sans famille ni statut.
+Savio essayait de comprendre les habitudes locales. Sa passion pour l'histoire demeurait intacte, même si elle se mêlait maintenant à une peur très concrète : il ne connaissait pas les règles qui protégeraient quatre étrangers sans famille ni statut.
 
 Plus loin, la foule s'était rassemblée devant une cour où plusieurs personnes attendaient sous surveillance.
 
 Des hommes. Des femmes. Des captifs attachés à une même corde.
 
-Adrien détourna les yeux, puis les ramena aussitôt.
+Julien détourna les yeux, puis les ramena aussitôt.
 
 Parmi eux se trouvait une jeune femme brune, le visage à moitié dissimulé.
 
-Sa silhouette lui rappela Inès.
+Sa silhouette lui rappela Clara.
 
 Il s'arrêta si brusquement que Nino lui rentra dans le dos.
 
@@ -2990,11 +2990,11 @@ Victor suivit son regard.
 
 La jeune femme releva la tête.
 
-Adrien sentit son cœur s'emballer.
+Julien sentit son cœur s'emballer.
 
 Il avança.
 
-— Inès !
+— Clara !
 
 Plusieurs passants se retournèrent.
 
@@ -3002,7 +3002,7 @@ La femme regarda vers eux, surprise.
 
 Ce n'était pas elle.
 
-Adrien le comprit à moins de deux mètres.
+Julien le comprit à moins de deux mètres.
 
 Il resta immobile, honteux de son espoir et soulagé, d'une façon qu'il ne comprenait pas lui-même, de n'avoir pas trouvé sa sœur dans cette cour.
 
@@ -3014,13 +3014,13 @@ Un surveillant s'approcha.
 
 — Écartez-vous.
 
-Adrien recula.
+Julien recula.
 
 Mais Victor avait déjà vu un vieil homme tomber près de l'entrée et recevoir un coup pour avoir ralenti la file.
 
 — Hé ! lança-t-il.
 
-Sami se tourna vers lui.
+Savio se tourna vers lui.
 
 — Ne fais pas ça.
 
@@ -3032,7 +3032,7 @@ Le surveillant se retourna lentement.
 
 Un deuxième homme vint à ses côtés.
 
-Adrien posa une main sur le bras de Victor.
+Julien posa une main sur le bras de Victor.
 
 — On part.
 
@@ -3052,11 +3052,11 @@ Le coup vint trop vite pour être anticipé.
 
 Nino tomba sur le côté.
 
-Adrien se jeta entre les deux hommes.
+Julien se jeta entre les deux hommes.
 
 Victor repoussa le surveillant.
 
-Sami cria qu'ils n'avaient pas voulu provoquer de trouble.
+Savio cria qu'ils n'avaient pas voulu provoquer de trouble.
 
 C'était trop tard.
 
@@ -3064,7 +3064,7 @@ Des gardes traversèrent la place.
 
 La foule recula avec la rapidité de ceux qui connaissent exactement ce qui va suivre.
 
-Adrien reçut un choc dans le dos. Quelqu'un immobilisa Victor. Sami essaya de calmer les soldats, mais les voix se couvraient les unes les autres.
+Julien reçut un choc dans le dos. Quelqu'un immobilisa Victor. Savio essaya de calmer les soldats, mais les voix se couvraient les unes les autres.
 
 Nino se remit péniblement debout.
 
@@ -3074,23 +3074,23 @@ Le responsable de la cour les regarda avec une colère froide.
 
 — Vous attaquez mes hommes et vous dérangez la vente ?
 
-Adrien voulut expliquer.
+Julien voulut expliquer.
 
 L'homme ne le laissa pas finir.
 
 Il appela un officier, désigna les quatre étrangers et parla assez fort pour que la foule les entende.
 
-Sami ne distingua pas chaque mot.
+Savio ne distingua pas chaque mot.
 
 Mais il comprit le principal.
 
 Ils étaient désormais considérés comme des fauteurs de trouble, et leur absence de statut local n'allait pas les aider.
 
-Victor tourna la tête vers Adrien.
+Victor tourna la tête vers Julien.
 
 — On est vraiment très mauvais pour passer inaperçus.
 
-Adrien ne répondit pas.
+Julien ne répondit pas.
 
 Il venait d'apercevoir, au-delà des gardes, la rue qui les avait conduits ici.
 
@@ -3110,13 +3110,13 @@ La cellule avait un défaut majeur : elle obligeait les quatre amis à se regard
 
 Depuis une heure, Victor expliquait pourquoi ce qui leur arrivait n'était pas vraiment sa faute.
 
-Depuis une heure, Adrien lui répondait que personne ne lui avait demandé de faire une conférence.
+Depuis une heure, Julien lui répondait que personne ne lui avait demandé de faire une conférence.
 
-Sami, assis contre le mur, essayait d'estimer la distance jusqu'au portail. Nino, à côté de lui, massait son épaule endolorie.
+Savio, assis contre le mur, essayait d'estimer la distance jusqu'au portail. Nino, à côté de lui, massait son épaule endolorie.
 
 — Ça aurait pu être pire, déclara soudain Nino.
 
-Adrien le fixa.
+Julien le fixa.
 
 — Je t'écoute.
 
@@ -3130,7 +3130,7 @@ Victor se leva.
 
 — On ne va quand même pas rester ici pour avoir voulu aider un vieux monsieur !
 
-— On a bousculé des hommes armés, répondit Sami.
+— On a bousculé des hommes armés, répondit Savio.
 
 — C'est eux qui nous ont frappés !
 
@@ -3150,7 +3150,7 @@ Ils ne pouvaient même pas indiquer une famille à prévenir.
 
 L'homme nota quelques mots et s'apprêta à sortir.
 
-Sami se leva.
+Savio se leva.
 
 — Nous pouvons payer.
 
@@ -3198,7 +3198,7 @@ Nino attendit que ses pas se soient éloignés.
 
 — Ce serait le moment où tu nous expliques qu'ils organisent des Jeux olympiques ?
 
-Sami leva lentement les yeux.
+Savio leva lentement les yeux.
 
 — Non.
 
@@ -3206,11 +3206,11 @@ Sami leva lentement les yeux.
 
 — Je crains que non.
 
-Adrien se tourna vers lui.
+Julien se tourna vers lui.
 
 — Dis-le.
 
-Sami regarda la porte.
+Savio regarda la porte.
 
 — Une arène.
 
@@ -3234,11 +3234,11 @@ Victor s'arrêta.
 
 — Non.
 
-Adrien suivit son regard.
+Julien suivit son regard.
 
 L'homme assis au fond de la cellule avait une arcade sourcilière enflée et un air extrêmement mécontent.
 
-C'était le malfrat.
+C'était Raoul.
 
 — Vous ? demanda Victor.
 
@@ -3252,27 +3252,27 @@ Nino regarda le plafond.
 
 — Il faut arrêter de lui donner nos adresses de vacances.
 
-Le malfrat se leva avec difficulté.
+Raoul se leva avec difficulté.
 
 Il avait quitté la salle des portails de son côté, intéressé par ce qu'il pouvait découvrir dans les autres époques. Après son passage vers Rome, il avait voulu utiliser ses talents de négociateur sans comprendre les règles de la ville. La conversation s'était mal terminée avec des gardes.
 
 — J'ai été arrêté, résuma-t-il.
 
-— Ça, on avait deviné, dit Adrien.
+— Ça, on avait deviné, dit Julien.
 
 L'homme regarda leurs vêtements.
 
 — Et vous ?
 
-— On cherchait Inès, répondit Victor.
+— On cherchait Clara, répondit Victor.
 
-L'expression du malfrat changea, à peine.
+L'expression de Raoul changea, à peine.
 
 — Vous ne l'avez pas trouvée.
 
 Ce n'était pas une question.
 
-Adrien fit un pas vers lui.
+Julien fit un pas vers lui.
 
 — On n'est pas ici pour recommencer notre bagarre.
 
@@ -3292,11 +3292,11 @@ Cinq hommes.
 
 Aucun n'était préparé à l'exercice qu'on leur imposait. Le responsable voulait du spectacle, pas des professionnels : des étrangers ignorants des usages, assez maladroits pour divertir, assez vulnérables pour créer du suspense.
 
-Sami essaya d'obtenir des précisions sur leurs adversaires.
+Savio essaya d'obtenir des précisions sur leurs adversaires.
 
 Un garde lui répondit par un haussement d'épaules.
 
-Adrien demanda s'ils pouvaient refuser.
+Julien demanda s'ils pouvaient refuser.
 
 On lui montra la porte fermée.
 
@@ -3306,17 +3306,17 @@ On leur avait retiré la plupart des objets modernes sans chercher à comprendre
 
 Ils conservaient cependant quelques effets personnels, considérés comme insignifiants par les gardes : un petit miroir, une lampe compacte et une bombe au poivre dont personne n'avait compris l'usage.
 
-Sami les examina, soucieux.
+Savio les examina, soucieux.
 
 — Ça ne nous sauvera pas.
 
 — Tu vois, dit Nino, même toi tu deviens optimiste.
 
-Le malfrat s'approcha.
+Raoul s'approcha.
 
 — Écoutez-moi. On ne connaît pas leurs règles, et eux ne connaissent pas nos objets. Mais il y a une chose que je sais : si vous commencez à courir chacun de votre côté, vous êtes morts.
 
-Adrien le fixa.
+Julien le fixa.
 
 — Tu veux nous diriger ?
 
@@ -3326,15 +3326,15 @@ Ce fut Victor qui intervint.
 
 — Il n'a pas tort.
 
-Adrien se retourna vers lui, incrédule.
+Julien se retourna vers lui, incrédule.
 
 — Tu viens vraiment de dire ça ?
 
 — La situation est suffisamment grave pour que je fasse un effort.
 
-Sami observa les hommes autour d'eux.
+Savio observa les hommes autour d'eux.
 
-Le malfrat semblait capable de garder son sang-froid. Adrien savait rassembler le groupe. Lui pouvait analyser ce qu'ils voyaient. Victor comprenait les échanges de regards et les intentions des gens. Nino avait parfois l'idée à laquelle personne ne pensait.
+Raoul semblait capable de garder son sang-froid. Julien savait rassembler le groupe. Lui pouvait analyser ce qu'ils voyaient. Victor comprenait les échanges de regards et les intentions des gens. Nino avait parfois l'idée à laquelle personne ne pensait.
 
 Cela ne ressemblait pas à une armée.
 
@@ -3356,7 +3356,7 @@ Victor tendit la main.
 
 — Argument universel, répondit Nino.
 
-Il donna finalement la plus grosse part au malfrat.
+Il donna finalement la plus grosse part à Raoul.
 
 L'ancien militaire la regarda.
 
@@ -3364,7 +3364,7 @@ L'ancien militaire la regarda.
 
 — Parce que tu vas probablement nous empêcher de mourir demain.
 
-Le malfrat ne prit pas le pain tout de suite.
+Raoul ne prit pas le pain tout de suite.
 
 — Tu crois que je peux faire ça ?
 
@@ -3394,15 +3394,15 @@ Au matin, ils entendirent le public avant de voir l'arène.
 
 Un grondement montait des galeries, rythmé de cris et de bruits métalliques. L'air vibrait d'une impatience qui n'avait rien à voir avec leur peur.
 
-Adrien se plaça devant les quatre autres.
+Julien se plaça devant les quatre autres.
 
 — On reste ensemble.
 
 Victor acquiesça.
 
-Sami inspira profondément.
+Savio inspira profondément.
 
-Nino glissa un regard vers le malfrat.
+Nino glissa un regard vers Raoul.
 
 — Au fait, si on survit, tu me dois une explication.
 
@@ -3410,7 +3410,7 @@ Nino glissa un regard vers le malfrat.
 
 — Sur la façon dont tu as réussi à te faire arrêter sans nous.
 
-Le malfrat eut un sourire bref, le premier depuis leur rencontre en prison.
+Raoul eut un sourire bref, le premier depuis leur rencontre en prison.
 
 La grille s'ouvrit.
 
@@ -3436,11 +3436,11 @@ Le public les accueillit par un grondement de curiosité. De hautes tribunes enf
 
 — Ils nous prennent pour quoi ? murmura Victor.
 
-— Pour quelque chose qui va les distraire, répondit Sami.
+— Pour quelque chose qui va les distraire, répondit Savio.
 
-Adrien faisait de son mieux pour regarder droit devant lui.
+Julien faisait de son mieux pour regarder droit devant lui.
 
-Le malfrat observait les portes.
+Raoul observait les portes.
 
 Nino aurait préféré observer autre chose. N'importe quoi.
 
@@ -3448,7 +3448,7 @@ Un arbre, par exemple.
 
 Une boulangerie.
 
-La cuisine d'Adrien, avec son évier qui fuyait et son frigo toujours vide.
+La cuisine d'Julien, avec son évier qui fuyait et son frigo toujours vide.
 
 Une voix porta à travers l'arène. L'homme qui présentait les jeux fit de grands gestes. Les spectateurs réagirent avec enthousiasme.
 
@@ -3462,15 +3462,15 @@ Elle ne le rassura pas.
 
 Un garde posa près d'eux quelques protections grossières et des objets de bois destinés à l'affrontement. L'organisateur voulait une lutte visible, violente et bruyante.
 
-Adrien se tourna vers les autres.
+Julien se tourna vers les autres.
 
 — Restez près de moi.
 
-Le malfrat secoua la tête.
+Raoul secoua la tête.
 
 — On reste ensemble, pas derrière toi.
 
-Adrien accepta la correction.
+Julien accepta la correction.
 
 Le signal fut donné.
 
@@ -3480,17 +3480,17 @@ Au début, ce ne fut pas un combat.
 
 Ce fut un désordre.
 
-Les hommes de l'autre groupe avancèrent avec hésitation. Victor recula si brusquement qu'il heurta Sami. Un objet de bois frappa la terre près de Nino. Celui-ci poussa un cri qu'il aurait préféré ne jamais entendre sortir de sa bouche.
+Les hommes de l'autre groupe avancèrent avec hésitation. Victor recula si brusquement qu'il heurta Savio. Un objet de bois frappa la terre près de Nino. Celui-ci poussa un cri qu'il aurait préféré ne jamais entendre sortir de sa bouche.
 
 Le public éclata de rire.
 
 — Je déteste cet endroit ! hurla-t-il.
 
-— Concentre-toi ! lança Adrien.
+— Concentre-toi ! lança Julien.
 
 — Sur quoi ? Ils ont tous envie de nous frapper !
 
-Sami essaya de comprendre ce que les spectateurs attendaient. Les cinq n'étaient pas entraînés. Leurs adversaires non plus. Il n'y avait pas de logique glorieuse, seulement des corps qui cherchaient maladroitement à ne pas tomber.
+Savio essaya de comprendre ce que les spectateurs attendaient. Les cinq n'étaient pas entraînés. Leurs adversaires non plus. Il n'y avait pas de logique glorieuse, seulement des corps qui cherchaient maladroitement à ne pas tomber.
 
 Victor comprit le premier qu'ils pouvaient essayer de parler.
 
@@ -3508,7 +3508,7 @@ Ils lui firent davantage peur que les armes.
 
 Des gardes, sur le bord, crièrent pour qu'ils reprennent l'affrontement. Le public huait déjà l'hésitation.
 
-Le malfrat regarda les autres prisonniers.
+Raoul regarda les autres prisonniers.
 
 Il les avait considérés comme une menace.
 
@@ -3518,13 +3518,13 @@ Il baissa son arme de bois.
 
 — Personne ne veut jouer à leur jeu, dit-il.
 
-Adrien hésita.
+Julien hésita.
 
 — Alors qu'est-ce qu'on fait ?
 
 La réponse vint d'un choc derrière eux.
 
-L'un des captifs, poussé par la peur, s'était élancé. Son geste renversa Sami. Un deuxième homme courut à leur rencontre, et les sept hommes se retrouvèrent à se débattre presque à l'aveugle.
+L'un des captifs, poussé par la peur, s'était élancé. Son geste renversa Savio. Un deuxième homme courut à leur rencontre, et les sept hommes se retrouvèrent à se débattre presque à l'aveugle.
 
 Nino sortit un petit objet de sa poche.
 
@@ -3536,11 +3536,11 @@ Dans une confusion de bras et de cris, il en fit un usage bref et maladroit. Le 
 
 L'homme se mit à tousser.
 
-— Nino ! hurla Sami.
+— Nino ! hurla Savio.
 
 — Je sais ! Je sais !
 
-Le malfrat attrapa Nino par la veste et l'éloigna de la mêlée.
+Raoul attrapa Nino par la veste et l'éloigna de la mêlée.
 
 L'effet avait interrompu l'affrontement quelques secondes. Il n'avait rien réglé.
 
@@ -3550,7 +3550,7 @@ Les organisateurs se penchèrent en avant.
 
 Un des gardes appela quelqu'un.
 
-Sami, au sol, remarqua tout cela.
+Savio, au sol, remarqua tout cela.
 
 Ils étaient en train de devenir le spectacle qu'on attendait d'eux.
 
@@ -3560,7 +3560,7 @@ L'un des captifs voulut reculer, mais un garde lui barra le passage.
 
 Il avait le visage rougi par la poussière et les larmes.
 
-Adrien le vit trébucher.
+Julien le vit trébucher.
 
 Il tendit la main.
 
@@ -3570,17 +3570,17 @@ L'homme hésita.
 
 Puis il se rapprocha d'eux.
 
-Le malfrat jura.
+Raoul jura.
 
 — Tu vas faire entrer tout le monde dans notre groupe ?
 
-— On n'est pas obligés de se tuer, répondit Adrien.
+— On n'est pas obligés de se tuer, répondit Julien.
 
-Le malfrat regarda le garde, puis le public.
+Raoul regarda le garde, puis le public.
 
 — Essaie de leur expliquer.
 
-Sami se releva avec difficulté.
+Savio se releva avec difficulté.
 
 — Ils veulent voir quelque chose, dit-il.
 
@@ -3600,25 +3600,25 @@ La petite lampe qu'ils avaient conservée.
 
 Elle ne pouvait pas combattre à leur place. Elle ne pouvait pas ouvrir les grilles. Mais elle pouvait produire quelque chose que personne autour d'eux n'avait jamais vu.
 
-— Sami, chuchota-t-il, le truc qui fait de la lumière...
+— Savio, chuchota-t-il, le truc qui fait de la lumière...
 
-Sami comprit.
+Savio comprit.
 
 Il vérifia que la lampe fonctionnait encore.
 
 Un faisceau blanc jaillit entre leurs mains.
 
-En plein soleil, son effet était moins spectaculaire qu'ils ne l'avaient espéré. Mais lorsque Sami le dirigea vers une partie ombragée de la piste, plusieurs hommes près de la grille reculèrent de surprise.
+En plein soleil, son effet était moins spectaculaire qu'ils ne l'avaient espéré. Mais lorsque Savio le dirigea vers une partie ombragée de la piste, plusieurs hommes près de la grille reculèrent de surprise.
 
 L'organisateur se leva.
 
 Un nouveau murmure traversa les tribunes.
 
-Le malfrat regarda la lampe.
+Raoul regarda la lampe.
 
 — Qu'est-ce que vous faites ?
 
-— J'essaie de nous faire remarquer pour autre chose que notre mort, répondit Sami.
+— J'essaie de nous faire remarquer pour autre chose que notre mort, répondit Savio.
 
 Victor tourna la tête vers la plate-forme réservée aux personnages importants.
 
@@ -3630,7 +3630,7 @@ Pas les combattants.
 
 — Celui-là, dit Victor, il comprend qu'on a quelque chose à vendre.
 
-Adrien ne savait pas si cette phrase devait lui redonner espoir ou le désespérer.
+Julien ne savait pas si cette phrase devait lui redonner espoir ou le désespérer.
 
 Mais une nouvelle porte venait peut-être de s'ouvrir.
 
@@ -3644,11 +3644,11 @@ Un des captifs, paniqué, se précipita dans une mauvaise direction. Il heurta N
 
 Nino se retrouva au sol, sonné.
 
-Adrien voulut courir vers lui.
+Julien voulut courir vers lui.
 
 Un garde lui barra la route.
 
-Le malfrat, lui, avait une ouverture. Il se trouvait presque au niveau d'une grille latérale. Un soldat avait déplacé une barrière ; pendant quelques secondes, il aurait pu atteindre le passage.
+Raoul, lui, avait une ouverture. Il se trouvait presque au niveau d'une grille latérale. Un soldat avait déplacé une barrière ; pendant quelques secondes, il aurait pu atteindre le passage.
 
 Il l'aperçut.
 
@@ -3656,11 +3656,11 @@ Il aperçut aussi Nino, qui tentait de se relever pendant qu'un homme armé avan
 
 Victor cria.
 
-Sami leva la lampe.
+Savio leva la lampe.
 
-Adrien se débattait pour passer.
+Julien se débattait pour passer.
 
-Le malfrat hésita.
+Raoul hésita.
 
 Une seconde seulement.
 
@@ -3676,7 +3676,7 @@ La foule rugit lorsque les deux silhouettes se rejoignirent au milieu du sable.
 
 ## Chapitre 11 — L'ennemi qui ne l'est plus
 
-Le malfrat arriva près de Nino avant le garde.
+Raoul arriva près de Nino avant le garde.
 
 Il ne chercha pas à frapper l'homme. Il se plaça entre les deux, les mains levées, criant qu'ils avaient cessé de combattre.
 
@@ -3684,9 +3684,9 @@ Le garde s'arrêta une seconde, surpris par ce prisonnier qui lui demandait pres
 
 Une seconde suffisait.
 
-Adrien réussit à les rejoindre.
+Julien réussit à les rejoindre.
 
-Sami, qui avait conservé la lampe, fit jaillir une nouvelle fois son faisceau.
+Savio, qui avait conservé la lampe, fit jaillir une nouvelle fois son faisceau.
 
 Sur les gradins, les murmures devinrent des exclamations.
 
@@ -3706,9 +3706,9 @@ Les gardes reçurent l'ordre de séparer les prisonniers et de les ramener dans 
 
 Nino tremblait encore lorsqu'il réussit à se tenir debout.
 
-Le malfrat avait une coupure au bras et une épaule douloureuse.
+Raoul avait une coupure au bras et une épaule douloureuse.
 
-— Tu aurais pu filer, dit Adrien en regardant la grille restée ouverte.
+— Tu aurais pu filer, dit Julien en regardant la grille restée ouverte.
 
 L'homme tourna la tête.
 
@@ -3716,13 +3716,13 @@ L'homme tourna la tête.
 
 — Tu l'as vue.
 
-Le malfrat ne répondit pas tout de suite.
+Raoul ne répondit pas tout de suite.
 
 Il regarda Nino, puis la poussière sur sa propre tunique.
 
 — Ça ne m'aurait pas amené très loin.
 
-Adrien savait qu'il mentait un peu.
+Julien savait qu'il mentait un peu.
 
 Et pour la première fois, il choisit de ne pas le lui reprocher.
 
@@ -3734,17 +3734,17 @@ Une cruche d'eau avait été posée sur une table. Nino s'y accrocha avec tant d
 
 — Elle m'a sauvé la vie, répondit Nino.
 
-— C'est ce qu'on dit aussi de lui, fit Victor en désignant le malfrat.
+— C'est ce qu'on dit aussi de lui, fit Victor en désignant Raoul.
 
 L'ancien militaire s'assit.
 
 — Ne commencez pas.
 
-Sami examina la lampe.
+Savio examina la lampe.
 
 — Elle fonctionne encore, mais pas pour longtemps.
 
-Adrien lui lança un regard.
+Julien lui lança un regard.
 
 — Et tu comptes faire quoi avec ? Éclairer la sortie ?
 
@@ -3758,13 +3758,13 @@ Il s'assit sans demander la permission.
 
 — Qui a fabriqué cet objet ?
 
-Sami conserva le silence.
+Savio conserva le silence.
 
 L'homme désigna la lampe.
 
 — Vous avez produit une lumière sans flamme. On m'a dit qu'elle pouvait fonctionner dans une pièce entièrement close.
 
-— Jusqu'à épuisement de sa réserve, répondit Sami.
+— Jusqu'à épuisement de sa réserve, répondit Savio.
 
 Le visiteur parut apprécier la précision.
 
@@ -3774,7 +3774,7 @@ Victor se redressa immédiatement.
 
 — Enfin quelqu'un de raisonnable.
 
-Adrien ferma les yeux.
+Julien ferma les yeux.
 
 — Victor.
 
@@ -3782,7 +3782,7 @@ Le notable leur expliqua qu'il possédait assez d'influence pour négocier leur 
 
 Il voulait les objets lumineux et tout ce qui pourrait prouver qu'ils n'avaient pas imaginé ce qu'il avait vu.
 
-Sami fut le premier à protester.
+Savio fut le premier à protester.
 
 — Nous ne pouvons pas simplement vous laisser utiliser quelque chose que vous ne comprenez pas.
 
@@ -3798,7 +3798,7 @@ L'homme accepta de discuter, mais pas très longtemps.
 
 Ils avaient plusieurs objets modernes, même si une partie du matériel avait été confisquée. Ils pourraient en abandonner certains, dont la lampe, contre leur sortie et le paiement exigé par les autorités.
 
-Adrien posa une condition :
+Julien posa une condition :
 
 — Nous sortons tous les cinq.
 
@@ -3808,11 +3808,11 @@ Le notable compta les hommes.
 
 La question les surprit.
 
-Ils regardèrent le malfrat.
+Ils regardèrent Raoul.
 
 Celui-ci baissa les yeux.
 
-Victor aurait pu répondre que non. Que le cinquième avait été leur ennemi. Qu'il avait volé leur marché, humilié l'un d'eux et contribué à la disparition d'Inès.
+Victor aurait pu répondre que non. Que le cinquième avait été leur ennemi. Qu'il avait volé leur marché, humilié l'un d'eux et contribué à la disparition d'Clara.
 
 Il ne dit rien.
 
@@ -3832,7 +3832,7 @@ Ce ne fut pas une transaction propre, ni une jolie démonstration de commerce.
 
 L'organisateur voulait être indemnisé. Certains responsables réclamaient qu'on ne les revoie plus. Le notable promettait de tirer parti des merveilles qu'il obtenait en échange.
 
-Les cinq abandonnèrent presque tout ce qui aurait pu attirer d'autres convoitises : des objets modernes, des petits accessoires, une partie du matériel de secours et des biens qu'ils avaient espéré conserver pour retrouver Inès.
+Les cinq abandonnèrent presque tout ce qui aurait pu attirer d'autres convoitises : des objets modernes, des petits accessoires, une partie du matériel de secours et des biens qu'ils avaient espéré conserver pour retrouver Clara.
 
 Ils ne purent pas obtenir la libération des autres captifs de l'arène. Ils demandèrent au moins qu'on ne poursuive pas l'épreuve interrompue le matin même. L'homme qui négociait ne leur promit que d'intervenir en leur faveur.
 
@@ -3842,7 +3842,7 @@ Nino en fut plus affecté qu'il ne voulut le montrer.
 
 — Justement, répondit Nino. Nous non plus, personne ne nous connaissait.
 
-Adrien ne trouva rien à dire.
+Julien ne trouva rien à dire.
 
 Ils quittèrent enfin le bâtiment sous escorte.
 
@@ -3858,7 +3858,7 @@ La ville semblait différente.
 
 Quelques heures plus tôt, Rome avait été un spectacle grandiose. À présent, les quatre amis voyaient surtout les rues où ils auraient pu être arrêtés, les gens qui n'avaient aucune raison de leur venir en aide, et les mille façons de disparaître dans une foule sans laisser de trace.
 
-Le malfrat marchait derrière eux.
+Raoul marchait derrière eux.
 
 Personne ne lui avait demandé de le faire.
 
@@ -3878,11 +3878,11 @@ L'homme regarda le chemin.
 
 La réponse n'était pas vraiment une excuse.
 
-Adrien s'arrêta.
+Julien s'arrêta.
 
 — Pourquoi tu es revenu chercher Nino ?
 
-Le malfrat soupira.
+Raoul soupira.
 
 — On a déjà parlé de ça.
 
@@ -3896,7 +3896,7 @@ L'homme fixa Nino, qui mâchonnait nerveusement une miette de pain conservée de
 
 — Peut-être.
 
-Adrien attendit.
+Julien attendit.
 
 — J'ai passé trop d'années à décider que la peau des autres valait moins cher que la mienne, finit par dire l'ancien militaire. C'est tout.
 
@@ -3904,17 +3904,17 @@ Nino cessa de mâcher.
 
 Victor regarda ailleurs.
 
-Sami observa longtemps cet homme qu'il n'avait jusque-là connu que comme un rival dangereux.
+Savio observa longtemps cet homme qu'il n'avait jusque-là connu que comme un rival dangereux.
 
 Rien n'effaçait ce qu'il avait fait.
 
 Mais quelque chose avait changé.
 
-Adrien reprit la marche.
+Julien reprit la marche.
 
 — Alors viens.
 
-Le malfrat ne bougea pas.
+Raoul ne bougea pas.
 
 — Quoi ?
 
@@ -3924,7 +3924,7 @@ Le malfrat ne bougea pas.
 
 — Ma sœur. Et la compagne de Victor.
 
-Adrien fit un pas, puis se retourna.
+Julien fit un pas, puis se retourna.
 
 — Si tu viens, tu viens pour elle. Pas pour l'or ni pour les armes. Et tu ne nous laisseras pas tomber au premier ennui.
 
@@ -3936,7 +3936,7 @@ Victor souffla.
 
 — C'est aussi simple que ça ?
 
-— Non, répondit Adrien. Mais c'est un début.
+— Non, répondit Julien. Mais c'est un début.
 
 ***
 
@@ -3944,7 +3944,7 @@ Ils retrouvèrent la galerie d'où ils avaient émergé, puis le passage vers la
 
 Ils s'arrêtèrent un instant devant l'ouverture.
 
-Nino se tourna vers le malfrat.
+Nino se tourna vers Raoul.
 
 — Alors, maintenant qu'on est amis...
 
@@ -3960,15 +3960,15 @@ L'homme eut un sourire fatigué.
 
 Ils traversèrent.
 
-De retour dans la première salle, Adrien posa les mains sur ses genoux et inspira profondément.
+De retour dans la première salle, Julien posa les mains sur ses genoux et inspira profondément.
 
-La lettre pour Inès était toujours là.
+La lettre pour Clara était toujours là.
 
 Il la releva.
 
 Rien n'indiquait qu'elle ait repassé cette porte.
 
-Sami fit le point.
+Savio fit le point.
 
 — Rome n'était pas la bonne destination. Il reste l'autre passage qui se trouvait près d'elle.
 
@@ -3976,11 +3976,11 @@ Victor regarda l'ouverture encore inconnue.
 
 — Et si on se trompe encore ?
 
-Adrien releva la tête.
+Julien releva la tête.
 
 — Alors on continuera.
 
-Le malfrat s'approcha à son tour.
+Raoul s'approcha à son tour.
 
 — Je viens avec vous.
 
@@ -4006,7 +4006,7 @@ Le chiffre affiché ne lui apporta aucun soulagement.
 
 — J'ai toujours du mal à croire qu'on peut se faire enfermer dans une arène et revenir le même jour sur cet écran.
 
-— On ne connaît pas encore précisément l'écoulement du temps entre les passages, répondit Sami.
+— On ne connaît pas encore précisément l'écoulement du temps entre les passages, répondit Savio.
 
 Victor releva la tête.
 
@@ -4016,11 +4016,11 @@ Victor releva la tête.
 
 — Justement.
 
-Adrien n'écoutait pas.
+Julien n'écoutait pas.
 
 Il était debout devant la lettre laissée à sa sœur.
 
-Il l'avait déposée avant leur départ pour Rome, convaincu qu'Inès la trouverait peut-être en revenant. Personne ne l'avait déplacée. La pierre qui retenait le papier reposait exactement au même endroit.
+Il l'avait déposée avant leur départ pour Rome, convaincu qu'Clara la trouverait peut-être en revenant. Personne ne l'avait déplacée. La pierre qui retenait le papier reposait exactement au même endroit.
 
 Il lut les dernières lignes.
 
@@ -4034,17 +4034,17 @@ Nino s'approcha.
 
 — On ne sait pas si elle a pu retourner vers cette salle.
 
-Adrien plia doucement le papier.
+Julien plia doucement le papier.
 
 — Je sais.
 
-Le malfrat les observait en silence.
+Raoul les observait en silence.
 
 À Rome, il avait trouvé dans cette bande une chose qu'il n'avait pas cherchée : une place. Il ignorait encore comment y tenir sans se comporter comme l'homme qu'ils avaient détesté.
 
 — On a un autre passage à vérifier, dit-il finalement.
 
-Adrien acquiesça.
+Julien acquiesça.
 
 C'était tout ce qu'il voulait entendre.
 
@@ -4052,11 +4052,11 @@ C'était tout ce qu'il voulait entendre.
 
 Ils décidèrent de ne pas perdre de temps à reconstituer indéfiniment la bagarre.
 
-Victor avait expliqué ce qu'il savait : deux passages étaient proches de l'endroit où Inès avait glissé. Le premier les avait conduits à Rome. Ils n'y avaient trouvé aucune trace d'elle.
+Victor avait expliqué ce qu'il savait : deux passages étaient proches de l'endroit où Clara avait glissé. Le premier les avait conduits à Rome. Ils n'y avaient trouvé aucune trace d'elle.
 
 Le second représentait désormais leur meilleure piste.
 
-Sami vérifia les repères inscrits près des ouvertures.
+Savio vérifia les repères inscrits près des ouvertures.
 
 — Il ne faut pas confondre les portes après les avoir traversées.
 
@@ -4068,11 +4068,11 @@ Victor lui montra les marques qu'ils avaient déjà faites.
 
 — Celle-ci, on connaît. Là, on n'est jamais allés.
 
-Le malfrat s'approcha de l'ouverture inconnue.
+Raoul s'approcha de l'ouverture inconnue.
 
 — On entre ensemble ?
 
-Adrien le fixa.
+Julien le fixa.
 
 Puis il répondit :
 
@@ -4084,7 +4084,7 @@ Il ne sut pas exactement quand ce mot avait cessé de lui coûter.
 
 Le passage s'ouvrait sur une grotte.
 
-Sami examina immédiatement l'environnement. Il n'y avait aucun signe distinctif permettant d'identifier l'époque. L'air y était humide, mais différent de celui de la salle initiale. Une rumeur sourde résonnait depuis l'extérieur.
+Savio examina immédiatement l'environnement. Il n'y avait aucun signe distinctif permettant d'identifier l'époque. L'air y était humide, mais différent de celui de la salle initiale. Une rumeur sourde résonnait depuis l'extérieur.
 
 Nino tendit l'oreille.
 
@@ -4094,11 +4094,11 @@ Victor avança.
 
 — Une route ?
 
-— Je ne crois pas, répondit Sami.
+— Je ne crois pas, répondit Savio.
 
 Ils suivirent un couloir de pierre. La roche semblait ancienne, et plusieurs petites flaques reflétaient la lumière venue d'une ouverture plus loin.
 
-Adrien examinait le sol.
+Julien examinait le sol.
 
 Un éclat coloré attira soudain son attention.
 
@@ -4110,25 +4110,25 @@ Petite. Abîmée sur un bord. D'une couleur qu'il connaissait immédiatement.
 
 Il la ramassa.
 
-Un souvenir l'atteignit avec une violence absurde : Inès, devant le miroir de l'entrée, quelques semaines plus tôt, se plaignant que ses affaires disparaissaient toujours lorsqu'elle en avait besoin.
+Un souvenir l'atteignit avec une violence absurde : Clara, devant le miroir de l'entrée, quelques semaines plus tôt, se plaignant que ses affaires disparaissaient toujours lorsqu'elle en avait besoin.
 
 Il lui avait demandé si elle fouillait assez bien.
 
 Elle lui avait répondu qu'il était officiellement le pire frère du monde.
 
-Adrien ferma les doigts autour de la barrette.
+Julien ferma les doigts autour de la barrette.
 
 Victor revint vers lui.
 
 — Qu'est-ce qu'il y a ?
 
-Adrien ouvrit la main.
+Julien ouvrit la main.
 
 Victor se figea.
 
 — C'est la sienne.
 
-Sami s'approcha.
+Savio s'approcha.
 
 — Tu es certain ?
 
@@ -4140,9 +4140,9 @@ Il prit délicatement la barrette entre deux doigts.
 
 Nino les regardait sans parler.
 
-Le malfrat détourna un instant les yeux.
+Raoul détourna un instant les yeux.
 
-Adrien reprit l'objet.
+Julien reprit l'objet.
 
 Il sentit une colère ancienne remonter, la même que dans la salle après la bagarre. Mais elle était mêlée à quelque chose de plus fort.
 
@@ -4150,13 +4150,13 @@ De l'espoir.
 
 — Elle est passée ici.
 
-Sami hocha la tête.
+Savio hocha la tête.
 
 — C'est une preuve qu'elle a atteint cette grotte. On ne sait pas quand, ni où elle est allée ensuite.
 
 — C'est déjà plus que ce qu'on avait en venant.
 
-Adrien se releva.
+Julien se releva.
 
 — On cherche.
 
@@ -4182,29 +4182,29 @@ Victor avança de quelques pas et découvrit un rivage bordé de végétation.
 
 — Une plage sans hôtel, sans transats et sans bar. Ça ne compte pas.
 
-Sami observa l'horizon.
+Savio observa l'horizon.
 
 Il voyait de l'eau dans plusieurs directions. La côte semblait se refermer derrière une pointe rocheuse.
 
 — Je pense qu'on est sur une île.
 
-Adrien se tourna vers la grotte.
+Julien se tourna vers la grotte.
 
 La sortie était visible. Ils avaient donc une route pour revenir à la salle initiale, même s'ils ignoraient encore l'endroit et l'époque.
 
 — Alors elle ne peut pas être très loin, dit-il.
 
-Sami hésita.
+Savio hésita.
 
 — Pas forcément. Quelqu'un a pu quitter l'île par bateau.
 
-Adrien ne voulut pas entendre la deuxième partie.
+Julien ne voulut pas entendre la deuxième partie.
 
 Il serra la barrette dans sa main.
 
 — On commence par explorer.
 
-Le malfrat regarda le soleil, puis les sacs, puis la végétation.
+Raoul regarda le soleil, puis les sacs, puis la végétation.
 
 — Il faudra aussi penser à l'eau et à un endroit où passer la nuit.
 
@@ -4216,17 +4216,17 @@ Nino posa son sac.
 
 — Je savais qu'on aurait dû prendre des vacances moins originales.
 
-Adrien se retourna vers les quatre hommes.
+Julien se retourna vers les quatre hommes.
 
 Ils étaient venus chercher une personne et avaient trouvé son objet le plus ordinaire.
 
 Ce petit morceau de plastique transformait un paysage inconnu en lieu essentiel.
 
-Quelque part, peut-être, Inès avait marché sur cette plage.
+Quelque part, peut-être, Clara avait marché sur cette plage.
 
 Quelque part, elle avait cherché à comprendre où elle se trouvait.
 
-Et si elle avait eu peur, Adrien voulait croire qu'elle avait fait ce qu'elle faisait toujours : se mettre en colère contre la situation jusqu'à ce que la situation cède.
+Et si elle avait eu peur, Julien voulait croire qu'elle avait fait ce qu'elle faisait toujours : se mettre en colère contre la situation jusqu'à ce que la situation cède.
 
 Il glissa la barrette dans une poche intérieure.
 
@@ -4258,15 +4258,15 @@ Et Nino possédait un talent remarquable pour marcher directement dans les endro
 
 — Non, vous n'avez pas compris. C'est comme si mes jambes avaient décidé de se venger de moi.
 
-Sami consulta l'écran de son téléphone, sur lequel il avait commencé à dessiner un plan approximatif.
+Savio consulta l'écran de son téléphone, sur lequel il avait commencé à dessiner un plan approximatif.
 
 — On est à peine sortis de la zone de la grotte.
 
-— Donc on ne sait rien, résuma Adrien.
+— Donc on ne sait rien, résuma Julien.
 
 — On sait où se trouve le portail.
 
-— Il faudra pouvoir le retrouver dans le noir, dit le malfrat.
+— Il faudra pouvoir le retrouver dans le noir, dit Raoul.
 
 Victor se retourna.
 
@@ -4274,7 +4274,7 @@ Victor se retourna.
 
 — Parce que c'est généralement à ce moment-là qu'on se perd.
 
-Adrien examina le rivage.
+Julien examina le rivage.
 
 Sur le sable, des morceaux de bois rejetés par la mer se mêlaient aux algues. Rien ne rappelait les objets familiers d'une plage moderne. Pas de bouteille en plastique, pas de panneau, pas de chaussure abandonnée.
 
@@ -4282,15 +4282,15 @@ Seulement de l'eau, des arbres et la sensation qu'ils étaient arrivés très lo
 
 Il toucha sa poche.
 
-La barrette d'Inès était toujours là.
+La barrette d'Clara était toujours là.
 
 — Elle a quitté la grotte, dit-il. Il faut trouver par où.
 
-Sami s'agenouilla près d'une zone de terre meuble.
+Savio s'agenouilla près d'une zone de terre meuble.
 
 — Si elle est passée depuis longtemps, les traces auront disparu.
 
-Adrien le savait.
+Julien le savait.
 
 Il n'avait pas envie de l'entendre.
 
@@ -4306,7 +4306,7 @@ Il pointa l'autre côté.
 
 — Ou derrière la montagne.
 
-— La colline, corrigea Sami.
+— La colline, corrigea Savio.
 
 — Je préfère montagne. C'est plus héroïque.
 
@@ -4316,7 +4316,7 @@ Victor l'observa.
 
 — J'aime être héroïque assis.
 
-Adrien s'avança jusqu'au bord d'une dalle de pierre.
+Julien s'avança jusqu'au bord d'une dalle de pierre.
 
 Il cherchait une trace humaine, n'importe laquelle.
 
@@ -4330,7 +4330,7 @@ Tout lui aurait convenu, sauf le silence.
 
 Au retour de la pointe, ils découvrirent une zone de terre noircie près de plusieurs pierres.
 
-Sami s'accroupit.
+Savio s'accroupit.
 
 — Un ancien foyer.
 
@@ -4342,9 +4342,9 @@ Nino se redressa.
 
 — Donc quelqu'un est déjà venu.
 
-— Il y a eu quelqu'un, confirma Sami. Impossible de savoir quand et qui.
+— Il y a eu quelqu'un, confirma Savio. Impossible de savoir quand et qui.
 
-Adrien scruta les alentours.
+Julien scruta les alentours.
 
 Il ne vit rien d'autre.
 
@@ -4352,13 +4352,13 @@ Il ne vit rien d'autre.
 
 Le soleil descendait lorsqu'ils revinrent près de la grotte.
 
-La chaleur avait épuisé leur réserve d'eau plus vite que prévu. Sami commençait à calculer ce qu'ils pourraient consommer sans gaspiller. Le malfrat avait repéré un terrain plus abrité un peu au-dessus du rivage.
+La chaleur avait épuisé leur réserve d'eau plus vite que prévu. Savio commençait à calculer ce qu'ils pourraient consommer sans gaspiller. Raoul avait repéré un terrain plus abrité un peu au-dessus du rivage.
 
-Adrien, lui, voulait repartir.
+Julien, lui, voulait repartir.
 
 — On n'a pas fini le tour.
 
-— On n'a même pas commencé, répondit Sami. On n'est pas équipés pour parcourir toute l'île avant la nuit.
+— On n'a même pas commencé, répondit Savio. On n'est pas équipés pour parcourir toute l'île avant la nuit.
 
 — Alors on prend des lampes.
 
@@ -4366,11 +4366,11 @@ Adrien, lui, voulait repartir.
 
 — On en a plusieurs.
 
-Le malfrat s'avança.
+Raoul s'avança.
 
 — Il ne s'agit pas de courage. Il s'agit de ne pas se blesser bêtement dans un endroit où personne ne viendra nous chercher.
 
-Adrien serra les dents.
+Julien serra les dents.
 
 Il détestait entendre cet homme lui donner des conseils raisonnables.
 
@@ -4384,7 +4384,7 @@ Il laissa passer un silence.
 
 — Je crois juste que demain, elle aura besoin de nous tous debout.
 
-Adrien détourna les yeux vers la mer.
+Julien détourna les yeux vers la mer.
 
 Cette phrase-là lui fit plus de bien qu'il ne voulait l'admettre.
 
@@ -4414,11 +4414,11 @@ Victor regarda leur réserve.
 
 — Alors on est riches dans une mauvaise époque.
 
-Sami marqua le trajet dans son carnet et dessina une première carte avec les points réellement repérés. Il la montra à Adrien.
+Savio marqua le trajet dans son carnet et dessina une première carte avec les points réellement repérés. Il la montra à Julien.
 
 — Demain, on répartit les recherches. On vérifie le relief, les points d'eau et les traces d'occupation humaine. On ne choisit pas au hasard.
 
-Adrien acquiesça.
+Julien acquiesça.
 
 Il voulait courir partout. Il savait qu'il ne servirait à rien de courir sans méthode.
 
@@ -4426,19 +4426,19 @@ Il voulait courir partout. Il savait qu'il ne servirait à rien de courir sans m
 
 Nino finit par dire :
 
-— Vous croyez qu'Inès aurait aimé cet endroit ?
+— Vous croyez qu'Clara aurait aimé cet endroit ?
 
 Victor sourit tristement.
 
 — Elle aurait commencé par se plaindre des moustiques.
 
-— Puis elle nous aurait expliqué comment organiser le camp, ajouta Adrien.
+— Puis elle nous aurait expliqué comment organiser le camp, ajouta Julien.
 
-— Et elle aurait raison, conclut Sami.
+— Et elle aurait raison, conclut Savio.
 
 Ils rirent, brièvement.
 
-Adrien sortit la barrette de sa poche.
+Julien sortit la barrette de sa poche.
 
 Il la regarda longtemps, puis la replaça soigneusement à l'intérieur.
 
@@ -4454,7 +4454,7 @@ Et pour cela, ils allaient devoir apprendre à vivre sur cette île.
 
 Au troisième matin, Victor annonça qu'il démissionnait.
 
-— De quoi ? demanda Adrien.
+— De quoi ? demanda Julien.
 
 — De l'île.
 
@@ -4464,7 +4464,7 @@ Nino, occupé à chasser une fourmi qui explorait son oreiller improvisé, leva 
 
 — C'est une exploitation. Je travaille, je dors mal, je mange des choses inconnues et personne ne me paie.
 
-— Tu vois, dit Sami, tu commences à comprendre ce que vivent certains employés.
+— Tu vois, dit Savio, tu commences à comprendre ce que vivent certains employés.
 
 Victor l'ignora.
 
@@ -4478,7 +4478,7 @@ Nino secoua la tête.
 
 — C'est bien ce qui m'inquiète.
 
-Le malfrat observait les dégâts avec un calme presque insultant.
+Raoul observait les dégâts avec un calme presque insultant.
 
 Il s'accroupit, souleva une partie de l'abri et montra à Nino pourquoi la couverture avait laissé passer l'eau.
 
@@ -4500,13 +4500,13 @@ Il ne le fit pas lui-même.
 
 Il laissa Nino corriger ce qu'il venait de comprendre, répondant à ses questions sans lui arracher le travail des mains.
 
-Adrien nota ce détail.
+Julien nota ce détail.
 
 À Rome, l'homme avait changé de camp presque malgré lui. Ici, il commençait à apprendre à vivre avec les autres.
 
 ***
 
-L'île avait fini par prendre une forme sur la carte de Sami.
+L'île avait fini par prendre une forme sur la carte de Savio.
 
 Ce n'était pas une carte très belle.
 
@@ -4514,15 +4514,15 @@ Les contours y ressemblaient à une pomme de terre mordue à plusieurs endroits,
 
 — Il y en avait, se défendit l'intéressé.
 
-— Tu as vu une racine qui bougeait parce que tu marchais dessus, répondit Sami.
+— Tu as vu une racine qui bougeait parce que tu marchais dessus, répondit Savio.
 
 — Ça ne prouve pas qu'il n'y a pas de serpents.
 
 Chaque matin, ils partaient explorer une zone différente. Ils revenaient en fin de journée avec des descriptions, quelques objets naturels, parfois des traces anciennes de passage humain.
 
-La barrette demeurait leur seul indice incontestable concernant Inès.
+La barrette demeurait leur seul indice incontestable concernant Clara.
 
-Adrien parlait peu pendant ces excursions.
+Julien parlait peu pendant ces excursions.
 
 Il se rendait utile avec une efficacité presque brutale, comme si l'effort physique pouvait compenser l'absence de nouvelles.
 
@@ -4530,7 +4530,7 @@ Le soir, il dessinait un trait au bord de la carte pour chaque endroit déjà fo
 
 Un jour, Nino lui proposa de faire les mêmes marques avec une autre couleur pour distinguer « rien trouvé » de « personne n'a regardé ».
 
-Adrien s'arrêta.
+Julien s'arrêta.
 
 — C'est une bonne idée.
 
@@ -4548,11 +4548,11 @@ Un soir, Victor posa la question que tous évitaient.
 
 — Pourquoi est-ce qu'on ne rentre pas dormir dans nos lits et revenir demain ?
 
-Sami referma son carnet.
+Savio referma son carnet.
 
 — On pourrait. Et si nos réserves deviennent insuffisantes, on le fera. Mais chaque aller-retour nous prend du temps, et on ne sait pas exactement ce qui se passe ici pendant qu'on est absents.
 
-Adrien fixa la mer.
+Julien fixa la mer.
 
 — Je ne veux pas rater quelqu'un qui viendrait sur l'île.
 
@@ -4560,7 +4560,7 @@ Victor acquiesça.
 
 Il comprenait.
 
-Le camp n'était pas une prison. C'était un choix, un moyen de rester au plus près de la piste d'Inès.
+Le camp n'était pas une prison. C'était un choix, un moyen de rester au plus près de la piste d'Clara.
 
 Et ce choix leur coûtait davantage qu'ils ne l'auraient cru.
 
@@ -4568,13 +4568,13 @@ Et ce choix leur coûtait davantage qu'ils ne l'auraient cru.
 
 Le problème de la nourriture fut résolu en partie par les réserves apportées depuis le présent, en partie par une organisation moins héroïque que dans les films.
 
-Sami insistait pour qu'ils évitent de manger des plantes qu'ils ne connaissaient pas.
+Savio insistait pour qu'ils évitent de manger des plantes qu'ils ne connaissaient pas.
 
 Nino insistait pour ne manger aucune plante qui ressemblait à un légume.
 
 Victor insistait pour rentrer acheter des sandwichs.
 
-Le malfrat insistait pour que personne n'insiste plus longtemps.
+Raoul insistait pour que personne n'insiste plus longtemps.
 
 Ils choisirent d'utiliser leur matériel, de protéger l'eau qu'ils apportaient et de chercher surtout des points de ravitaillement sûrs. Ils n'avaient ni les connaissances ni l'envie de jouer aux aventuriers invincibles.
 
@@ -4598,11 +4598,11 @@ Victor regarda le résultat.
 
 — Exactement. C'est pour ça qu'il faut rester ensemble.
 
-Adrien sourit sans s'en rendre compte.
+Julien sourit sans s'en rendre compte.
 
 ***
 
-Un après-midi, Nino et le malfrat s'éloignèrent ensemble pour relever quelques repères dans une zone que le groupe connaissait mal.
+Un après-midi, Nino et Raoul s'éloignèrent ensemble pour relever quelques repères dans une zone que le groupe connaissait mal.
 
 Le ciel était couvert, et le vent soulevait les feuilles mortes.
 
@@ -4612,7 +4612,7 @@ Nino marchait derrière.
 
 — Rien d'intéressant.
 
-— Si, justement. Victor te décrit comme un bandit armé. Adrien comme le pire homme qu'on ait rencontré. Sami comme un problème moral complexe.
+— Si, justement. Victor te décrit comme un bandit armé. Julien comme le pire homme qu'on ait rencontré. Savio comme un problème moral complexe.
 
 — Et toi ?
 
@@ -4620,7 +4620,7 @@ Nino réfléchit.
 
 — Comme le type qui m'a empêché de mourir à Rome.
 
-Le malfrat ne répondit pas.
+Raoul ne répondit pas.
 
 Ils traversèrent une zone de terrain humide. Un peu plus loin, Nino aperçut une série de marques sur un tronc.
 
@@ -4638,7 +4638,7 @@ Nino regarda autour d'eux.
 
 — On n'est peut-être pas seuls.
 
-Le malfrat observa le relief, puis le chemin qu'ils avaient suivi.
+Raoul observa le relief, puis le chemin qu'ils avaient suivi.
 
 — On va prévenir les autres.
 
@@ -4648,7 +4648,7 @@ Nino sourit.
 
 — Je l'ai vu.
 
-— Tu vas le dire à Adrien ?
+— Tu vas le dire à Julien ?
 
 — Oui.
 
@@ -4666,7 +4666,7 @@ Nino sembla réfléchir, puis répondit :
 
 — Mais utile.
 
-Le malfrat hocha la tête.
+Raoul hocha la tête.
 
 — Oui.
 
@@ -4674,9 +4674,9 @@ Cette fois, Nino ne fit aucune plaisanterie.
 
 ***
 
-Le soir, Sami ajouta les marques à la carte.
+Le soir, Savio ajouta les marques à la carte.
 
-Adrien observa leur position.
+Julien observa leur position.
 
 — Elles sont proches d'un secteur qu'on n'a pas exploré.
 
@@ -4684,7 +4684,7 @@ Victor se pencha.
 
 — Ça peut être des traces de quelqu'un qui vit ici ?
 
-— C'est possible, dit Sami.
+— C'est possible, dit Savio.
 
 — Ou de pirates ? demanda Nino.
 
@@ -4692,11 +4692,11 @@ Le mot resta dans l'air.
 
 Ils n'avaient encore aucune preuve de la période où ils se trouvaient. Mais une île, des traces anciennes et la mer suffisaient à réveiller des images de navires, de cartes et de voyages dont personne ne maîtrisait les règles.
 
-Adrien posa le doigt sur les marques.
+Julien posa le doigt sur les marques.
 
 — Demain, on cherche qui les a faites.
 
-Le malfrat se tourna vers Nino.
+Raoul se tourna vers Nino.
 
 — Tu m'accompagnes ?
 
@@ -4710,7 +4710,7 @@ Nino sourit.
 
 — D'accord. Mais cette fois, je choisis l'itinéraire.
 
-Le malfrat hésita.
+Raoul hésita.
 
 — On va peut-être commencer par choisir ensemble.
 
@@ -4722,7 +4722,7 @@ Mais ce soir-là, pour la première fois depuis leur arrivée, ils eurent le sen
 
 ## Chapitre 15 — La fille qui donnait des ordres
 
-La première chose qu'Inès comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
+La première chose qu'Clara comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
 
 La deuxième, que Victor était un imbécile.
 
@@ -4760,7 +4760,7 @@ Elle allait revenir vers le passage lorsqu'un besoin beaucoup plus ordinaire se 
 
 Depuis le dîner, les boissons s'étaient succédé. L'accident n'avait visiblement rien changé aux lois de son organisme.
 
-Inès observa la grotte.
+Clara observa la grotte.
 
 — Évidemment. C'est maintenant.
 
@@ -4774,7 +4774,7 @@ Des hommes parlaient.
 
 L'un d'eux riait d'une manière bruyante.
 
-Inès se plaqua contre la pierre.
+Clara se plaqua contre la pierre.
 
 — Non, murmura-t-elle. Non, non, non.
 
@@ -4788,7 +4788,7 @@ L'un d'eux la désigna du doigt.
 
 — Qu'est-ce que c'est que ça ?
 
-Inès les regarda.
+Clara les regarda.
 
 Ils la regardèrent.
 
@@ -4806,7 +4806,7 @@ Elle désigna le couloir d'où elle venait.
 
 Les pirates ne surent pas quoi faire d'elle.
 
-Cette situation aurait pu être amusante si Inès n'avait pas eu aussi peur.
+Cette situation aurait pu être amusante si Clara n'avait pas eu aussi peur.
 
 Ils l'interrogèrent sur son navire, sa famille, son capitaine et ses intentions. Elle ne savait répondre à aucune de ces questions d'une manière qui leur convienne.
 
@@ -4816,7 +4816,7 @@ Un marin lui barra le passage.
 
 — Personne ne va plus loin sans que le capitaine ait donné son accord.
 
-Inès le fixa.
+Clara le fixa.
 
 — Je viens de là.
 
@@ -4842,7 +4842,7 @@ Son camarade éclata de rire.
 
 — Elle a du caractère.
 
-— Et vous, répliqua Inès, vous avez l'air d'avoir mangé votre chemise.
+— Et vous, répliqua Clara, vous avez l'air d'avoir mangé votre chemise.
 
 Le rire s'arrêta.
 
@@ -4854,7 +4854,7 @@ Il était plus âgé, mieux vêtu, et les autres se redressèrent aussitôt.
 
 Le capitaine.
 
-Il regarda Inès avec une attention prudente.
+Il regarda Clara avec une attention prudente.
 
 — On m'a dit qu'une étrangère avait surgi de la pierre.
 
@@ -4862,7 +4862,7 @@ Il regarda Inès avec une attention prudente.
 
 — Vous avez un nom ?
 
-— Inès.
+— Clara.
 
 — Un navire ?
 
@@ -4886,7 +4886,7 @@ Ils la conduisirent jusqu'au rivage.
 
 Un navire mouillait un peu plus loin. La plage portait des traces de caisses déplacées et de barques tirées sur le sable.
 
-À cet instant, Inès accepta un fait qu'elle avait refusé depuis son réveil : elle n'était probablement pas dans un spectacle.
+À cet instant, Clara accepta un fait qu'elle avait refusé depuis son réveil : elle n'était probablement pas dans un spectacle.
 
 Personne ne semblait attendre une équipe de tournage.
 
@@ -4896,7 +4896,7 @@ Elle demanda à retourner à la grotte.
 
 Le capitaine répondit qu'ils y retourneraient peut-être plus tard, mais que ses hommes n'allaient pas la laisser explorer seuls un endroit qu'ils croyaient dangereux.
 
-Inès sentit la colère remonter.
+Clara sentit la colère remonter.
 
 — Je ne suis pas votre prisonnière.
 
@@ -4930,7 +4930,7 @@ Le marin cligna des yeux.
 
 — Pour les mains ?
 
-Inès ferma les yeux.
+Clara ferma les yeux.
 
 — On va avoir du travail.
 
@@ -4938,7 +4938,7 @@ Inès ferma les yeux.
 
 Les jours suivants furent un mélange de peur, d'obstination et de mauvais sommeil.
 
-Inès découvrit la vie à bord par ses aspects les moins romantiques : les repas irréguliers, les vêtements humides, les odeurs, les tâches sans fin et la façon dont le navire transformait une petite inquiétude en énorme problème dès que le vent se levait.
+Clara découvrit la vie à bord par ses aspects les moins romantiques : les repas irréguliers, les vêtements humides, les odeurs, les tâches sans fin et la façon dont le navire transformait une petite inquiétude en énorme problème dès que le vent se levait.
 
 Elle se disputa d'abord avec presque tout le monde.
 
@@ -4954,7 +4954,7 @@ Le second avait levé les bras au ciel.
 
 Le capitaine avait ri pour la première fois.
 
-Mais Inès apprit aussi à se taire.
+Mais Clara apprit aussi à se taire.
 
 Un matin, elle s'était montrée si sûre d'elle en proposant de changer l'organisation d'une tâche que le marin chargé de cette tâche lui avait répondu :
 
@@ -4976,7 +4976,7 @@ Un soir, une partie des provisions se retrouva exposée à l'humidité après un
 
 Les hommes couraient d'un endroit à l'autre en donnant des ordres contradictoires.
 
-Inès attrapa un petit carnet qu'elle avait réussi à conserver et se mit à répartir les tâches.
+Clara attrapa un petit carnet qu'elle avait réussi à conserver et se mit à répartir les tâches.
 
 — Toi, vérifie ce qui est mouillé. Toi, apporte des contenants secs. Pas tous au même endroit, sinon on va perdre encore du temps. Et vous deux, arrêtez de vous disputer pendant que les autres travaillent !
 
@@ -5008,7 +5008,7 @@ Le capitaine éclata de rire.
 
 ***
 
-Peu à peu, Inès cessa d'être seulement « l'étrangère ».
+Peu à peu, Clara cessa d'être seulement « l'étrangère ».
 
 Les hommes connaissaient son caractère. Ils anticipaient ses reproches. Certains venaient lui demander son avis sur des questions qui n'avaient aucun rapport avec la mer : comment répartir une charge, comment éviter que deux personnes travaillent inutilement à la même chose, comment préparer une longue escale.
 
@@ -5026,7 +5026,7 @@ L'un d'eux se retourna.
 
 — Parce que vous nous avez dit hier de les ranger de ce côté.
 
-Inès regarda les caisses, puis son carnet.
+Clara regarda les caisses, puis son carnet.
 
 — Ah.
 
@@ -5050,7 +5050,7 @@ Ce sentiment la bouleversa plus qu'elle ne voulut l'admettre.
 
 La nuit, pourtant, elle pensait à Victor.
 
-À Adrien.
+À Julien.
 
 À la salle des portails.
 
@@ -5062,7 +5062,7 @@ Il contemplait la mer.
 
 — Vous cherchez toujours un moyen de rentrer ? demanda-t-il.
 
-Inès le regarda, surprise.
+Clara le regarda, surprise.
 
 — Vous avez compris ?
 
@@ -5078,7 +5078,7 @@ Il avait vu assez de choses sur les mers pour croire certaines histoires et en c
 
 — Il y a une légende, dit-il.
 
-Inès se redressa.
+Clara se redressa.
 
 — Quelle légende ?
 
@@ -5086,7 +5086,7 @@ Il désigna l'horizon.
 
 — Une île que mes hommes appellent maudite. On dit qu'elle renferme une entrée impossible, semblable à une porte que personne ne devrait franchir. Certains parlent d'un passage vers un autre monde.
 
-Inès sentit son cœur accélérer.
+Clara sentit son cœur accélérer.
 
 — Vous y êtes allé ?
 
@@ -5098,7 +5098,7 @@ Le capitaine se tourna lentement vers elle.
 
 — Écoutez bien, jeune femme. Il y a des histoires qu'on raconte pour divertir l'équipage. Celle-ci, je préférerais qu'elle reste une histoire.
 
-Inès regarda l'obscurité au-delà des voiles.
+Clara regarda l'obscurité au-delà des voiles.
 
 Elle avait enfin entendu quelque chose qui ressemblait à une piste.
 
@@ -5108,7 +5108,7 @@ Et, pour la première fois depuis sa disparition, elle n'avait plus envie d'atte
 
 ## Chapitre 16 — Ceux qui connaissent l'île
 
-Au matin, Sami décida que la carte ressemblait suffisamment à une carte pour être utile.
+Au matin, Savio décida que la carte ressemblait suffisamment à une carte pour être utile.
 
 Nino n'était pas d'accord.
 
@@ -5126,11 +5126,11 @@ Victor s'approcha.
 
 — Est-ce qu'on peut arrêter de comparer notre seul outil d'orientation à un repas ?
 
-Adrien prit la carte.
+Julien prit la carte.
 
 Les marques que Nino avait découvertes sur un tronc se situaient près d'un chemin étroit. Ils décidèrent de le suivre, cette fois sans s'éloigner les uns des autres.
 
-Le malfrat marchait en tête avec Sami, qui notait chaque bifurcation.
+Raoul marchait en tête avec Savio, qui notait chaque bifurcation.
 
 Nino observait les arbres avec le sérieux neuf de quelqu'un qui avait enfin fourni une découverte utile.
 
@@ -5138,7 +5138,7 @@ Il repéra d'autres entailles, puis des pierres disposées à intervalles régul
 
 — Quelqu'un entretient ce passage, dit-il.
 
-Sami examina les pierres.
+Savio examina les pierres.
 
 — C'est possible.
 
@@ -5160,11 +5160,11 @@ Deux adultes et un adolescent portaient des paniers. Ils s'arrêtèrent immédia
 
 Pendant plusieurs secondes, les deux groupes s'observèrent.
 
-Adrien leva lentement les mains pour montrer qu'il n'avait pas l'intention de les menacer.
+Julien leva lentement les mains pour montrer qu'il n'avait pas l'intention de les menacer.
 
-Le malfrat recula d'un pas.
+Raoul recula d'un pas.
 
-Sami essaya une salutation.
+Savio essaya une salutation.
 
 Les habitants ne répondirent pas dans une langue qu'il connaissait.
 
@@ -5180,7 +5180,7 @@ Nino montra sa propre poitrine.
 
 Puis il désigna un autre membre du groupe.
 
-— Adrien.
+— Julien.
 
 Victor murmura :
 
@@ -5202,17 +5202,17 @@ L'adulte le plus âgé observa un moment les sacs, les chaussures et les gestes 
 
 Il désigna le ruisseau, puis un passage plus haut.
 
-Sami comprit qu'il cherchait probablement à leur indiquer un endroit où traverser sans dégrader la berge.
+Savio comprit qu'il cherchait probablement à leur indiquer un endroit où traverser sans dégrader la berge.
 
 Ils suivirent son geste.
 
-Le malfrat resta un peu en retrait, laissant les autres avancer.
+Raoul resta un peu en retrait, laissant les autres avancer.
 
 ***
 
 La rencontre fut plus simple que prévu et beaucoup moins instructive qu'ils l'avaient espéré.
 
-Les habitants leur montrèrent un secteur où trouver de l'eau et un chemin évitant les terrains instables. En échange, les voyageurs aidèrent à relever un panier tombé dans le ruisseau. Sami essaya de comprendre les noms des lieux, mais la conversation avançait surtout par gestes.
+Les habitants leur montrèrent un secteur où trouver de l'eau et un chemin évitant les terrains instables. En échange, les voyageurs aidèrent à relever un panier tombé dans le ruisseau. Savio essaya de comprendre les noms des lieux, mais la conversation avançait surtout par gestes.
 
 Ils finirent par atteindre une petite zone habitée, avec des abris soigneusement entretenus et des espaces de travail.
 
@@ -5226,15 +5226,15 @@ Il échangea quelques mots avec les premiers rencontrés puis désigna la direct
 
 Il répéta un geste évoquant le mouvement d'un navire.
 
-Adrien se redressa.
+Julien se redressa.
 
 — Un bateau ?
 
-Sami l'observa.
+Savio l'observa.
 
 — Il parle peut-être de gens venus par mer.
 
-Adrien sortit la barrette d'Inès.
+Julien sortit la barrette d'Clara.
 
 Il la montra avec précaution.
 
@@ -5244,17 +5244,17 @@ Les regards se croisèrent.
 
 Le vieil homme examina l'objet, puis secoua la tête.
 
-Adrien sentit l'espoir retomber.
+Julien sentit l'espoir retomber.
 
 L'un des habitants évoqua de nouveau la mer et mima quelque chose qui ressemblait à plusieurs personnes transportant des caisses.
 
 — Des visiteurs ? demanda Victor.
 
-Sami acquiesça.
+Savio acquiesça.
 
 — C'est plausible.
 
-Adrien serra la barrette.
+Julien serra la barrette.
 
 Ce n'était pas encore une réponse.
 
@@ -5264,17 +5264,17 @@ Mais l'île n'était plus entièrement silencieuse.
 
 Ils restèrent assez longtemps pour comprendre qu'ils avaient une chose essentielle à faire : ne pas déranger ceux qui vivaient là.
 
-Sami demanda, avec beaucoup de gestes, quelles zones ils pouvaient emprunter. Les habitants leur montrèrent certains chemins et leur indiquèrent clairement qu'un secteur proche du rivage n'était pas destiné aux visiteurs.
+Savio demanda, avec beaucoup de gestes, quelles zones ils pouvaient emprunter. Les habitants leur montrèrent certains chemins et leur indiquèrent clairement qu'un secteur proche du rivage n'était pas destiné aux visiteurs.
 
-Adrien accepta.
+Julien accepta.
 
 Victor parut surpris.
 
-— On est venus pour retrouver Inès.
+— On est venus pour retrouver Clara.
 
-— Et eux vivent ici, répondit Adrien. On ne va pas leur imposer nos recherches.
+— Et eux vivent ici, répondit Julien. On ne va pas leur imposer nos recherches.
 
-Le malfrat l'approuva d'un signe de tête.
+Raoul l'approuva d'un signe de tête.
 
 Nino observait un petit garçon qui s'amusait à faire rebondir un fruit sur une pierre plate.
 
@@ -5298,7 +5298,7 @@ Lorsqu'ils reprirent le chemin du camp, les cinq étaient plus tranquilles.
 
 Ils avaient découvert des habitants qui connaissaient véritablement l'île, et dont la présence changeait tout : ce lieu n'était pas un désert abandonné à la première bande d'aventuriers qui y débarquait.
 
-Adrien se demanda si Inès les avait rencontrés.
+Julien se demanda si Clara les avait rencontrés.
 
 Il n'osa pas croire qu'ils en savaient davantage.
 
@@ -5320,17 +5320,17 @@ Victor plissa les yeux.
 
 — On est à quelle époque, déjà ?
 
-Sami regarda longuement le bateau.
+Savio regarda longuement le bateau.
 
 — On va peut-être le savoir.
 
-Adrien sentit la barrette contre sa paume.
+Julien sentit la barrette contre sa paume.
 
 Un navire signifiait des voyageurs.
 
 Des voyageurs signifiaient des histoires.
 
-Et peut-être que l'une de ces histoires parlerait enfin d'Inès.
+Et peut-être que l'une de ces histoires parlerait enfin d'Clara.
 
 ---
 
@@ -5348,21 +5348,21 @@ Victor avait regardé le ciel.
 
 — Ou les livreurs de boissons les plus lents de l'histoire.
 
-Sami n'avait pas ri.
+Savio n'avait pas ri.
 
 La coupe des vêtements, le navire et le matériel laissaient envisager une époque de navigation bien postérieure au Moyen Âge. Il ne pouvait pas donner de date précise.
 
-Le malfrat observait surtout les hommes.
+Raoul observait surtout les hommes.
 
 — Ils sont armés. Et nous ne savons rien de leurs intentions.
 
-Adrien se tourna vers lui.
+Julien se tourna vers lui.
 
-— Ils peuvent connaître l'île. Ils peuvent avoir vu Inès.
+— Ils peuvent connaître l'île. Ils peuvent avoir vu Clara.
 
 — C'est possible. Ce n'est pas une raison pour courir leur serrer la main.
 
-Adrien sentit sa patience diminuer.
+Julien sentit sa patience diminuer.
 
 Depuis des jours, chaque nouvelle piste se terminait par un conseil de prudence.
 
@@ -5386,7 +5386,7 @@ Nino, qui s'était cru capable de rester immobile, commençait à regretter d'av
 
 — Alors fais la photosynthèse en silence.
 
-Sami surveillait les échanges de signes entre les marins. Adrien cherchait un visage féminin parmi eux.
+Savio surveillait les échanges de signes entre les marins. Julien cherchait un visage féminin parmi eux.
 
 Il n'en vit aucun.
 
@@ -5408,7 +5408,7 @@ Un marin éclata de rire.
 
 Le capitaine sourit.
 
-Adrien retint son souffle.
+Julien retint son souffle.
 
 — De qui ils parlent ? murmura Victor.
 
@@ -5424,7 +5424,7 @@ Un marin secoua la tête.
 
 Les hommes rirent.
 
-Adrien sentit sa poitrine se serrer.
+Julien sentit sa poitrine se serrer.
 
 La façon dont ils en parlaient.
 
@@ -5432,7 +5432,7 @@ La colère amusée.
 
 Cette description impossible à confondre.
 
-— Inès, murmura-t-il.
+— Clara, murmura-t-il.
 
 Victor lui saisit le bras.
 
@@ -5446,7 +5446,7 @@ Un silence suivit.
 
 — Et elle avait ses raisons, répondit le capitaine.
 
-Adrien n'entendit presque plus la suite.
+Julien n'entendit presque plus la suite.
 
 *Après son départ.*
 
@@ -5458,13 +5458,13 @@ Vivante.
 
 Le groupe sortit de sa cachette lorsque le capitaine se leva pour rejoindre le rivage.
 
-Adrien avança le premier.
+Julien avança le premier.
 
 — Excusez-nous.
 
 Un marin saisit aussitôt son arme.
 
-Le malfrat leva les mains.
+Raoul leva les mains.
 
 — Nous ne sommes pas là pour vous attaquer.
 
@@ -5472,15 +5472,15 @@ Le capitaine dévisagea les cinq hommes surgis de la nuit.
 
 — Qui êtes-vous ?
 
-Adrien ouvrit sa main.
+Julien ouvrit sa main.
 
-La barrette d'Inès brillait faiblement à la lumière du feu.
+La barrette d'Clara brillait faiblement à la lumière du feu.
 
-— Nous cherchons une femme. Elle s'appelle Inès. Vous venez de parler d'elle.
+— Nous cherchons une femme. Elle s'appelle Clara. Vous venez de parler d'elle.
 
 Le capitaine fixa l'objet.
 
-Puis le visage d'Adrien.
+Puis le visage d'Julien.
 
 — Vous êtes de sa famille ?
 
@@ -5492,7 +5492,7 @@ Victor s'avança à son tour.
 
 — Et nous, dit Nino, ses mauvaises fréquentations.
 
-Adrien le regarda.
+Julien le regarda.
 
 — Ce n'est pas le moment.
 
@@ -5512,7 +5512,7 @@ Le capitaine regarda la mer.
 
 — Ce n'est pas une réponse facile.
 
-— Dites-nous seulement si elle va bien, demanda Adrien.
+— Dites-nous seulement si elle va bien, demanda Julien.
 
 Le silence du capitaine dura trop longtemps.
 
@@ -5528,23 +5528,23 @@ C'était pourtant bien plus que ce qu'il avait.
 
 Ils s'assirent autour du feu.
 
-Les pirates racontèrent comment Inès était apparue près de la grotte, comment elle avait embarqué, puis s'était progressivement imposée dans la vie du navire.
+Les pirates racontèrent comment Clara était apparue près de la grotte, comment elle avait embarqué, puis s'était progressivement imposée dans la vie du navire.
 
 Les cinq retrouvèrent dans chaque anecdote quelque chose qu'ils connaissaient.
 
-Adrien reconnut sa manière de donner des ordres pour éviter que les autres ne commettent des erreurs.
+Julien reconnut sa manière de donner des ordres pour éviter que les autres ne commettent des erreurs.
 
 Victor reconnut sa façon de négocier sans se laisser intimider.
 
 Nino reconnut les disputes qu'elle gagnait même lorsqu'elle n'avait pas entièrement raison.
 
-Sami écoutait avec une attention presque professionnelle.
+Savio écoutait avec une attention presque professionnelle.
 
 Le capitaine finit par évoquer l'île maudite.
 
 — Elle cherchait un passage, dit-il. Quelque chose qui, d'après elle, pouvait la ramener vers les siens.
 
-Adrien se redressa.
+Julien se redressa.
 
 — Un portail ?
 
@@ -5570,13 +5570,13 @@ Il avait simplement entendu ces récits au fil de ses voyages.
 
 — Je lui ai parlé de cette légende, dit-il. Je lui ai dit aussi de ne pas y croire trop vite.
 
-— Et elle est partie ? demanda Sami.
+— Et elle est partie ? demanda Savio.
 
 Le capitaine acquiesça.
 
 — Avec deux hommes de mon équipage.
 
-Adrien sentit ses mains se crisper.
+Julien sentit ses mains se crisper.
 
 — Deux pirates ?
 
@@ -5588,7 +5588,7 @@ Le capitaine affronta son regard.
 
 — Ils étaient libres de partir. Je leur ai dit ce que je savais. Je n'allais pas les attacher à mon navire.
 
-Adrien se leva.
+Julien se leva.
 
 — Alors emmenez-nous là-bas.
 
@@ -5606,9 +5606,9 @@ Victor avança.
 
 — Vous ne savez pas si elle y est encore, répliqua le capitaine. Vous ne savez pas si la légende dit vrai. Je refuse de risquer mon équipage pour un endroit que j'ai juré d'éviter.
 
-Adrien resta debout, les mains tremblantes.
+Julien resta debout, les mains tremblantes.
 
-Le malfrat posa doucement une main sur son épaule.
+Raoul posa doucement une main sur son épaule.
 
 Il ne parla pas.
 
@@ -5640,7 +5640,7 @@ Victor attendit le lendemain matin pour aborder à nouveau le capitaine.
 
 C'était, selon lui, une marque de respect.
 
-Selon Adrien, c'était surtout parce que le capitaine avait menacé de jeter à la mer le prochain homme qui viendrait le réveiller avant l'aube.
+Selon Julien, c'était surtout parce que le capitaine avait menacé de jeter à la mer le prochain homme qui viendrait le réveiller avant l'aube.
 
 Ils le trouvèrent près de la barque, occupé à vérifier des caisses.
 
@@ -5680,7 +5680,7 @@ Le capitaine regarda enfin.
 
 Nino se mordit les lèvres.
 
-Adrien voulut intervenir, mais Victor avait déjà sorti une deuxième bourse.
+Julien voulut intervenir, mais Victor avait déjà sorti une deuxième bourse.
 
 Il ne s'agissait pas d'une fortune improvisée. Les cinq avaient prévu de transporter de l'or et des objets de valeur provenant de leurs précédents voyages pour faire face aux situations où leur argent du XXIe siècle serait inutile.
 
@@ -5698,13 +5698,13 @@ Il referma la bourse.
 
 — Il me faut du temps.
 
-Adrien se rapprocha.
+Julien se rapprocha.
 
 — Combien ?
 
 — Dix jours. Le navire a besoin de ravitaillement. Les hommes doivent accepter, et je ne pars pas avec des réserves insuffisantes pour une destination dont personne ne veut approcher.
 
-— Dix jours, répéta Adrien.
+— Dix jours, répéta Julien.
 
 — Dans dix jours, ici, à la même heure. Si vous n'êtes pas là, je pars sans vous.
 
@@ -5718,7 +5718,7 @@ Victor sourit.
 
 — C'est notre spécialité.
 
-Adrien détourna les yeux.
+Julien détourna les yeux.
 
 Il savait que c'était un mensonge énorme.
 
@@ -5740,13 +5740,13 @@ Victor regarda la rangée de sandwichs.
 
 — Prends-en pour tout le monde.
 
-Adrien ne prit rien.
+Julien ne prit rien.
 
 Il pensait au capitaine, aux dix jours et à ce qu'ils avaient perdu en se disputant à propos des armes.
 
 — On prépare sérieusement, dit-il. Cette fois, je ne veux pas qu'on improvise au dernier moment.
 
-Sami avait déjà ouvert son carnet.
+Savio avait déjà ouvert son carnet.
 
 — Je fais la liste.
 
@@ -5754,13 +5754,13 @@ Victor leva les mains.
 
 — Le retour de la liste.
 
-— Tu sais quoi ? répondit Sami. Elle nous a déjà évité quelques erreurs.
+— Tu sais quoi ? répondit Savio. Elle nous a déjà évité quelques erreurs.
 
 — Elle ne nous a pas évité Rome.
 
 — Elle nous a aidés à retrouver le chemin pour en sortir.
 
-Le malfrat approuva d'un signe de tête.
+Raoul approuva d'un signe de tête.
 
 Victor le regarda, contrarié de voir son ancien rival soutenir l'intello.
 
@@ -5776,17 +5776,17 @@ Ils n'achetaient plus des objets capables d'émerveiller des nobles.
 
 Ils cherchaient des moyens de rester en sécurité dans une région inconnue, de transporter leurs affaires, de s'orienter et de communiquer à courte distance.
 
-Sami pensa aux lampes, aux réserves d'énergie, aux outils simples et au matériel de premiers secours. Il insista aussi pour qu'ils prévoient des contenants résistants à l'humidité.
+Savio pensa aux lampes, aux réserves d'énergie, aux outils simples et au matériel de premiers secours. Il insista aussi pour qu'ils prévoient des contenants résistants à l'humidité.
 
-Adrien vérifia chaque sac.
+Julien vérifia chaque sac.
 
 Victor s'occupa de l'argent et de l'or.
 
-Le malfrat évalua les risques sans chercher à transformer l'expédition en opération militaire. Quelques moyens de défense furent ajoutés aux bagages, sous la réserve clairement énoncée par Adrien qu'ils ne répéteraient pas l'erreur du royaume médiéval.
+Raoul évalua les risques sans chercher à transformer l'expédition en opération militaire. Quelques moyens de défense furent ajoutés aux bagages, sous la réserve clairement énoncée par Julien qu'ils ne répéteraient pas l'erreur du royaume médiéval.
 
 — On les emporte au cas où, dit-il.
 
-Le malfrat le regarda.
+Raoul le regarda.
 
 — Compris.
 
@@ -5802,9 +5802,9 @@ Il regardait sa propre liste de provisions et se demandait quand sa vie s'était
 
 Au cours des journées suivantes, les cinq revinrent périodiquement sur l'île afin de suivre le calendrier convenu avec le capitaine et de vérifier que leur rendez-vous tenait toujours.
 
-Ils ne possédaient aucune règle certaine sur l'écoulement du temps entre les mondes. Sami consigna donc les observations plutôt que de prétendre avoir résolu le problème.
+Ils ne possédaient aucune règle certaine sur l'écoulement du temps entre les mondes. Savio consigna donc les observations plutôt que de prétendre avoir résolu le problème.
 
-Dans l'intervalle, Adrien passa une soirée dans l'appartement d'Inès.
+Dans l'intervalle, Julien passa une soirée dans l'appartement d'Clara.
 
 Il avait demandé son accord à personne.
 
@@ -5814,7 +5814,7 @@ Victor le rejoignit.
 
 — J'aurais dû lui dire la vérité.
 
-Adrien ne répondit pas.
+Julien ne répondit pas.
 
 Victor regarda une photographie posée près de la fenêtre.
 
@@ -5824,7 +5824,7 @@ Victor regarda une photographie posée près de la fenêtre.
 
 — Ou elle serait venue quand même.
 
-Adrien le regarda enfin.
+Julien le regarda enfin.
 
 — Tu sais ce qui me met en colère ? Ce n'est pas seulement la bagarre. C'est qu'elle n'a pas eu le choix. Tu as décidé pour elle.
 
@@ -5848,7 +5848,7 @@ Il examina leur chargement.
 
 — Vous partez pour une guerre ?
 
-Adrien répondit immédiatement.
+Julien répondit immédiatement.
 
 — Pour retrouver une personne.
 
@@ -5864,9 +5864,9 @@ Victor soupira.
 
 — Bien sûr.
 
-— Si on retrouve Inès là-bas, est-ce qu'on lui raconte qu'on a dormi une semaine dans un hôtel cinq étoiles sans elle ?
+— Si on retrouve Clara là-bas, est-ce qu'on lui raconte qu'on a dormi une semaine dans un hôtel cinq étoiles sans elle ?
 
-— On était sur une île, répondit Sami.
+— On était sur une île, répondit Savio.
 
 — L'hôtel était très bien. J'ai même écrit l'enseigne.
 
@@ -5884,7 +5884,7 @@ Devant eux, la mer s'ouvrait vers l'île maudite.
 
 Le capitaine leur avait annoncé trois jours de navigation.
 
-Pour Adrien, ces trois jours étaient déjà trop longs.
+Pour Julien, ces trois jours étaient déjà trop longs.
 
 ---
 
@@ -5912,13 +5912,13 @@ Victor s'appuya sur le bastingage.
 
 — Je hais cet endroit.
 
-— Tu l'as déjà dit, répondit Adrien.
+— Tu l'as déjà dit, répondit Julien.
 
 — Je vais continuer jusqu'à ce qu'on me débarque.
 
 Le bateau avançait sous une toile tendue par le vent. La première île avait disparu depuis longtemps.
 
-Sami tenait un journal de bord improvisé. Il notait les changements de direction que le capitaine acceptait de commenter, la durée des étapes et les repères visibles. Il se méfiait de sa propre précision : aucun appareil embarqué ne lui permettait d'établir une position certaine, et il n'entendait pas inventer une route fiable à partir de quelques observations.
+Savio tenait un journal de bord improvisé. Il notait les changements de direction que le capitaine acceptait de commenter, la durée des étapes et les repères visibles. Il se méfiait de sa propre précision : aucun appareil embarqué ne lui permettait d'établir une position certaine, et il n'entendait pas inventer une route fiable à partir de quelques observations.
 
 — Tu écris encore ? demanda Nino.
 
@@ -5926,7 +5926,7 @@ Sami tenait un journal de bord improvisé. Il notait les changements de directio
 
 — « Premier jour, Victor vomit. Deuxième jour, Victor ment. Troisième jour, Victor regrette. »
 
-Sami sourit.
+Savio sourit.
 
 — Tu veux écrire la quatrième ligne ?
 
@@ -5956,7 +5956,7 @@ Victor écoutait avec un air douloureux.
 
 Le capitaine l'ignora.
 
-Il s'adressa à Adrien.
+Il s'adressa à Julien.
 
 — Votre sœur était persuadée qu'un passage pouvait s'y trouver. Elle avait entendu la légende de ma bouche et avait décidé de tenter sa chance avec deux de mes hommes.
 
@@ -5964,7 +5964,7 @@ Il s'adressa à Adrien.
 
 — Aucune.
 
-Adrien regarda les vagues.
+Julien regarda les vagues.
 
 — Alors je dois aller voir.
 
@@ -5972,7 +5972,7 @@ Le capitaine ne chercha pas à le dissuader.
 
 — Je vous y mènerai. Mais je ne peux pas vous promettre de rester indéfiniment sur cette côte.
 
-Sami releva les yeux.
+Savio releva les yeux.
 
 — Nous aurons besoin d'un moyen de revenir.
 
@@ -5980,15 +5980,15 @@ Sami releva les yeux.
 
 Victor ouvrit la bouche.
 
-Adrien lui lança un regard.
+Julien lui lança un regard.
 
 Il la referma.
 
 ***
 
-Le malfrat connaissait mieux que les autres la peur d'une situation qu'on ne maîtrisait plus.
+Raoul connaissait mieux que les autres la peur d'une situation qu'on ne maîtrisait plus.
 
-Il la reconnaissait dans les épaules d'Adrien, dans les calculs incessants de Sami, jusque dans la façon dont Victor parlait davantage dès que l'horizon devenait vide.
+Il la reconnaissait dans les épaules d'Julien, dans les calculs incessants de Savio, jusque dans la façon dont Victor parlait davantage dès que l'horizon devenait vide.
 
 Une nuit, il trouva Nino assis près d'un cordage.
 
@@ -6018,7 +6018,7 @@ Nino le regarda.
 
 — Tu crois qu'on va la retrouver ?
 
-Le malfrat hésita.
+Raoul hésita.
 
 Il aurait pu répondre oui, pour le rassurer.
 
@@ -6046,23 +6046,23 @@ Le capitaine fit ralentir le navire.
 
 Plusieurs marins se signèrent ou murmurèrent des paroles que les amis ne comprirent pas.
 
-Victor regarda Sami.
+Victor regarda Savio.
 
 — Tu vois quelque chose d'étrange ?
 
-Sami observa les rochers.
+Savio observa les rochers.
 
 — Pas encore.
 
 — C'est ce que disent les gens juste avant une catastrophe.
 
-Le malfrat fit signe de préparer les sacs.
+Raoul fit signe de préparer les sacs.
 
-Adrien fixait la côte.
+Julien fixait la côte.
 
 Pour lui, l'île avait un nom, une réputation et une seule raison d'exister.
 
-Inès avait voulu y venir.
+Clara avait voulu y venir.
 
 Alors il irait.
 
@@ -6090,7 +6090,7 @@ Ils découvrirent la grotte en contournant une paroi.
 
 L'entrée était plus basse que celle de la première île. Au-delà, un passage s'enfonçait vers une obscurité familière.
 
-Sami alluma sa lampe.
+Savio alluma sa lampe.
 
 Sur la roche, à hauteur des yeux, apparaissait un signe gravé.
 
@@ -6100,19 +6100,19 @@ Puis une succession de marques qu'il avait déjà vues.
 
 Il s'approcha.
 
-— Adrien.
+— Julien.
 
 Celui-ci revint vers lui.
 
 — Quoi ?
 
-Sami leva la lampe.
+Savio leva la lampe.
 
 — C'est le même type d'écriture que dans notre première salle.
 
 Le silence fut immédiat.
 
-Adrien fixa l'entrée.
+Julien fixa l'entrée.
 
 La légende du capitaine venait peut-être de cesser d'être une légende.
 
@@ -6124,13 +6124,13 @@ Et, sous leurs pas, la pierre sembla rendre un écho qui ne venait pas tout à f
 
 ## Chapitre 20 — Le deuxième mécanisme
 
-Sami retrouva dans cette grotte la sensation qui l'avait saisi lors de leur première découverte : l'impression d'être entré dans un endroit qui ne voulait pas être compris.
+Savio retrouva dans cette grotte la sensation qui l'avait saisi lors de leur première découverte : l'impression d'être entré dans un endroit qui ne voulait pas être compris.
 
 Les signes sur les murs se répétaient.
 
 Certains semblaient correspondre à ceux de la salle initiale, d'autres lui étaient inconnus. La pierre, pourtant, était disposée selon la même logique géométrique.
 
-Au-dessus des ouvertures, Sami distingua des emblèmes plus nets que le reste des gravures. Ils n'étaient pas tous identiques. Il retrouva dans son carnet le signe relevé au-dessus de la toute première arche, puis dessina ces nouvelles marques à côté.
+Au-dessus des ouvertures, Savio distingua des emblèmes plus nets que le reste des gravures. Ils n'étaient pas tous identiques. Il retrouva dans son carnet le signe relevé au-dessus de la toute première arche, puis dessina ces nouvelles marques à côté.
 
 — Chaque porte a peut-être son signe, murmura-t-il.
 
@@ -6156,11 +6156,11 @@ Nino tourna lentement sur lui-même.
 
 — Alors ça existe ailleurs.
 
-Sami posa sa main sur la pierre, sans toucher aux parties mobiles.
+Savio posa sa main sur la pierre, sans toucher aux parties mobiles.
 
 — On dirait un réseau.
 
-Adrien regarda les ouvertures.
+Julien regarda les ouvertures.
 
 — Tu peux savoir laquelle elle a prise ?
 
@@ -6168,27 +6168,27 @@ Adrien regarda les ouvertures.
 
 — Alors qu'est-ce qu'on fait ?
 
-Sami observa les signes.
+Savio observa les signes.
 
 Dans la première salle, ils n'avaient découvert les autres passages qu'au moment de la bagarre. Ici, ils comprenaient qu'un même type de mécanisme pouvait donner accès à plusieurs destinations.
 
 Une ouverture semblait déjà présente, éclairée d'une lueur faible. D'autres emplacements étaient clos.
 
-Le malfrat avança.
+Raoul avança.
 
 — Quelqu'un est passé ici.
 
-Adrien se retourna.
+Julien se retourna.
 
 — Comment tu le sais ?
 
 — Je ne le sais pas. Je vois seulement qu'une porte est prête à être empruntée.
 
-Sami acquiesça.
+Savio acquiesça.
 
 — C'est notre meilleure piste, mais ça n'est pas une preuve.
 
-Adrien fixa la lumière.
+Julien fixa la lumière.
 
 — On la prend.
 
@@ -6196,25 +6196,25 @@ Adrien fixa la lumière.
 
 Avant de franchir le passage, ils inspectèrent la salle plus méthodiquement qu'à Rome.
 
-Sami marqua le point d'arrivée sur son carnet et établit un repère visible, sans endommager les inscriptions.
+Savio marqua le point d'arrivée sur son carnet et établit un repère visible, sans endommager les inscriptions.
 
 Victor demanda :
 
 — On fait quoi si la porte se referme derrière nous ?
 
-Le malfrat posa une main sur son sac.
+Raoul posa une main sur son sac.
 
 — On vérifie d'abord qu'on peut revenir.
 
-Adrien acquiesça.
+Julien acquiesça.
 
 Ils procédèrent avec prudence, confirmèrent que la traversée pouvait être faite dans les deux sens, puis se retrouvèrent devant le choix qui les poursuivait depuis le début de leur quête.
 
 Continuer ou renoncer.
 
-— Trois jours de bateau, rappela Sami.
+— Trois jours de bateau, rappela Savio.
 
-— Je sais, dit Adrien.
+— Je sais, dit Julien.
 
 — Même si on revient dans cette grotte, il faudra encore regagner la première île pirate pour atteindre la salle qui mène chez nous.
 
@@ -6226,7 +6226,7 @@ Victor regarda la pierre.
 
 Personne ne rit.
 
-Adrien passa le premier.
+Julien passa le premier.
 
 ***
 
@@ -6238,7 +6238,7 @@ Ils sortirent d'un passage rocheux et découvrirent un paysage qui leur coupa le
 
 Des terres claires, un horizon éclatant, et plus loin, un cours d'eau large bordé d'une végétation dense. Des bâtiments aux murs ocre se dressaient près de champs irrigués. Des silhouettes circulaient entre des embarcations et de petits chemins.
 
-Sami resta immobile.
+Savio resta immobile.
 
 Victor regarda les constructions.
 
@@ -6246,11 +6246,11 @@ Nino posa son sac.
 
 — Je refuse de poser la question.
 
-Adrien se tourna vers Sami.
+Julien se tourna vers Savio.
 
 — Où est-on ?
 
-Sami scruta les berges, les bateaux, les vêtements de plusieurs passants.
+Savio scruta les berges, les bateaux, les vêtements de plusieurs passants.
 
 Il hésita longtemps.
 
@@ -6262,17 +6262,17 @@ Victor regarda le ciel.
 
 — Quoi ?
 
-— On a cherché Inès au Moyen Âge, puis à Rome, puis sur une île de pirates. Il ne manquait que l'Égypte.
+— On a cherché Clara au Moyen Âge, puis à Rome, puis sur une île de pirates. Il ne manquait que l'Égypte.
 
 Nino leva un doigt.
 
 — Et des dinosaures. On n'a pas encore vu de dinosaures.
 
-Le malfrat observait le fleuve.
+Raoul observait le fleuve.
 
 — On va avoir besoin d'eau, d'informations et de discrétion.
 
-Adrien regarda le passage derrière eux.
+Julien regarda le passage derrière eux.
 
 Il était encore là.
 
@@ -6280,13 +6280,13 @@ Ce qui le rassura un peu.
 
 Puis il regarda les maisons, les embarcations, les hommes et les femmes qui vivaient devant eux.
 
-À chaque époque, ils avaient cru être près d'Inès.
+À chaque époque, ils avaient cru être près d'Clara.
 
 Et à chaque époque, ils avaient dû repartir.
 
 Il commençait à se demander combien de mondes il faudrait traverser avant de la retrouver.
 
-Sami prit note des lieux.
+Savio prit note des lieux.
 
 Ce fut alors qu'ils entendirent une conversation derrière un petit groupe de voyageurs arrivant du fleuve.
 
@@ -6294,7 +6294,7 @@ Une femme parlait d'une étrangère qui donnait des ordres à des hommes plus â
 
 Victor se retourna si vite qu'il faillit perdre l'équilibre.
 
-Adrien s'avança.
+Julien s'avança.
 
 — Quelle étrangère ?
 
@@ -6302,7 +6302,7 @@ La femme le regarda.
 
 — Celle qui aide les gens du fleuve. Celle que les soldats voudraient faire taire.
 
-Adrien sentit l'espoir lui traverser la poitrine.
+Julien sentit l'espoir lui traverser la poitrine.
 
 Une femme étrangère.
 
@@ -6318,7 +6318,7 @@ Il regarda ses compagnons.
 
 ## Chapitre 21 — L'étrangère et les deux pirates
 
-Inès avait découvert qu'un capitaine pouvait être très têtu.
+Clara avait découvert qu'un capitaine pouvait être très têtu.
 
 Elle avait également découvert qu'il existait quelque chose de plus têtu qu'un capitaine.
 
@@ -6328,7 +6328,7 @@ Lorsque l'homme avait refusé de la conduire jusqu'à l'île maudite, elle avait
 
 Ils avaient préparé une embarcation, pris des provisions et quitté le navire avec l'accord réticent de leur capitaine, malgré ses avertissements.
 
-Inès avait promis qu'ils reviendraient lorsqu'ils auraient retrouvé quelque chose.
+Clara avait promis qu'ils reviendraient lorsqu'ils auraient retrouvé quelque chose.
 
 Le capitaine lui avait demandé :
 
@@ -6354,7 +6354,7 @@ Solan, lui, avait touché la pierre avec fascination.
 
 — C'est comme si quelqu'un avait construit une porte à l'intérieur d'une montagne.
 
-Inès avait reconnu le principe avant les deux autres.
+Clara avait reconnu le principe avant les deux autres.
 
 Elle n'avait pas compris le mécanisme. Pas plus que Victor ou les garçons auparavant.
 
@@ -6376,7 +6376,7 @@ Puis ils avaient découvert l'Égypte.
 
 ***
 
-La première difficulté d'Inès fut la chaleur.
+La première difficulté d'Clara fut la chaleur.
 
 La deuxième fut de convaincre deux pirates habitués à la mer qu'un grand fleuve n'était pas nécessairement un chemin vers leur bateau.
 
@@ -6386,17 +6386,17 @@ Ils arrivèrent dans un petit ensemble d'habitations situé non loin d'une zone 
 
 Les hommes portaient des charges lourdes. Des femmes s'occupaient des récoltes, des enfants transportaient de l'eau et des hommes armés surveillaient les déplacements.
 
-Inès se demanda immédiatement pourquoi les soldats avaient l'air aussi bien nourris que ceux qui travaillaient étaient épuisés.
+Clara se demanda immédiatement pourquoi les soldats avaient l'air aussi bien nourris que ceux qui travaillaient étaient épuisés.
 
 Dara, une femme d'âge mûr dont le regard ne cédait pas facilement, les observa sans les accueillir.
 
 — Qui vous a envoyés ?
 
-— Personne, répondit Inès.
+— Personne, répondit Clara.
 
 — Alors pourquoi êtes-vous ici ?
 
-Inès réfléchit.
+Clara réfléchit.
 
 — Je cherche un passage.
 
@@ -6406,7 +6406,7 @@ Dara ne parut pas impressionnée.
 
 Elle leur demanda de repartir avant que les soldats ne viennent poser des questions.
 
-Inès avait connu des capitaines plus aimables.
+Clara avait connu des capitaines plus aimables.
 
 Elle regarda les enfants qui portaient des jarres, puis Dara.
 
@@ -6426,7 +6426,7 @@ L'officier répondit qu'il exécutait l'ordre du pharaon.
 
 Il ne prononça pas le nom du peuple autrement que comme une catégorie inférieure, destinée à travailler pour la prospérité des autres.
 
-Inès sentit la colère lui monter aux joues.
+Clara sentit la colère lui monter aux joues.
 
 — Vous ne pouvez pas les laisser sans rien.
 
@@ -6444,7 +6444,7 @@ L'officier sourit d'un air méprisant.
 
 — Alors comptez vos pas et quittez cet endroit.
 
-Inès ouvrit la bouche pour répondre.
+Clara ouvrit la bouche pour répondre.
 
 Dara posa une main ferme sur son bras.
 
@@ -6452,7 +6452,7 @@ Dara posa une main ferme sur son bras.
 
 Le ton n'admettait aucune discussion.
 
-Inès se tut.
+Clara se tut.
 
 Les soldats repartirent avec une partie des provisions.
 
@@ -6468,7 +6468,7 @@ La phrase la frappa plus fort qu'une gifle.
 
 ***
 
-Inès commença à aider là où on acceptait son aide.
+Clara commença à aider là où on acceptait son aide.
 
 Elle ne connaissait ni l'histoire complète de cette communauté ni toutes les règles qui la maintenaient sous l'autorité du pharaon. Elle se fit remettre à sa place plusieurs fois.
 
@@ -6482,11 +6482,11 @@ Elle ne s'excusa pas toujours avec grâce.
 
 Mais elle apprit.
 
-Elle écouta surtout Dara, dont les décisions tenaient compte de dizaines de problèmes qu'Inès découvrait un par un.
+Elle écouta surtout Dara, dont les décisions tenaient compte de dizaines de problèmes qu'Clara découvrait un par un.
 
 Malo et Solan rendaient des services sur les embarcations du fleuve. Ils savaient réparer des choses, déplacer des charges et reconnaître quand un bateau ne pourrait pas supporter un voyage.
 
-Inès se rendit utile dans l'organisation de tâches simples et dans les moments où plusieurs urgences arrivaient en même temps.
+Clara se rendit utile dans l'organisation de tâches simples et dans les moments où plusieurs urgences arrivaient en même temps.
 
 Elle avait appris chez les pirates qu'un ordre ne vaut rien si personne ne peut le comprendre.
 
@@ -6500,7 +6500,7 @@ Des représentants d'autres maisons étaient venus.
 
 Ils parlèrent de la nourriture qui manquait, des hommes envoyés travailler loin, des violences subies et de la manière dont le pouvoir du pharaon leur refusait toute possibilité de décider pour eux-mêmes.
 
-Inès resta silencieuse.
+Clara resta silencieuse.
 
 Elle aurait voulu leur promettre qu'elle allait tout arranger.
 
@@ -6518,7 +6518,7 @@ Une jeune femme répondit :
 
 Personne ne contredit.
 
-Inès sentit que quelque chose se préparait.
+Clara sentit que quelque chose se préparait.
 
 Ce n'était pas elle qui l'avait apporté.
 
@@ -6528,7 +6528,7 @@ Dara se tourna vers elle.
 
 — Vous avez dit venir d'ailleurs. Pourquoi restez-vous ?
 
-Inès pensa à Adrien.
+Clara pensa à Julien.
 
 À Victor.
 
@@ -6556,7 +6556,7 @@ Certains habitants lui faisaient confiance.
 
 D'autres lui reprochaient sa présence, qui pouvait attirer des ennuis.
 
-Inès accepta ces contradictions plus difficilement qu'elle ne l'aurait admis.
+Clara accepta ces contradictions plus difficilement qu'elle ne l'aurait admis.
 
 Un matin, Malo la retrouva penchée sur une liste de provisions.
 
@@ -6570,7 +6570,7 @@ Elle leva les yeux.
 
 Solan éclata de rire.
 
-Inès lui lança un morceau de tissu.
+Clara lui lança un morceau de tissu.
 
 Puis elle se remit au travail.
 
@@ -6584,7 +6584,7 @@ Et cette idée, elle n'était pas encore prête à l'affronter.
 
 ## Chapitre 22 — La reine qu'ils cherchaient
 
-Adrien n'avait jamais autant détesté les compliments.
+Julien n'avait jamais autant détesté les compliments.
 
 Depuis une demi-journée, chaque personne qu'ils interrogeaient leur parlait d'une étrangère remarquable.
 
@@ -6594,7 +6594,7 @@ Une femme qui aidait les villages.
 
 Une femme qui pouvait tenir tête à un officier sans baisser les yeux.
 
-Et chaque fois, Adrien demandait :
+Et chaque fois, Julien demandait :
 
 — Où est-elle ?
 
@@ -6602,7 +6602,7 @@ Et chaque fois, on lui répondait :
 
 — Un peu plus loin.
 
-Sami remarqua que plusieurs habitants évoquaient une communauté placée sous une surveillance sévère. Il nota les lieux, les chemins, les règles de circulation.
+Savio remarqua que plusieurs habitants évoquaient une communauté placée sous une surveillance sévère. Il nota les lieux, les chemins, les règles de circulation.
 
 Victor, lui, avait cessé de parler depuis longtemps.
 
@@ -6630,7 +6630,7 @@ Un peu plus loin, une voix s'éleva.
 
 — Non ! Pas ces sacs-là ! Ceux qui sont secs, d'abord !
 
-Adrien s'arrêta.
+Julien s'arrêta.
 
 La voix continua.
 
@@ -6648,17 +6648,17 @@ Nino ouvrit de grands yeux.
 
 — C'est elle.
 
-Adrien ne l'écoutait plus.
+Julien ne l'écoutait plus.
 
 Il avait déjà traversé la cour.
 
 ***
 
-Inès tournait le dos à l'entrée.
+Clara tournait le dos à l'entrée.
 
 Elle tenait un petit carnet et semblait diriger plusieurs personnes avec l'assurance de quelqu'un qui avait cessé depuis longtemps de demander la permission.
 
-— Inès.
+— Clara.
 
 Elle se figea.
 
@@ -6670,7 +6670,7 @@ Pendant une seconde, elle ne bougea pas.
 
 Le carnet glissa de ses mains.
 
-— Adrien ?
+— Julien ?
 
 Il la rejoignit.
 
@@ -6684,7 +6684,7 @@ Il en fit tomber un deuxième.
 
 — Rien de grave ! lança-t-il.
 
-Inès releva la tête.
+Clara releva la tête.
 
 Elle aperçut Victor.
 
@@ -6710,7 +6710,7 @@ Victor baissa la tête.
 
 — Oui.
 
-Inès s'approcha.
+Clara s'approcha.
 
 — Tu es un imbécile.
 
@@ -6728,7 +6728,7 @@ Nino détourna discrètement la tête, comme s'il avait besoin d'observer très 
 
 Les présentations durèrent longtemps.
 
-Inès voulut savoir comment ils l'avaient retrouvée. Adrien lui raconta Rome, l'arène, la barrette, la vie sur l'île et les pirates.
+Clara voulut savoir comment ils l'avaient retrouvée. Julien lui raconta Rome, l'arène, la barrette, la vie sur l'île et les pirates.
 
 Elle interrompit son récit une dizaine de fois.
 
@@ -6738,11 +6738,11 @@ Elle interrompit son récit une dizaine de fois.
 
 — Tous les quatre ?
 
-Le malfrat s'approcha.
+Raoul s'approcha.
 
 — Cinq.
 
-Inès le regarda.
+Clara le regarda.
 
 Son sourire disparut.
 
@@ -6754,11 +6754,11 @@ Victor leva les mains.
 
 — Encore une ?
 
-Adrien prit la parole.
+Julien prit la parole.
 
 — Il nous a aidés à survivre.
 
-Inès regarda l'ancien contrebandier longtemps.
+Clara regarda l'ancien contrebandier longtemps.
 
 — Ça n'efface pas le reste.
 
@@ -6786,37 +6786,37 @@ La joie de la retrouver n'effaçait pas leur fatigue, mais elle leur rendait une
 
 Dara arriva alors.
 
-Elle avait entendu dire que des étrangers étaient venus chercher Inès. Elle examina les cinq hommes sans chercher à cacher son étonnement.
+Elle avait entendu dire que des étrangers étaient venus chercher Clara. Elle examina les cinq hommes sans chercher à cacher son étonnement.
 
 — Vous êtes ses proches ?
 
-Adrien acquiesça.
+Julien acquiesça.
 
 — Son frère.
 
-Dara le regarda, puis Inès.
+Dara le regarda, puis Clara.
 
 — Je comprends certaines choses.
 
-— Lesquelles ? demanda Inès.
+— Lesquelles ? demanda Clara.
 
 — Votre manière de donner des ordres doit être une tradition familiale.
 
 Nino éclata de rire.
 
-Inès lui lança un regard.
+Clara lui lança un regard.
 
 — Toi, n'en rajoute pas.
 
 Dara leur expliqua que le village était surveillé et que les visiteurs devraient faire preuve de prudence. Plusieurs familles vivaient sous les obligations imposées par le pouvoir du pharaon, et toute agitation pouvait provoquer des représailles.
 
-Adrien écouta.
+Julien écouta.
 
 Il remarqua les visages fatigués, les provisions soigneusement comptées, les enfants silencieux.
 
 — On doit rentrer, dit-il finalement.
 
-Inès se tourna vers lui.
+Clara se tourna vers lui.
 
 — Je sais.
 
@@ -6828,7 +6828,7 @@ Puis les autres habitants.
 
 — Pas maintenant.
 
-Adrien sentit l'incompréhension le traverser.
+Julien sentit l'incompréhension le traverser.
 
 — On a traversé des époques entières pour te retrouver.
 
@@ -6836,15 +6836,15 @@ Adrien sentit l'incompréhension le traverser.
 
 — On est revenus à cinq d'une arène où on aurait pu mourir.
 
-— Je sais, Adrien.
+— Je sais, Julien.
 
 — Et tu veux rester ici ?
 
-Inès s'approcha.
+Clara s'approcha.
 
 — Tu vois ces gens ? Quand je suis arrivée, ils m'ont aidée sans rien savoir de moi. Depuis, je les vois subir ce que le pharaon leur impose. Ils parlent de se soulever depuis bien avant mon arrivée. Tu voudrais que je leur tourne le dos au moment où ils ont le plus besoin d'alliés ?
 
-Adrien ne répondit pas.
+Julien ne répondit pas.
 
 — Je veux rentrer, dit-elle plus doucement. Plus que tu ne l'imagines. Mais je ne peux pas faire comme si rien ne s'était passé ici.
 
@@ -6858,7 +6858,7 @@ Et cette place avait des conséquences.
 
 ***
 
-Le soir, les cinq rencontrèrent Malo et Solan, les deux pirates qui avaient accompagné Inès jusqu'à l'Égypte.
+Le soir, les cinq rencontrèrent Malo et Solan, les deux pirates qui avaient accompagné Clara jusqu'à l'Égypte.
 
 Ils ne ressemblèrent pas longtemps à des figures de légende.
 
@@ -6870,7 +6870,7 @@ Nino se plaignit de ne pas avoir trouvé de bain depuis l'île.
 
 Au bout de dix minutes, ils s'entendaient déjà suffisamment pour se moquer les uns des autres.
 
-Le malfrat observa les deux marins, puis Inès.
+Raoul observa les deux marins, puis Clara.
 
 — Vous êtes venus volontairement ?
 
@@ -6880,7 +6880,7 @@ Malo acquiesça.
 
 — Je confirme, dit Solan.
 
-Inès leva les yeux au ciel.
+Clara leva les yeux au ciel.
 
 — Vous savez que je vous entends ?
 
@@ -6888,7 +6888,7 @@ Inès leva les yeux au ciel.
 
 ***
 
-Plus tard, Adrien retrouva sa sœur près du fleuve.
+Plus tard, Julien retrouva sa sœur près du fleuve.
 
 Elle regardait l'eau dans la lumière du soir.
 
@@ -6902,7 +6902,7 @@ Il resta silencieux.
 
 — Maintenant, je crois que je comprends un peu.
 
-Inès lui prit le bras.
+Clara lui prit le bras.
 
 — Je ne veux pas rester prisonnière de cette époque. Je veux qu'on rentre tous ensemble.
 
@@ -6912,7 +6912,7 @@ Elle regarda le village.
 
 — Parce que partir maintenant, ce serait laisser d'autres personnes prisonnières de la leur.
 
-Adrien suivit son regard.
+Julien suivit son regard.
 
 Il pensa à ce qu'ils avaient provoqué au Moyen Âge en apportant des armes sans réfléchir.
 
@@ -6926,7 +6926,7 @@ Il finit par dire :
 
 — D'accord.
 
-Inès se tourna vers lui.
+Clara se tourna vers lui.
 
 — D'accord quoi ?
 
@@ -6936,17 +6936,17 @@ Elle sourit.
 
 — Tu vas avoir beaucoup de choses à faire.
 
-Adrien soupira.
+Julien soupira.
 
 — Je n'en ai jamais douté.
 
 Au loin, Nino cria qu'il cherchait les sacs de provisions.
 
-Inès se retourna immédiatement.
+Clara se retourna immédiatement.
 
 — Pas ceux qui sont à gauche !
 
-Adrien éclata de rire.
+Julien éclata de rire.
 
 Pour la première fois depuis sa disparition, il rit sans se forcer.
 
@@ -6966,7 +6966,7 @@ Le représentant lut une déclaration au centre du village.
 
 À compter de la prochaine récolte, davantage de familles devraient envoyer des travailleurs sur les chantiers royaux. Les stocks de vivres seraient contrôlés plus sévèrement. Les habitants ne pourraient plus déplacer certaines marchandises sans autorisation.
 
-Inès écouta jusqu'au bout.
+Clara écouta jusqu'au bout.
 
 — Et ceux qui ne peuvent pas travailler ? demanda-t-elle.
 
@@ -7000,13 +7000,13 @@ Il y avait des représentants de familles, des artisans, des personnes qui entre
 
 Les cinq amis étaient présents, mais Dara leur avait fait comprendre que la décision appartiendrait aux habitants.
 
-Adrien approuva sans réserve.
+Julien approuva sans réserve.
 
 Victor semblait moins sûr de comprendre pourquoi on ne les consultait pas davantage.
 
 — On vient quand même de traverser trois époques pour arriver ici, murmura-t-il.
 
-— Ce n'est pas leur problème, répondit Sami.
+— Ce n'est pas leur problème, répondit Savio.
 
 Nino hocha la tête.
 
@@ -7030,7 +7030,7 @@ Personne ne le traita de lâche.
 
 La peur faisait partie du débat.
 
-Inès resta silencieuse, malgré l'envie évidente de donner son opinion.
+Clara resta silencieuse, malgré l'envie évidente de donner son opinion.
 
 Malo, installé près de la porte, lui adressa un sourire.
 
@@ -7078,7 +7078,7 @@ Les habitants le firent.
 
 ***
 
-Après la réunion, Adrien retrouva Inès près d'un mur.
+Après la réunion, Julien retrouva Clara près d'un mur.
 
 — Je n'ai pas aimé ce qui vient de se passer, dit-il.
 
@@ -7094,7 +7094,7 @@ Elle regarda le petit groupe de personnes qui discutait encore autour de Dara.
 
 — Ils savent mieux que nous ce qu'ils risquent de perdre.
 
-Adrien passa une main sur son visage.
+Julien passa une main sur son visage.
 
 — Et nous, on fait quoi ?
 
@@ -7104,7 +7104,7 @@ Victor arriva avec une liste de ressources.
 
 — On peut acheter des provisions, financer des transports, aider à organiser...
 
-Le malfrat l'interrompit.
+Raoul l'interrompit.
 
 — On ne règlera pas tout avec de l'argent.
 
@@ -7122,9 +7122,9 @@ Victor regardait les familles réunies plus loin.
 
 Les jours suivants, le groupe se répartit les tâches.
 
-Dara et les responsables locaux établissaient leurs priorités. Adrien aidait à coordonner ce qu'on lui demandait. Victor mettait sa capacité de négociation au service des réserves de vivres et des échanges entre communautés. Malo et Solan travaillaient avec les bateliers, qui connaissaient bien mieux le fleuve que des voyageurs arrivés récemment.
+Dara et les responsables locaux établissaient leurs priorités. Julien aidait à coordonner ce qu'on lui demandait. Victor mettait sa capacité de négociation au service des réserves de vivres et des échanges entre communautés. Malo et Solan travaillaient avec les bateliers, qui connaissaient bien mieux le fleuve que des voyageurs arrivés récemment.
 
-Sami recueillait les informations et essayait de comprendre le fonctionnement de l'administration égyptienne. Il apprit qu'une bibliothèque conservait des archives anciennes et des textes que certains scribes consultaient pour résoudre des questions de territoires et d'obligations.
+Savio recueillait les informations et essayait de comprendre le fonctionnement de l'administration égyptienne. Il apprit qu'une bibliothèque conservait des archives anciennes et des textes que certains scribes consultaient pour résoudre des questions de territoires et d'obligations.
 
 L'idée l'intéressa immédiatement.
 
@@ -7142,7 +7142,7 @@ Ce fut un record.
 
 ***
 
-Le malfrat rejoignit Adrien en fin de journée.
+Raoul rejoignit Julien en fin de journée.
 
 — Ils vont se battre, dit-il.
 
@@ -7152,19 +7152,19 @@ Le malfrat rejoignit Adrien en fin de journée.
 
 — Je sais.
 
-Le malfrat regarda vers le village.
+Raoul regarda vers le village.
 
 — Même avec quelques objets modernes, on ne les sauvera pas par miracle.
 
-Adrien se souvenait trop bien des conséquences de leur dernière guerre.
+Julien se souvenait trop bien des conséquences de leur dernière guerre.
 
 — Alors qu'est-ce que tu proposes ?
 
-Le malfrat hésita.
+Raoul hésita.
 
 — On a trouvé d'autres portails dans la grotte de l'île maudite. On pourrait au moins regarder où ils mènent. Chercher un chemin pour rentrer chez nous. Et, si on trouve quelque chose d'utile, le rapporter.
 
-Adrien fronça les sourcils.
+Julien fronça les sourcils.
 
 — Tu parles de repartir en pleine préparation ?
 
@@ -7174,7 +7174,7 @@ Nino, qui arrivait derrière eux, leva la main.
 
 — Je viens.
 
-Le malfrat se retourna.
+Raoul se retourna.
 
 — Tu viens où ?
 
@@ -7190,7 +7190,7 @@ Nino sourit.
 
 — Et puis je suis celui qui a reconnu les marques sur l'île. Je suis officiellement éclaireur.
 
-Adrien regarda les deux hommes.
+Julien regarda les deux hommes.
 
 C'était une association à laquelle il n'aurait jamais pensé quelques semaines plus tôt.
 
@@ -7200,7 +7200,7 @@ Nino acquiesça.
 
 — Promis.
 
-Le malfrat lui tendit la main.
+Raoul lui tendit la main.
 
 — Promis.
 
@@ -7214,7 +7214,7 @@ Il restait désormais à lui donner une chance.
 
 ## Chapitre 24 — Des signes dans les archives
 
-Sami avait toujours aimé les bibliothèques.
+Savio avait toujours aimé les bibliothèques.
 
 C'était l'un des rares endroits où personne ne le regardait bizarrement lorsqu'il annonçait qu'il voulait passer trois heures à comprendre un détail.
 
@@ -7230,7 +7230,7 @@ L'homme qui gardait l'accès le considéra avec méfiance.
 
 — Les étrangers disent toujours cela.
 
-Sami montra les signes qu'il avait recopiés dans son carnet.
+Savio montra les signes qu'il avait recopiés dans son carnet.
 
 — J'ai vu ces marques dans une construction ancienne. Je cherche à savoir si quelqu'un les connaît.
 
@@ -7242,7 +7242,7 @@ Puis ses yeux revinrent sur l'un des signes.
 
 — Où avez-vous trouvé cela ?
 
-Sami sentit son cœur accélérer.
+Savio sentit son cœur accélérer.
 
 — Dans une grotte.
 
@@ -7254,7 +7254,7 @@ L'homme resta silencieux.
 
 Le scribe qui vint le rencontrer était âgé, mince et manifestement peu disposé à supporter les excès d'enthousiasme d'un visiteur.
 
-Il examina les notes de Sami.
+Il examina les notes de Savio.
 
 — Ce n'est pas une écriture ordinaire.
 
@@ -7262,13 +7262,13 @@ Il examina les notes de Sami.
 
 — Certains signes ressemblent à ceux de fragments que nous conservons. Cela ne signifie pas que nous les comprenons.
 
-Sami ouvrit son carnet à la page où il avait reproduit les emblèmes des différentes arches. Le scribe en suivit plusieurs du doigt, sans parvenir à les nommer.
+Savio ouvrit son carnet à la page où il avait reproduit les emblèmes des différentes arches. Le scribe en suivit plusieurs du doigt, sans parvenir à les nommer.
 
 — Vous les avez trouvés au même endroit ? demanda-t-il.
 
-— Pas tous, répondit Sami. C'est justement ce qui m'intrigue.
+— Pas tous, répondit Savio. C'est justement ce qui m'intrigue.
 
-Sami sourit.
+Savio sourit.
 
 — C'est déjà beaucoup.
 
@@ -7288,7 +7288,7 @@ Certains les considéraient comme des récits symboliques.
 
 D'autres comme des descriptions de constructions disparues.
 
-Sami n'entendit que la deuxième possibilité.
+Savio n'entendit que la deuxième possibilité.
 
 — Des constructions ?
 
@@ -7296,7 +7296,7 @@ Le scribe l'observa.
 
 — Vous avez l'air bien pressé de choisir.
 
-Sami baissa les yeux.
+Savio baissa les yeux.
 
 — C'est une mauvaise habitude.
 
@@ -7306,7 +7306,7 @@ Sami baissa les yeux.
 
 Ils travaillèrent pendant plusieurs heures.
 
-Sami ne savait pas lire les textes anciens sans aide. Il dépendait des explications du scribe, de ses propres observations et des comparaisons qu'ils pouvaient établir.
+Savio ne savait pas lire les textes anciens sans aide. Il dépendait des explications du scribe, de ses propres observations et des comparaisons qu'ils pouvaient établir.
 
 Parmi les fragments apparut un schéma.
 
@@ -7316,7 +7316,7 @@ Plusieurs traits s'en échappant.
 
 À leur extrémité, d'autres cercles.
 
-Sami se pencha.
+Savio se pencha.
 
 — Attendez.
 
@@ -7334,7 +7334,7 @@ Les ressemblances n'étaient pas exactes.
 
 Mais il y avait un principe commun : un dispositif central entouré de plusieurs ouvertures possibles.
 
-— Ce sont des portes, murmura Sami.
+— Ce sont des portes, murmura Savio.
 
 — Le mot employé dans le texte peut désigner un passage, répondit le scribe. Ou une entrée. Ou un seuil symbolique.
 
@@ -7344,7 +7344,7 @@ Le scribe regarda son dessin.
 
 — C'est une lecture possible.
 
-Sami sentit une idée prendre forme.
+Savio sentit une idée prendre forme.
 
 Ils avaient d'abord cru que chaque portail menait à une destination unique. Puis la deuxième grotte leur avait montré que plusieurs portes pouvaient dépendre d'un seul mécanisme.
 
@@ -7362,7 +7362,7 @@ Le scribe suivit son geste.
 
 — Alors pourquoi le dessiner ?
 
-Sami leva les yeux.
+Savio leva les yeux.
 
 — Pour savoir ce que je dois chercher.
 
@@ -7372,7 +7372,7 @@ En sortant, il retrouva Victor près de la cour.
 
 Son ami était assis sur un banc, occupé à discuter avec un homme qui vendait des provisions.
 
-— Tu fais quoi ? demanda Sami.
+— Tu fais quoi ? demanda Savio.
 
 — Je négocie.
 
@@ -7380,13 +7380,13 @@ Son ami était assis sur un banc, occupé à discuter avec un homme qui vendait 
 
 — Pour nourrir des gens qui sont décidés à se battre. Ce n'est pas tout à fait pareil.
 
-Sami s'assit.
+Savio s'assit.
 
 Victor remarqua son expression.
 
 — Tu as trouvé quelque chose.
 
-Sami montra son carnet.
+Savio montra son carnet.
 
 — Peut-être.
 
@@ -7412,15 +7412,15 @@ Puis il dit :
 
 — Tu veux dire que les mondes que les deux éclaireurs vont découvrir pourraient eux-mêmes avoir plusieurs passages ?
 
-Sami acquiesça.
+Savio acquiesça.
 
 — Si ces portes suivent le même principe, oui. Mais on ne sait même pas encore où elles conduisent.
 
 Victor contempla les dessins.
 
-— Le malfrat et Nino vont donc chercher une porte qui nous ramène chez nous...
+— Raoul et Nino vont donc chercher une porte qui nous ramène chez nous...
 
-— ... et il faudra peut-être chercher au-delà de la première destination, conclut Sami.
+— ... et il faudra peut-être chercher au-delà de la première destination, conclut Savio.
 
 Victor considéra le schéma.
 
@@ -7430,17 +7430,17 @@ Victor considéra le schéma.
 
 — Tu en es sûr ?
 
-Sami rangea le carnet.
+Savio rangea le carnet.
 
 — Non. Mais je commence enfin à comprendre comment chercher.
 
 ***
 
-Ce soir-là, il rejoignit Inès et Adrien.
+Ce soir-là, il rejoignit Clara et Julien.
 
 La préparation de la rébellion avançait. Dara avait convoqué les représentants de plusieurs communautés. Les rapports faisaient état d'un mouvement de troupes du pharaon.
 
-Sami hésita à parler de sa découverte.
+Savio hésita à parler de sa découverte.
 
 Elle lui paraissait énorme.
 
@@ -7450,17 +7450,17 @@ Pas immédiatement.
 
 — J'ai trouvé des signes dans les archives, dit-il simplement. Des indices concernant le fonctionnement des portails. Je dois encore vérifier beaucoup de choses.
 
-Inès leva les yeux de sa table.
+Clara leva les yeux de sa table.
 
 — Tu veux dire qu'on pourrait rentrer plus facilement ?
 
 — Peut-être. Pas maintenant, et pas sans explorer davantage.
 
-Adrien regarda le carnet.
+Julien regarda le carnet.
 
 — Garde tout ça. On en aura besoin quand ce sera terminé.
 
-Sami acquiesça.
+Savio acquiesça.
 
 Il posa son dossier à l'écart des plans de ravitaillement.
 
@@ -7478,7 +7478,7 @@ Le premier, lui, allait bientôt se régler dans la douleur.
 
 ## Chapitre 25 — L'or ne vaut rien
 
-Le malfrat vérifia trois fois que la porte vers l'Égypte était bien celle qu'ils venaient d'emprunter.
+Raoul vérifia trois fois que la porte vers l'Égypte était bien celle qu'ils venaient d'emprunter.
 
 Nino l'observa avec un sourire.
 
@@ -7488,9 +7488,9 @@ Nino l'observa avec un sourire.
 
 — Ça élimine la moitié du monde.
 
-Ils se trouvaient dans la seconde salle des portails, sous l'île maudite. Les signes éclairés dessinaient plusieurs ouvertures. Sami leur avait demandé de noter soigneusement chaque essai, de revenir dès qu'ils n'étaient plus certains de leur chemin et de ne toucher à aucun mécanisme qu'ils ne comprenaient pas.
+Ils se trouvaient dans la seconde salle des portails, sous l'île maudite. Les signes éclairés dessinaient plusieurs ouvertures. Savio leur avait demandé de noter soigneusement chaque essai, de revenir dès qu'ils n'étaient plus certains de leur chemin et de ne toucher à aucun mécanisme qu'ils ne comprenaient pas.
 
-Le malfrat avait retenu les consignes.
+Raoul avait retenu les consignes.
 
 Nino avait retenu qu'on lui faisait enfin assez confiance pour l'envoyer en mission.
 
@@ -7498,7 +7498,7 @@ Nino avait retenu qu'on lui faisait enfin assez confiance pour l'envoyer en miss
 
 Il entra.
 
-Le malfrat le suivit.
+Raoul le suivit.
 
 ***
 
@@ -7510,7 +7510,7 @@ Des hommes en armure traversèrent un chemin. Leurs armes, leurs vêtements et l
 
 — Le Japon, souffla-t-il.
 
-Le malfrat regarda les guerriers.
+Raoul regarda les guerriers.
 
 — Et pas le Japon des touristes.
 
@@ -7530,7 +7530,7 @@ Le paysage était magnifique. Tout invitait à s'enfoncer vers les villages, à 
 
 Mais leur mission ne consistait pas à commencer une nouvelle aventure.
 
-— On rentre, dit le malfrat.
+— On rentre, dit Raoul.
 
 Nino hésita.
 
@@ -7554,7 +7554,7 @@ Il s'arrêta net.
 
 — Je retire ce que j'ai dit sur le Japon.
 
-Le malfrat fixait une machine qui venait de glisser près d'eux sans roue apparente.
+Raoul fixait une machine qui venait de glisser près d'eux sans roue apparente.
 
 — On est où ?
 
@@ -7570,7 +7570,7 @@ Il regarda la date.
 
 Ils avancèrent prudemment jusqu'à une zone où plusieurs personnes échangeaient des objets et des services. Rien ne ressemblait aux boutiques qu'ils connaissaient, mais ils finirent par comprendre qu'il s'agissait d'un lieu de commerce.
 
-Le malfrat sortit une pièce d'or.
+Raoul sortit une pièce d'or.
 
 Il la présenta à une commerçante.
 
@@ -7586,7 +7586,7 @@ La femme désigna la pièce.
 
 — Vous pouvez en obtenir autant que vous voulez avec les procédés ordinaires. Pourquoi vous donnerais-je quelque chose pour ça ?
 
-Le malfrat rangea lentement l'or.
+Raoul rangea lentement l'or.
 
 — Il faut repartir.
 
@@ -7598,7 +7598,7 @@ Le malfrat rangea lentement l'or.
 
 Ils essayèrent encore deux endroits. Le résultat fut le même. L'or intéressait à peine les habitants, sinon comme un métal banal.
 
-Le malfrat regarda la porte qu'ils avaient laissée derrière eux.
+Raoul regarda la porte qu'ils avaient laissée derrière eux.
 
 — On ne va pas faire le tour de cette ville sans ressources.
 
@@ -7616,7 +7616,7 @@ Un sourire apparut sur son visage.
 
 — J'ai une idée.
 
-Le malfrat se méfia immédiatement.
+Raoul se méfia immédiatement.
 
 — Non.
 
@@ -7632,13 +7632,13 @@ Nino le lui montra.
 
 — Chez nous, c'est le dernier modèle. Ici, c'est sûrement un objet très ancien.
 
-Le malfrat resta immobile.
+Raoul resta immobile.
 
 — Tu veux vendre un appareil qui ne capte même pas leur réseau ?
 
 — Ce n'est pas un appareil qu'on vend. C'est une antiquité.
 
-Le malfrat le regarda plus attentivement.
+Raoul le regarda plus attentivement.
 
 Pour la première fois depuis leur départ, il ne trouva rien à répondre.
 
@@ -7684,7 +7684,7 @@ Le collectionneur ne l'écoutait déjà plus.
 
 Il lui proposa un montant que Nino ne sut pas comparer à quoi que ce soit.
 
-Le malfrat fit remarquer que cette somme devait avoir un équivalent utilisable dans la ville.
+Raoul fit remarquer que cette somme devait avoir un équivalent utilisable dans la ville.
 
 Le collectionneur accepta de leur fournir un moyen d'échange local.
 
@@ -7692,7 +7692,7 @@ Nino hésita.
 
 Ce téléphone contenait des photographies, des messages, des souvenirs. Depuis qu'ils avaient commencé à traverser des époques, il avait été son seul objet vraiment personnel.
 
-Le malfrat le remarqua.
+Raoul le remarqua.
 
 — Tu n'es pas obligé.
 
@@ -7712,7 +7712,7 @@ Le collectionneur le prit avec le soin réservé à un objet unique.
 
 Ils n'avaient pas assez de temps pour découvrir toute la société futuriste.
 
-Le malfrat insista pour qu'ils ne s'éloignent pas davantage du passage. Dans la zone commerciale voisine, ils remarquèrent un équipement de protection portatif qui paraissait ordinaire à ceux qui le vendaient.
+Raoul insista pour qu'ils ne s'éloignent pas davantage du passage. Dans la zone commerciale voisine, ils remarquèrent un équipement de protection portatif qui paraissait ordinaire à ceux qui le vendaient.
 
 Pour Nino et son compagnon, c'était un objet de science-fiction.
 
@@ -7722,7 +7722,7 @@ Sa forme compacte et son étrange matière ne permettaient pas de comprendre imm
 
 Le vendeur confirma qu'il s'agissait d'un ancien dispositif défensif, aujourd'hui dépassé par des technologies plus récentes.
 
-Le malfrat l'examina sans prétendre en maîtriser le fonctionnement.
+Raoul l'examina sans prétendre en maîtriser le fonctionnement.
 
 — On ne sait même pas de quoi c'est capable.
 
@@ -7736,7 +7736,7 @@ Ils quittèrent le monde futuriste avec une arme technologiquement très avancé
 
 De retour dans la salle de l'île maudite, Nino posa son sac.
 
-Le malfrat regarda l'objet qu'ils venaient d'acquérir.
+Raoul regarda l'objet qu'ils venaient d'acquérir.
 
 — Tu as vraiment réussi.
 
@@ -7752,7 +7752,7 @@ Nino sourit.
 
 — Il faudra qu'on lui raconte.
 
-Le malfrat contempla encore l'arme.
+Raoul contempla encore l'arme.
 
 — Tu as vendu ton téléphone pour ça.
 
@@ -7778,7 +7778,7 @@ Nino resta immobile.
 
 — Tu as ri à une de mes blagues.
 
-Le malfrat reprit la marche.
+Raoul reprit la marche.
 
 — Il nous reste une troisième porte.
 
@@ -7800,7 +7800,7 @@ La troisième, un homme qui crachait dans la poussière avec la conviction de fa
 
 — Non, dit Nino.
 
-Le malfrat s'arrêta.
+Raoul s'arrêta.
 
 — Quoi ?
 
@@ -7812,7 +7812,7 @@ Nino regarda son compagnon.
 
 — On est dans un western.
 
-Le malfrat observa le décor avec un intérêt plus pratique.
+Raoul observa le décor avec un intérêt plus pratique.
 
 — Oui.
 
@@ -7830,7 +7830,7 @@ Ils découvrirent rapidement une différence essentielle avec le monde futuriste
 
 Ici, leur or intéressait tout le monde.
 
-Le premier commerçant à qui ils en montrèrent une pièce voulut en vérifier la nature. Le malfrat lui expliqua qu'ils disposaient d'une réserve plus importante et qu'ils cherchaient un moyen de se procurer des marchandises précises.
+Le premier commerçant à qui ils en montrèrent une pièce voulut en vérifier la nature. Raoul lui expliqua qu'ils disposaient d'une réserve plus importante et qu'ils cherchaient un moyen de se procurer des marchandises précises.
 
 L'homme ne sembla nullement impressionné par leur tenue, mais il se montra très intéressé par la bourse.
 
@@ -7846,13 +7846,13 @@ Le commerçant revint avec une balance.
 
 — Vous voulez vendre votre or ?
 
-— Nous voulons acheter, répondit le malfrat.
+— Nous voulons acheter, répondit Raoul.
 
 L'homme désigna une rue voisine.
 
 — Alors allez voir les fournisseurs qui travaillent pour les convois. Et ne vous laissez pas impressionner par le premier prix annoncé.
 
-Nino regarda le malfrat.
+Nino regarda Raoul.
 
 — C'est un conseil de négociation.
 
@@ -7870,11 +7870,11 @@ Le matériel recherché n'avait rien à voir avec l'arme du futur.
 
 Les armes du Western étaient des objets mécaniques, moins perfectionnés que ceux du XXIe siècle. Mais elles représentaient une puissance que les habitants de l'Égypte ancienne ne connaissaient pas.
 
-Le malfrat examina les conditions de la vente avec un calme d'homme qui reconnaissait un métier.
+Raoul examina les conditions de la vente avec un calme d'homme qui reconnaissait un métier.
 
 Nino, lui, observait les visages.
 
-Le premier vendeur leur proposa un prix si élevé que le malfrat en devint presque poli.
+Le premier vendeur leur proposa un prix si élevé que Raoul en devint presque poli.
 
 — Nous allons réfléchir.
 
@@ -7888,7 +7888,7 @@ Nino attendit quelques pas.
 
 — Ce n'est pas totalement faux.
 
-Le malfrat s'arrêta.
+Raoul s'arrêta.
 
 — C'est pour ça qu'on ne doit pas lui donner raison.
 
@@ -7896,7 +7896,7 @@ Ils rencontrèrent un autre marchand. Celui-ci posa des questions précises sur 
 
 Nino remarqua qu'il répondait aux questions avant de parler du prix.
 
-Il se pencha vers le malfrat.
+Il se pencha vers Raoul.
 
 — Je préfère celui-là.
 
@@ -7904,7 +7904,7 @@ Il se pencha vers le malfrat.
 
 — Parce qu'il essaie de comprendre ce qu'on veut. L'autre essayait seulement de comprendre combien on pouvait payer.
 
-Le malfrat le regarda.
+Raoul le regarda.
 
 — C'est une bonne observation.
 
@@ -7916,13 +7916,13 @@ Nino se figea.
 
 Les heures suivantes furent consacrées à une transaction que Victor aurait rêvé de diriger.
 
-Le malfrat savait ce qu'il voulait éviter. Nino posait les questions inattendues. Ensemble, ils parvinrent à un accord pour plusieurs caisses de matériel d'armement de l'époque, sans prétendre disposer d'un arsenal illimité.
+Raoul savait ce qu'il voulait éviter. Nino posait les questions inattendues. Ensemble, ils parvinrent à un accord pour plusieurs caisses de matériel d'armement de l'époque, sans prétendre disposer d'un arsenal illimité.
 
 Le commerçant les regarda au moment de conclure.
 
 — Vous partez loin ?
 
-— Assez, répondit le malfrat.
+— Assez, répondit Raoul.
 
 — Vous n'êtes pas d'ici.
 
@@ -7932,7 +7932,7 @@ Nino regarda la rue poussiéreuse.
 
 — Vous ne connaissez pas les routes, mais vous avez de l'or. C'est une combinaison dangereuse.
 
-Le malfrat acquiesça.
+Raoul acquiesça.
 
 — On apprend vite.
 
@@ -7940,7 +7940,7 @@ Le commerçant leur fournit aussi de quoi acheminer la marchandise jusqu'à l'en
 
 — Il me déteste, dit-il.
 
-Le malfrat regarda l'animal.
+Raoul regarda l'animal.
 
 — Il a du jugement.
 
@@ -7956,7 +7956,7 @@ Elles étaient lourdes. Certaines devaient être portées à deux. La lumière b
 
 Ils réussirent cependant à rejoindre le portail.
 
-Le malfrat vérifia le repère.
+Raoul vérifia le repère.
 
 — C'est le bon.
 
@@ -7964,7 +7964,7 @@ Nino passa le premier, puis revint aider à déplacer le chargement à travers l
 
 Une fois les dernières caisses ramenées dans la salle de l'île maudite, les deux hommes s'assirent par terre.
 
-Le malfrat regarda la pile.
+Raoul regarda la pile.
 
 — On a réussi.
 
@@ -7980,7 +7980,7 @@ Un instant passa.
 
 — On a acheté des armes au pays des cow-boys avec de l'or qui vient du Moyen Âge, après avoir vendu un téléphone du XXIe siècle dans le futur.
 
-Le malfrat réfléchit.
+Raoul réfléchit.
 
 — Dit comme ça, personne ne nous croira jamais.
 
@@ -7990,7 +7990,7 @@ Le malfrat réfléchit.
 
 Ils regagnèrent l'Égypte avec leurs acquisitions.
 
-Dara, Inès et les représentants du peuple virent arriver les caisses avec un mélange d'espoir et d'inquiétude.
+Dara, Clara et les représentants du peuple virent arriver les caisses avec un mélange d'espoir et d'inquiétude.
 
 Victor les examina.
 
@@ -8002,21 +8002,21 @@ Nino bomba le torse.
 
 Il montra le dispositif futuriste.
 
-Sami le regarda longuement.
+Savio le regarda longuement.
 
 — Qu'est-ce que c'est ?
 
-Le malfrat répondit :
+Raoul répondit :
 
 — On ne sait pas encore précisément.
 
-Adrien leva les yeux.
+Julien leva les yeux.
 
 — Vous avez acheté une arme que vous ne savez pas utiliser ?
 
 — On sait ce que c'est censé être, répondit Nino. On n'en connaît pas les limites.
 
-Inès tendit la main.
+Clara tendit la main.
 
 — Alors personne ne s'en sert avant qu'on ait compris les risques.
 
@@ -8024,9 +8024,9 @@ Nino acquiesça.
 
 — Exactement ce que je disais.
 
-Le malfrat sourit discrètement.
+Raoul sourit discrètement.
 
-Sami fit le compte des caisses et des hommes disponibles.
+Savio fit le compte des caisses et des hommes disponibles.
 
 L'aide était réelle.
 
@@ -8042,7 +8042,7 @@ Elle posa la main sur l'une des caisses.
 
 — Mais maintenant, nous avons une chance de faire entendre notre refus.
 
-Adrien regarda le peuple rassemblé.
+Julien regarda le peuple rassemblé.
 
 Il se souvint du Moyen Âge, des armes et de leur première guerre.
 
@@ -8112,15 +8112,15 @@ Dans le village, personne ne parlait de victoire.
 
 Pas encore.
 
-Dara comptait les familles revenues de leur travail et celles qui manquaient à l'appel. Inès organisait les provisions avec Malo et Solan. Victor essayait d'obtenir de nouvelles réserves auprès de communautés qui hésitaient encore à prendre parti.
+Dara comptait les familles revenues de leur travail et celles qui manquaient à l'appel. Clara organisait les provisions avec Malo et Solan. Victor essayait d'obtenir de nouvelles réserves auprès de communautés qui hésitaient encore à prendre parti.
 
-Adrien vérifiait les nouvelles venues des autres villages.
+Julien vérifiait les nouvelles venues des autres villages.
 
 Nino l'observait.
 
 — Tu ressembles à un chef d'entreprise qui a oublié de dormir.
 
-Adrien leva les yeux.
+Julien leva les yeux.
 
 — Tu as des informations utiles ?
 
@@ -8130,13 +8130,13 @@ Adrien leva les yeux.
 
 — Et Dara te cherche.
 
-Adrien se redressa.
+Julien se redressa.
 
 — Pourquoi ?
 
 — Parce que tu as posé les cartes sur sa table et qu'elle voudrait maintenant pouvoir manger.
 
-Adrien regarda les documents éparpillés.
+Julien regarda les documents éparpillés.
 
 — Elle aurait pu me le dire.
 
@@ -8162,21 +8162,21 @@ Malo revint avec une embarcation chargée de familles.
 
 — Il faut de l'eau, dit-il. Et un endroit où les installer.
 
-Inès se mit aussitôt au travail.
+Clara se mit aussitôt au travail.
 
 Solan, le visage couvert de poussière, s'occupa de transporter des couvertures.
 
-Le malfrat observa les hommes qui venaient d'arriver.
+Raoul observa les hommes qui venaient d'arriver.
 
-— Ils se battent avec courage, dit-il à Adrien. Mais ils ne peuvent pas tout couvrir.
+— Ils se battent avec courage, dit-il à Julien. Mais ils ne peuvent pas tout couvrir.
 
-Adrien regarda le matériel rapporté du Western.
+Julien regarda le matériel rapporté du Western.
 
 — On ne peut pas en faire apparaître d'autres.
 
 — Et même si on le pouvait, il faudrait encore des gens, du temps et de la chance.
 
-Adrien ne répondit pas.
+Julien ne répondit pas.
 
 Il se revoyait au Moyen Âge, convaincu qu'une poignée d'objets modernes allait changer une bataille.
 
@@ -8196,7 +8196,7 @@ Elle lut tous les messages.
 
 Elle répondit personnellement à ceux qui demandaient de l'aide.
 
-Inès la trouva un soir devant une pile de notes.
+Clara la trouva un soir devant une pile de notes.
 
 — Tu ne peux pas tout faire.
 
@@ -8218,7 +8218,7 @@ Elle posa une lettre.
 
 — Pas assez.
 
-Inès considéra la pile.
+Clara considéra la pile.
 
 — Pour l'instant.
 
@@ -8234,7 +8234,7 @@ Nino regarda le dispositif futuriste, toujours conservé sous la surveillance du
 
 — On pourrait peut-être utiliser ça.
 
-Le malfrat secoua la tête.
+Raoul secoua la tête.
 
 — Pas tant qu'on ne sait pas ce que ça fait et ce que ça risque de provoquer.
 
@@ -8258,7 +8258,7 @@ Lorsqu'un officier du pharaon arriva avec une dernière sommation, Dara le reçu
 
 L'homme annonça que le souverain exigeait leur reddition immédiate.
 
-Inès sentit la colère monter, mais elle resta en retrait.
+Clara sentit la colère monter, mais elle resta en retrait.
 
 Dara répondit :
 
@@ -8276,7 +8276,7 @@ L'homme repartit.
 
 Le silence qui suivit fut long.
 
-Adrien s'approcha.
+Julien s'approcha.
 
 — Tu sais qu'ils reviendront avec beaucoup plus d'hommes.
 
@@ -8288,7 +8288,7 @@ Dara le regarda.
 
 — Alors cherchons. Mais pas en acceptant de redevenir des esclaves.
 
-Adrien acquiesça.
+Julien acquiesça.
 
 La rébellion avait commencé à gagner l'attention du royaume.
 
@@ -8304,27 +8304,27 @@ Ils entendirent les tambours avant de voir l'armée.
 
 Le bruit montait de la route, régulier, obstiné, si vaste qu'il semblait venir du paysage lui-même.
 
-Dara se tenait près d'Adrien.
+Dara se tenait près d'Julien.
 
 — Combien ? demanda-t-elle.
 
-Sami avait observé les rapports des messagers et les mouvements visibles au loin.
+Savio avait observé les rapports des messagers et les mouvements visibles au loin.
 
 Il ne voulait pas donner de chiffre qu'il ne pouvait pas vérifier.
 
 — Beaucoup plus que nous, répondit-il.
 
-Inès avait déjà rassemblé les personnes chargées des familles et des provisions. Malo et Solan préparaient avec les bateliers l'accueil de ceux qui avaient dû quitter leurs maisons.
+Clara avait déjà rassemblé les personnes chargées des familles et des provisions. Malo et Solan préparaient avec les bateliers l'accueil de ceux qui avaient dû quitter leurs maisons.
 
 Victor avait cessé de compter les dépenses.
 
 Nino avait cessé de se demander si quelqu'un finirait par le remercier.
 
-Le malfrat, lui, regardait la route d'un air sombre.
+Raoul, lui, regardait la route d'un air sombre.
 
 — On ne gagne pas en leur faisant croire qu'on est plus forts qu'eux, dit-il.
 
-Adrien se tourna vers lui.
+Julien se tourna vers lui.
 
 — Alors comment ?
 
@@ -8332,7 +8332,7 @@ Adrien se tourna vers lui.
 
 Cette phrase ne constituait pas un plan.
 
-Mais Adrien comprit ce qu'elle signifiait.
+Mais Julien comprit ce qu'elle signifiait.
 
 Ils ne pouvaient plus espérer une victoire militaire simple.
 
@@ -8376,7 +8376,7 @@ On lui répondit qu'on l'avait vu aider d'autres personnes à quitter la zone av
 
 Elle resta immobile.
 
-Inès s'approcha.
+Clara s'approcha.
 
 — Je suis désolée.
 
@@ -8388,7 +8388,7 @@ Elle regarda les personnes qui attendaient dans la cour.
 
 — Mais si nous cédons aujourd'hui, nos enfants auront à prendre la même décision demain.
 
-Inès posa une main sur son épaule.
+Clara posa une main sur son épaule.
 
 Elle ne chercha pas à prononcer un discours.
 
@@ -8428,13 +8428,13 @@ Il avait le dispositif futuriste dans son sac.
 
 Il ne savait toujours pas tout ce qu'il pouvait faire.
 
-Après des observations prudentes, Sami avait seulement identifié qu'il s'agissait d'un appareil de protection limité, dont la réserve semblait presque épuisée. Ils avaient décidé qu'il ne serait employé qu'en dernier recours, pour éviter un danger immédiat.
+Après des observations prudentes, Savio avait seulement identifié qu'il s'agissait d'un appareil de protection limité, dont la réserve semblait presque épuisée. Ils avaient décidé qu'il ne serait employé qu'en dernier recours, pour éviter un danger immédiat.
 
 Nino le regarda.
 
 Puis il regarda les familles qui tentaient de se replier.
 
-Le malfrat arriva près de lui.
+Raoul arriva près de lui.
 
 — On doit les faire sortir.
 
@@ -8458,7 +8458,7 @@ Nino le regarda, incrédule.
 
 — C'est tout ?
 
-Le malfrat l'attrapa par le bras.
+Raoul l'attrapa par le bras.
 
 — C'est beaucoup.
 
@@ -8524,7 +8524,7 @@ Personne n'obéit.
 
 ***
 
-Lorsque la nouvelle arriva au village, Adrien crut d'abord à une rumeur.
+Lorsque la nouvelle arriva au village, Julien crut d'abord à une rumeur.
 
 Le pharaon avait perdu le soutien d'une partie décisive de ses officiers et de ses gouverneurs. Il avait été destitué, puis placé sous garde par ceux qui ne voulaient plus poursuivre la guerre en son nom.
 
@@ -8536,7 +8536,7 @@ Elle ne partit pas seule.
 
 Des porte-parole des communautés insurgées l'accompagnèrent.
 
-Inès, Adrien, Sami, Victor, Nino et le malfrat étaient présents à leurs côtés, mais ils ne prirent pas leur place.
+Clara, Julien, Savio, Victor, Nino et Raoul étaient présents à leurs côtés, mais ils ne prirent pas leur place.
 
 La négociation ne fut pas simple.
 
@@ -8574,7 +8574,7 @@ Des cris montèrent près du fleuve.
 
 D'autres restèrent silencieux, pensant à ceux qui n'avaient pas vécu assez longtemps pour assister à ce jour.
 
-Inès regarda Dara.
+Clara regarda Dara.
 
 — Vous avez gagné.
 
@@ -8582,11 +8582,11 @@ Dara secoua la tête.
 
 — Nous avons commencé à gagner le droit de vivre autrement.
 
-Inès acquiesça.
+Clara acquiesça.
 
 Elle comprenait.
 
-Le malfrat rejoignit Nino, qui contemplait l'appareil futuriste désormais inerte.
+Raoul rejoignit Nino, qui contemplait l'appareil futuriste désormais inerte.
 
 — Tu avais dit que tu voulais enfin servir à quelque chose, lui rappela-t-il.
 
@@ -8604,19 +8604,19 @@ Nino attendit un instant.
 
 — Tu es malade ?
 
-Le malfrat sourit.
+Raoul sourit.
 
 — Profite.
 
 ***
 
-Adrien retrouva sa sœur au bord du fleuve.
+Julien retrouva sa sœur au bord du fleuve.
 
 Elle regardait la foule célébrer sa liberté.
 
 — Alors, dit-il, est-ce qu'on rentre ?
 
-Inès sourit.
+Clara sourit.
 
 — Tu n'as vraiment aucune patience.
 
@@ -8630,7 +8630,7 @@ Puis elle recula et contempla les maisons, les bateaux, les habitants et les vis
 
 — On va rentrer, promit-elle. Mais avant, il faut s'assurer qu'ils ne perdent pas demain ce qu'ils ont gagné aujourd'hui.
 
-Adrien regarda la foule.
+Julien regarda la foule.
 
 Il ne protesta pas.
 
@@ -8660,7 +8660,7 @@ Victor lui lança un regard.
 
 — Justement. Je connais le sujet.
 
-Inès posa une main sur l'épaule de Nino et le fit reculer gentiment.
+Clara posa une main sur l'épaule de Nino et le fit reculer gentiment.
 
 — Laisse-les travailler.
 
@@ -8680,7 +8680,7 @@ C'était le fait que les décisions se discutaient désormais entre les habitant
 
 Dara dirigeait les réunions avec une autorité tranquille. Elle laissait les désaccords s'exprimer, puis ramenait chacun à la question essentielle : comment empêcher qu'un autre homme leur retire un jour les mêmes droits ?
 
-Inès assistait aux débats.
+Clara assistait aux débats.
 
 Elle parlait moins qu'auparavant.
 
@@ -8712,7 +8712,7 @@ Ils souhaitaient une assemblée capable de prendre des décisions au nom des com
 
 Mais ils voulaient également remercier celle qui les avait aidés à tenir ensemble.
 
-Dara demanda à Inès de se présenter.
+Dara demanda à Clara de se présenter.
 
 Elle s'avança, méfiante.
 
@@ -8724,17 +8724,17 @@ Dara lui sourit.
 
 — Nous avons appris à vous connaître. Vous avez eu tort parfois. Vous avez beaucoup parlé. Vous nous avez aussi écoutés quand il le fallait.
 
-Inès regarda les habitants.
+Clara regarda les habitants.
 
 — Je n'ai fait que ce que j'ai pu.
 
 — Justement, dit Dara. Nous ne voulons pas d'une personne qui se prétende au-dessus de nous. Nous voulons quelqu'un qui se souvienne de ce que nous avons décidé ensemble.
 
-Elle expliqua que les communautés avaient choisi de donner à Inès un titre de reine protectrice, reconnu par leur assemblée et limité par les règles qu'ils adoptaient eux-mêmes.
+Elle expliqua que les communautés avaient choisi de donner à Clara un titre de reine protectrice, reconnu par leur assemblée et limité par les règles qu'ils adoptaient eux-mêmes.
 
-Inès resta sans voix.
+Clara resta sans voix.
 
-Adrien se pencha vers Victor.
+Julien se pencha vers Victor.
 
 — C'est la première fois que je la vois incapable de répondre.
 
@@ -8742,7 +8742,7 @@ Victor hocha lentement la tête.
 
 — Je vais me souvenir de cette journée.
 
-Inès finit par parler.
+Clara finit par parler.
 
 — Je ne suis pas née ici.
 
@@ -8762,7 +8762,7 @@ Dara ne détourna pas les yeux.
 
 — Alors vous rentrerez un jour. Nous ne vous demandons pas de renoncer à votre vie. Nous vous demandons de garder un lien avec la nôtre.
 
-Inès regarda les personnes qui attendaient sa réponse.
+Clara regarda les personnes qui attendaient sa réponse.
 
 Elle comprit que le titre ne serait acceptable que si le peuple continuait de se gouverner lui-même.
 
@@ -8772,7 +8772,7 @@ Dara sourit.
 
 — Nous non plus, nous n'en voulons plus.
 
-Inès accepta.
+Clara accepta.
 
 Pas comme on accepte une couronne qui donne tous les droits.
 
@@ -8794,7 +8794,7 @@ Solan sourit.
 
 — Et moins de capitaine pour nous gronder.
 
-Inès leur lança un regard.
+Clara leur lança un regard.
 
 — Je vous entends.
 
@@ -8802,7 +8802,7 @@ Inès leur lança un regard.
 
 Le groupe éclata de rire.
 
-Adrien contempla l'assemblée.
+Julien contempla l'assemblée.
 
 Ils avaient traversé tant de lieux sans y appartenir qu'il avait du mal à comprendre ce qui se passait devant eux.
 
@@ -8812,17 +8812,17 @@ Un territoire où revenir.
 
 Des personnes qui les reconnaissaient pour autre chose que leurs marchandises ou leurs armes.
 
-Sami s'approcha.
+Savio s'approcha.
 
 — Ce lieu pourrait devenir important pour nous.
 
-Adrien le regarda.
+Julien le regarda.
 
 — Pour rentrer ?
 
 — Pour la suite. Si on doit explorer davantage le réseau, il faudra des endroits sûrs où revenir et des gens en qui avoir confiance.
 
-Adrien regarda Dara discuter avec les représentants du peuple.
+Julien regarda Dara discuter avec les représentants du peuple.
 
 — À condition qu'on ne leur impose rien.
 
@@ -8830,7 +8830,7 @@ Adrien regarda Dara discuter avec les représentants du peuple.
 
 ***
 
-Plus tard, Inès rejoignit ses proches.
+Plus tard, Clara rejoignit ses proches.
 
 Elle portait encore un signe discret de la cérémonie.
 
@@ -8852,11 +8852,11 @@ Victor la prit par la main.
 
 — Tu veux toujours rentrer ?
 
-Inès le regarda.
+Clara le regarda.
 
 — Plus que jamais.
 
-Adrien se tourna vers la mer invisible, au-delà des terres.
+Julien se tourna vers la mer invisible, au-delà des terres.
 
 — Alors il faut trouver le chemin.
 
@@ -8916,13 +8916,13 @@ Victor posa le crayon.
 
 — Ça aurait pu être simple.
 
-Adrien observa la feuille.
+Julien observa la feuille.
 
 — Ça aurait même dû être simple.
 
-— Qu'est-ce qui nous manque ? demanda Inès.
+— Qu'est-ce qui nous manque ? demanda Clara.
 
-Le malfrat répondit :
+Raoul répondit :
 
 — Un bateau.
 
@@ -8930,7 +8930,7 @@ Nino prit un air grave.
 
 — On en a déjà vu plusieurs.
 
-— Pas sur la bonne île, répondit Sami.
+— Pas sur la bonne île, répondit Savio.
 
 ***
 
@@ -8942,11 +8942,11 @@ Mais au-dehors, la côte était aussi isolée qu'ils l'avaient laissée. Ils n'a
 
 Le capitaine qui les avait conduits jusque-là ne leur avait jamais promis d'attendre indéfiniment. Le groupe ne pouvait donc pas bâtir son plan de retour sur l'hypothèse qu'il surgirait à l'horizon au bon moment.
 
-Adrien contempla les falaises.
+Julien contempla les falaises.
 
 — On pourrait chercher un autre navire.
 
-— Il faudrait déjà en trouver un, répondit le malfrat.
+— Il faudrait déjà en trouver un, répondit Raoul.
 
 — Et un équipage, ajouta Malo, qui avait accompagné les six pour examiner la côte.
 
@@ -8974,19 +8974,19 @@ Ils retournèrent auprès du peuple égyptien.
 
 Dara les reçut dans une pièce où se trouvaient désormais plusieurs cartes et des documents concernant les relations entre les communautés.
 
-Inès lui expliqua la difficulté du trajet.
+Clara lui expliqua la difficulté du trajet.
 
 La responsable les écouta sans les interrompre.
 
 — Nous pouvons vous aider à préparer des provisions, dit-elle. Et vous laisser travailler depuis un lieu sûr. Mais nous ne pouvons pas faire traverser un grand navire par une ouverture dans une montagne.
 
-— On s'en doutait, répondit Adrien.
+— On s'en doutait, répondit Julien.
 
 Dara le regarda.
 
 — Alors ne vous accusez pas d'être bloqués par quelque chose que personne n'a encore résolu.
 
-Sami sortit son carnet.
+Savio sortit son carnet.
 
 — Il existe peut-être une autre solution.
 
@@ -8994,7 +8994,7 @@ Victor se redressa aussitôt.
 
 — Voilà enfin une phrase intéressante.
 
-Sami posa les dessins des deux mécanismes sur la table.
+Savio posa les dessins des deux mécanismes sur la table.
 
 — Les trois portes que Nino et notre ami ont visitées ne conduisent pas directement chez nous. Mais elles font peut-être partie d'une structure plus grande.
 
@@ -9006,21 +9006,21 @@ Nino sourit.
 
 — C'est ce qu'on appelle un investissement.
 
-Sami poursuivit :
+Savio poursuivit :
 
 — Dans les archives, j'ai trouvé des signes qui suggèrent qu'un passage peut mener à un autre dispositif. Pas seulement à un lieu. Nous pourrions avoir plusieurs chemins possibles à travers ce réseau.
 
-Adrien fixa les dessins.
+Julien fixa les dessins.
 
 — Tu veux chercher une route pour rentrer sans passer par la mer ?
 
 — Oui. Mais je ne veux pas vous promettre qu'on la trouvera.
 
-Inès regarda les schémas.
+Clara regarda les schémas.
 
 — Et pour le savoir ?
 
-Sami tourna une page.
+Savio tourna une page.
 
 — Il faudrait retourner dans les mondes déjà visités et y chercher les mécanismes qu'on n'a pas encore activés.
 
@@ -9034,7 +9034,7 @@ Maintenant qu'ils l'avaient retrouvée, ils envisageaient de traverser d'autres 
 
 ***
 
-Plus tard, Adrien retrouva Inès seule près d'une fenêtre.
+Plus tard, Julien retrouva Clara seule près d'une fenêtre.
 
 — Tu regrettes d'avoir accepté de devenir reine ? demanda-t-il.
 
@@ -9042,7 +9042,7 @@ Elle sourit.
 
 — Je regrette surtout le jour où j'ai accepté de suivre Victor dans sa surprise.
 
-Adrien s'assit.
+Julien s'assit.
 
 — Tu pourrais rester ici. Tu as des gens qui comptent sur toi.
 
@@ -9054,7 +9054,7 @@ Elle secoua la tête.
 
 — Je veux pouvoir choisir. Revenir ici si je le souhaite. Repartir. Aider quand on me le demande. Pas être prisonnière d'une couronne.
 
-Adrien acquiesça.
+Julien acquiesça.
 
 Il commençait à comprendre que sa sœur avait gagné quelque chose d'important pendant leur séparation.
 
@@ -9064,11 +9064,11 @@ Elle n'attendait plus qu'on décide de son avenir.
 
 — Tu le promets ?
 
-Adrien réfléchit.
+Julien réfléchit.
 
 — Je promets qu'on cherchera.
 
-Inès lui sourit.
+Clara lui sourit.
 
 — C'est déjà mieux.
 
@@ -9076,13 +9076,13 @@ Inès lui sourit.
 
 Le soir, les six amis se retrouvèrent autour de la table avec Malo et Solan.
 
-Sami y avait posé plusieurs feuilles couvertes de cercles et de flèches.
+Savio y avait posé plusieurs feuilles couvertes de cercles et de flèches.
 
 Nino les contempla.
 
 — On dirait une carte de métro dessinée par quelqu'un qui n'a jamais vu de métro.
 
-— Ce n'est pas une carte complète, répondit Sami.
+— Ce n'est pas une carte complète, répondit Savio.
 
 — J'avais compris.
 
@@ -9092,13 +9092,13 @@ Victor regarda les branches qui se multipliaient.
 
 — Combien de portes pourrait-on trouver ?
 
-Sami resta silencieux.
+Savio resta silencieux.
 
 Puis il répondit :
 
 — Beaucoup plus que ce que nous avons vu.
 
-Adrien observa la carte.
+Julien observa la carte.
 
 Le chemin vers le présent n'était peut-être plus une simple traversée maritime.
 
@@ -9112,7 +9112,7 @@ Et, peut-être, infiniment plus vaste.
 
 ## Chapitre 31 — Derrière chaque porte
 
-Sami demanda une table plus grande.
+Savio demanda une table plus grande.
 
 Victor leva les yeux.
 
@@ -9128,9 +9128,9 @@ Nino regarda les feuilles étalées.
 
 — Moi, je trouve surtout que tu as de nouvelles façons de nous empêcher de manger.
 
-Adrien contempla le dessin commencé le matin.
+Julien contempla le dessin commencé le matin.
 
-Au centre, Sami avait représenté la première salle des portails : celle qu'ils avaient découverte en cherchant de vieilles monnaies. Autour, il avait tracé les destinations déjà connues.
+Au centre, Savio avait représenté la première salle des portails : celle qu'ils avaient découverte en cherchant de vieilles monnaies. Autour, il avait tracé les destinations déjà connues.
 
 Le Moyen Âge.
 
@@ -9142,7 +9142,7 @@ Puis, après les trois jours de navigation qu'aucun d'eux n'était près d'oubli
 
 De ce second ensemble partaient les passages vers l'Égypte, le Japon féodal, le monde futuriste et le Western.
 
-À côté des noms, Sami avait dessiné les emblèmes relevés au-dessus des ouvertures. Chaque porte semblait avoir sa marque. Il avait entouré ceux de la première salle.
+À côté des noms, Savio avait dessiné les emblèmes relevés au-dessus des ouvertures. Chaque porte semblait avoir sa marque. Il avait entouré ceux de la première salle.
 
 — Si on retrouve un de ces signes ailleurs, expliqua-t-il, ce sera peut-être une branche qui rejoint notre premier réseau. Pas forcément un retour chez nous. Mais au moins une piste.
 
@@ -9150,7 +9150,7 @@ Le dessin tenait déjà difficilement sur la table.
 
 — Et alors ? demanda Victor.
 
-Sami prit un autre crayon.
+Savio prit un autre crayon.
 
 — Ce n'est que la première partie.
 
@@ -9168,15 +9168,15 @@ Sur la deuxième : *Monde futuriste.*
 
 Sur la troisième : *Western.*
 
-— Vous avez visité ces trois destinations depuis la salle de l'île maudite, dit-il au malfrat et à Nino.
+— Vous avez visité ces trois destinations depuis la salle de l'île maudite, dit-il à Raoul et à Nino.
 
 — Oui, confirma Nino. J'ai même participé au financement de la science.
 
-— Tu as vendu ton téléphone, rappela le malfrat.
+— Tu as vendu ton téléphone, rappela Raoul.
 
 — La science, répéta Nino.
 
-Sami sourit.
+Savio sourit.
 
 — Dans chacun de ces mondes, nous avons des raisons de penser qu'il existe un dispositif local du même type que ceux que nous connaissons.
 
@@ -9200,17 +9200,17 @@ Nino leva la main.
 
 — Je vote pour qu'on retourne chez les cow-boys.
 
-Le malfrat le regarda.
+Raoul le regarda.
 
 — Pourquoi ?
 
 — Là-bas, au moins, notre or vaut quelque chose.
 
-Sami traça encore une ligne.
+Savio traça encore une ligne.
 
 — Le principe est plus important que les destinations elles-mêmes. Nous avons longtemps cherché une porte qui conduirait directement chez nous. Nous n'avons pas pensé à ce qui se trouvait derrière les premières étapes.
 
-Adrien suivit le dessin.
+Julien suivit le dessin.
 
 — Donc le réseau n'est pas une ligne.
 
@@ -9218,19 +9218,19 @@ Adrien suivit le dessin.
 
 — C'est un labyrinthe.
 
-Sami considéra les feuilles.
+Savio considéra les feuilles.
 
 — Peut-être. Mais un labyrinthe qu'on peut commencer à cartographier.
 
 ***
 
-Inès posa une tasse près de son frère.
+Clara posa une tasse près de son frère.
 
 Elle regarda la carte d'un air amusé.
 
 — Je vous laisse seuls une journée et vous décidez d'explorer l'univers.
 
-— Nous cherchons juste à rentrer chez nous, répondit Adrien.
+— Nous cherchons juste à rentrer chez nous, répondit Julien.
 
 Elle posa une main sur son épaule.
 
@@ -9248,7 +9248,7 @@ Victor regarda autour de lui.
 
 — On n'avait rien, au début. On fouillait dans la terre pour trouver des pièces.
 
-— Maintenant, on fouille dans des siècles pour trouver une sortie, répondit Sami.
+— Maintenant, on fouille dans des siècles pour trouver une sortie, répondit Savio.
 
 Victor acquiesça.
 
@@ -9260,13 +9260,13 @@ Le soir, les six se rendirent près du fleuve.
 
 Une fête avait lieu dans les rues. Les habitants célébraient leur souveraineté retrouvée, mais ils préparaient aussi leur avenir : des bateaux devaient reprendre leur activité, des familles réintégrer leurs maisons et des représentants poursuivre les négociations avec les communautés voisines.
 
-Inès regarda Dara discuter avec plusieurs personnes.
+Clara regarda Dara discuter avec plusieurs personnes.
 
 Elle savait qu'elle pourrait revenir ici.
 
 Elle savait aussi qu'elle ne pouvait pas faire de ce peuple la réponse à tous ses propres problèmes.
 
-Adrien se plaça à côté d'elle.
+Julien se plaça à côté d'elle.
 
 — Tu crois qu'on va réussir ?
 
@@ -9274,7 +9274,7 @@ Adrien se plaça à côté d'elle.
 
 — Oui.
 
-Inès prit le temps de réfléchir.
+Clara prit le temps de réfléchir.
 
 — Je n'en sais rien. Mais je préfère qu'on cherche ensemble plutôt que de te laisser décider tout seul.
 
@@ -9286,9 +9286,9 @@ Un peu plus loin, Victor essayait de négocier un objet dont il n'avait pas beso
 
 Nino lui expliquait qu'il valait mieux garder l'or pour des époques où il avait encore une valeur.
 
-Le malfrat observait la scène avec une expression qui ressemblait de plus en plus à de l'amusement.
+Raoul observait la scène avec une expression qui ressemblait de plus en plus à de l'amusement.
 
-Sami s'était assis sur une pierre.
+Savio s'était assis sur une pierre.
 
 Il dessinait encore.
 
@@ -9316,7 +9316,7 @@ Nino vint s'asseoir à côté de lui.
 
 — Tu crois qu'il y en a combien, des portes ?
 
-Sami regarda les lignes.
+Savio regarda les lignes.
 
 — Je ne sais pas.
 
@@ -9332,7 +9332,7 @@ Nino resta silencieux un moment.
 
 — Et si aucune ne mène chez nous ?
 
-Sami baissa les yeux vers son carnet.
+Savio baissa les yeux vers son carnet.
 
 Il avait passé sa vie à croire que connaître l'histoire permettait de comprendre le monde.
 
@@ -9348,23 +9348,23 @@ Puis il ajouta :
 
 — Mais avant, on peut essayer d'en trouver une qui mène à une bonne pizzeria ?
 
-Sami éclata de rire.
+Savio éclata de rire.
 
 ***
 
 Ils se retrouvèrent tous les six autour du carnet.
 
-Adrien examina les trois destinations.
+Julien examina les trois destinations.
 
 Victor réfléchit à ce qu'ils auraient besoin d'emporter.
 
-Le malfrat parla des risques.
+Raoul parla des risques.
 
-Inès rappela qu'ils devraient d'abord décider qui souhaitait venir et pour combien de temps.
+Clara rappela qu'ils devraient d'abord décider qui souhaitait venir et pour combien de temps.
 
 Nino proposa de rédiger un règlement.
 
-Adrien lui demanda de commencer par une seule règle.
+Julien lui demanda de commencer par une seule règle.
 
 Nino prit un air très sérieux.
 
@@ -9372,7 +9372,7 @@ Nino prit un air très sérieux.
 
 Un silence suivit.
 
-Puis Sami acquiesça.
+Puis Savio acquiesça.
 
 — C'est la meilleure règle qu'on ait eue depuis le début.
 
@@ -9380,7 +9380,7 @@ Nino ouvrit de grands yeux.
 
 — Vous êtes tous malades aujourd'hui.
 
-Adrien regarda chacun de ses amis, puis sa sœur.
+Julien regarda chacun de ses amis, puis sa sœur.
 
 Il n'avait pas retrouvé sa vie d'avant.
 
