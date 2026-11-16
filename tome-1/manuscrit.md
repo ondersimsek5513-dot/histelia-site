@@ -3172,77 +3172,115 @@ Ils ne l'écoutèrent pas.
 
 Les accusations sortirent toutes à la fois : l'argent, les armes, le contrat avec le roi, la guerre, les mensonges. Victor frappa le premier. Raoul riposta. Ils heurtèrent le socle central en trébuchant l'un sur l'autre.
 
-Un bruit sec retentit sous la pierre.
+Un grondement sourd monta des pierres.
 
-Savio aurait peut-être reconnu le motif des inscriptions qui s'éclairèrent.
+— Arrêtez ! cria Clara.
 
-Personne ici ne le regardait.
+Victor saisit Raoul par le col. L'ancien militaire le repoussa contre le socle. Sous leur poids, une pièce de pierre s'enfonça puis remonta brutalement, comme une commande qui venait de sauter de son logement. Un anneau gravé, presque invisible dans la poussière, se déplaça de quelques centimètres.
 
-Victor recula contre une colonne. Raoul voulut le rattraper. Un autre choc déclencha une vibration profonde dans la salle.
+La bagarre s'interrompit une fraction de seconde.
 
-L'arche familière se mit à luire plus vivement.
+Sur le sol, des lignes de lumière coururent d'une inscription à l'autre. L'arche qu'ils connaissaient se mit à vibrer. Puis des portions du mur, jusque-là parfaitement opaques, s'éclairèrent à leur tour.
 
-Puis, autour d'elle, d'autres surfaces de pierre se brouillèrent.
+Une lueur bleue.
 
-Des ouvertures apparurent là où il n'y avait eu que des murs.
+Une autre, verdâtre, dans laquelle passait l'ombre d'une végétation inconnue.
 
-Une lumière bleue. Une lueur sombre traversée de reflets verts. Une troisième teinte, puis d'autres.
+Plus loin, un éclat pâle, comme un soleil aperçu à travers un rideau.
 
-Clara se retourna.
+Il y avait plusieurs portes. Elles n'avaient jamais été là.
 
-— Qu'est-ce que...
+— Victor... murmura Clara.
 
-Un nouveau coup fit chanceler Victor. Il entraîna l'ancien militaire contre le socle. Une secousse parcourut le sol.
+Nul ne lui répondit.
 
-Clara recula instinctivement, cherchant un appui.
+La pièce de pierre n'était pas descendue complètement. L'anneau s'était arrêté de travers, entre deux encoches. Les inscriptions clignotaient, certaines s'éteignant déjà tandis que d'autres tentaient de reprendre leur éclat. Quelque chose avait commencé à fonctionner, sans aller au bout.
 
-Ses doigts rencontrèrent la pierre froide.
+Raoul voulut se dégager. Victor l'agrippa une dernière fois. Leurs épaules heurtèrent ensemble le socle, et un craquement sec résonna sous leurs pieds.
 
-Son pied glissa sur le rebord du socle.
+Clara recula pour éviter les deux hommes.
 
-Elle eut juste le temps de pousser un cri.
+Le bord de son soulier accrocha une pierre soulevée. Elle chercha un appui, trouva un instant le mur, et sentit sa main passer dans une surface qui n'avait plus rien de solide.
 
-Puis l'une des ouvertures la happa hors de vue.
+— Victor !
 
-Victor et Raoul étaient toujours agrippés l'un à l'autre lorsqu'ils entendirent sa voix s'interrompre.
+Il tourna la tête.
 
-Ils se séparèrent immédiatement.
+Il vit Clara basculer en arrière, les bras tendus, et son visage disparaître dans une lumière qui ondulait. Il aperçut du bleu, peut-être du vert. Puis il n'y eut plus qu'un éclat si violent qu'il dut fermer les yeux.
 
-— Clara ?
+— CLARA !
 
-Victor chercha autour de lui.
+Victor lâcha Raoul et se jeta vers elle.
 
-Raoul se redressa, le visage soudain fermé.
+À cet instant, le mécanisme émit un bruit de pierre brisée. Les lumières se replièrent sur elles-mêmes, une après l'autre. Les ouvertures disparurent avant qu'il ait pu atteindre le mur.
 
-— Elle était là.
+Victor heurta la paroi de ses deux mains.
 
-— Clara !
+Elle était froide. Pleine. Immobile.
 
-Victor courut vers l'endroit où elle s'était trouvée.
+— Non. Non, non...
 
-Il ne vit que des portails ouverts, de couleurs différentes, tournés vers des ténèbres ou des couloirs impossibles à distinguer.
+Il frappa à nouveau, chercha l'espace où elle s'était tenue, appela son nom jusqu'à se déchirer la voix. Aucune réponse ne vint.
 
-— Tu l'as vue entrer où ? hurla-t-il.
+— Elle est passée où ? hurla-t-il.
 
-Raoul regarda les ouvertures.
+Raoul regardait les murs comme s'il espérait retrouver une fissure.
 
-— Non.
+— Je n'ai pas vu laquelle.
 
-— Tu mens !
+— Tu étais juste devant elle !
 
-— Je n'ai pas vu !
+— Il y avait des lumières partout. Je n'ai pas vu.
 
-Victor passa d'une porte à l'autre, sans les franchir. Il cria son nom, tendit l'oreille, revint sur ses pas.
+Victor traversa la salle en courant. La seule arche qui brillait encore était celle qu'ils utilisaient depuis leur première visite : le passage habituel du Moyen Âge.
 
-Rien.
+Il s'y engouffra sans réfléchir.
 
-Raoul resta immobile.
+Il dévala le couloir de pierre, chercha derrière chaque embranchement, déboucha dans le bois et cria encore.
 
-C'était lui qui avait déclenché la bagarre, mais il ne pouvait plus prétendre ignorer les conséquences. Une jeune femme venait de disparaître sous ses yeux.
+— CLARA ! CLARA, RÉPONDS-MOI !
 
-Victor tremblait en cherchant son téléphone.
+Il suivit le sentier jusqu'au premier tournant, revint en courant, inspecta les renfoncements, les marches, le sol. Il n'y avait ni trace de ses pas, ni voix, ni silhouette. Au loin, le monde médiéval continuait sa nuit comme si rien ne s'était produit.
 
-Il appela Julien.
+Victor repassa l'arche, gagna l'autre côté du passage familier et fouilla également l'accès menant au présent. Il espérait presque qu'elle s'était trompée de direction, qu'elle attendait là, furieuse, prête à lui demander des explications.
+
+Personne.
+
+Quand il revint dans la salle circulaire, essoufflé et couvert de poussière, Raoul se tenait toujours devant le socle.
+
+— Je l'ai cherchée partout, dit Victor.
+
+Il dut reprendre son souffle.
+
+— Elle n'est pas là.
+
+Raoul regarda la pierre à laquelle Victor s'était heurté.
+
+— Elle est peut-être passée dans l'une des autres portes.
+
+— Alors rouvre-les !
+
+Victor se précipita vers le socle et poussa l'anneau du plat de la main. Rien ne bougea. Il força de nouveau.
+
+Raoul lui attrapa le poignet.
+
+— Arrête. On ne sait pas ce que ça fait.
+
+Victor se dégagea violemment.
+
+— C'est ma copine !
+
+— Je le sais.
+
+— Tu ne sais rien du tout !
+
+Raoul ne répondit pas. Il avait provoqué cette bagarre pour blesser Victor, pour le rabaisser devant Clara. La jeune femme avait disparu, et toute sa certitude de pouvoir maîtriser la situation venait de s'effondrer.
+
+Victor fixa le socle, les rainures inachevées, les murs redevenus noirs. Il voulut les frapper à mains nues. À la place, il recula jusqu'à une colonne, incapable de reprendre son souffle.
+
+Il avait promis à Clara une soirée extraordinaire. Il ne pouvait même plus lui dire où elle était.
+
+Il retourna vers le passage du présent pour chercher du réseau, sortit suffisamment loin du souterrain pour obtenir du signal et appela Julien.
 
 ***
 
@@ -3250,37 +3288,47 @@ Quand Julien décrocha, Victor n'arriva pas à prononcer le nom de Clara.
 
 Il essaya deux fois.
 
-Julien comprit avant qu'il ait fini.
+— Victor ? Qu'est-ce qui se passe ?
 
-— Où est-elle ?
+— Elle a disparu.
 
-— Je ne sais pas.
+Julien se redressa.
 
-— Comment ça, tu ne sais pas ?
+— Où est ma sœur ?
 
-— Il y a eu une bagarre. Le mécanisme... il s'est passé quelque chose. D'autres portes sont apparues.
+— Je ne sais pas. Il y a eu une bagarre. On a touché quelque chose dans la salle. Des portes se sont ouvertes...
+
+— Quelles portes ?
+
+— D'autres passages. Je l'ai vue tomber. J'ai couru, mais ils se sont refermés.
+
+Sa voix se brisa.
+
+— Je l'ai cherchée du côté du Moyen Âge. De l'autre côté aussi. J'ai crié partout. Elle n'est pas là.
 
 Un silence terrible suivit.
 
-Puis Julien dit :
+— Reste près du passage, dit Julien. Je viens. Et Victor...
 
-— Ne bouge pas. J'arrive.
+— Oui ?
+
+— Ne touche plus à rien avant qu'on arrive.
+
+Victor regarda la sortie du souterrain. Il aurait voulu lui promettre de rester tranquille. Il n'en était pas capable.
+
+— Dépêche-toi, murmura-t-il.
 
 ***
 
 Julien fut le premier à entrer dans la salle.
 
-Savio et Nino le suivirent quelques minutes plus tard. Victor avait passé tout ce temps à marcher devant les passages ouverts, incapable d'en choisir un.
+Savio et Nino le suivaient. Il n'y avait plus qu'une ouverture lumineuse : l'arche familière. Les autres portes avaient laissé sur les murs des contours pâles, presque imperceptibles, comme les traces d'un feu qu'on aurait éteint trop vite.
 
-Raoul se tenait à l'écart.
-
-Julien regarda les nouvelles ouvertures.
+Julien tourna sur lui-même.
 
 — Où est ma sœur ?
 
-Personne ne répondit.
-
-— Victor.
+Victor s'avança.
 
 — Je ne sais pas.
 
@@ -3288,127 +3336,133 @@ Julien l'attrapa par le col.
 
 — Tu l'as emmenée ici sans lui dire la vérité.
 
-— Je voulais juste...
+— Je voulais lui faire une surprise...
 
-— Tu voulais quoi ? L'impressionner ?
+— Une surprise ?
 
-Victor n'essaya pas de se défendre.
+Il le repoussa. Son regard alla du visage de Victor aux murs vides.
 
-L'ancien militaire intervint.
+— Montre-moi où elle est tombée.
 
-— C'est moi qui ai commencé à le provoquer.
+Victor désigna une portion de pierre.
 
-Julien tourna la tête.
+— Là. Ou juste à côté. Il y avait deux lumières. Elle a glissé, et tout s'est éteint.
+
+Julien se précipita vers le mur, y posa ses mains. Il chercha une fente entre les blocs, un courant d'air, n'importe quoi. Il n'y avait rien.
+
+— Rouvre la porte, dit-il.
+
+— J'ai essayé.
+
+— Alors essaie encore !
+
+Il se tourna vers le socle. Savio se plaça aussitôt devant lui.
+
+— Julien. Attends.
+
+— C'est ma sœur !
+
+— Je sais. Mais si tu frappes cette pierre au hasard, nous ne savons pas ce que tu vas ouvrir. Ni si tu pourras le refermer.
+
+Julien voulut répondre. Aucun mot ne lui vint.
+
+Raoul s'était tenu à distance pendant l'arrivée des trois amis. Il avança finalement d'un pas.
+
+— C'est moi qui ai provoqué Victor.
+
+Julien pivota vers lui.
 
 — Alors tu viens aussi de me donner une raison de te détester.
 
-L'homme encaissa les mots.
+L'homme encaissa la phrase.
 
-Il regarda encore les portails, puis la sortie.
+— On s'est cognés contre le socle. Quelque chose est descendu là-dessous, mais pas complètement. Les autres portes se sont allumées. Elle est tombée dans l'une d'elles, et elles se sont fermées presque aussitôt.
 
-Il savait qu'il devrait peut-être aider à chercher la disparue. Il pensa aussi, malgré lui, à ce qu'offraient ces nouvelles portes.
+— Quelle porte ? demanda Savio.
 
-D'autres pays. D'autres époques. D'autres affaires.
+Raoul secoua la tête.
 
-Sa culpabilité n'avait pas encore transformé son caractère.
+— Je ne l'ai pas vue.
 
-Il finit par dire :
+Victor s'obligea à reconstituer le mouvement de Clara : le pas en arrière, les deux lumières les plus proches, le bref éclair sur sa silhouette.
 
-— Je ne sais pas où elle est passée.
+— Elle était de ce côté, dit-il. Entre ces deux endroits. Je crois qu'elle est tombée dans l'un des deux passages.
 
-Puis il s'éloigna.
+— Tu crois ? demanda Julien.
 
-Julien ne tenta pas de le retenir.
+— Je ne peux pas faire mieux ! lança Victor, les yeux pleins de larmes. Je n'ai rien vu. J'ai tourné la tête trop tard !
 
-***
+Cette fois, Julien ne répondit pas.
 
-Savio attendit que les voix se calment pour parler.
+Savio s'agenouilla près du socle. Une fine trace fraîche traversait la poussière. Un anneau de pierre avait commencé à se déplacer, puis s'était immobilisé avant de rejoindre une encoche taillée dans le cercle extérieur. Plusieurs symboles ne coïncidaient plus avec ceux du sol.
 
-— Nous avons plusieurs portes. Nous savons seulement qu'elle est entrée dans l'une d'elles. Il faut éviter de partir au hasard, sinon nous risquons d'en perdre plusieurs autres.
+Il passa la main au-dessus du mécanisme, sans forcer.
 
-— Fais ton plan, dit Julien.
+— Vous l'avez déclenché pendant la bagarre, dit-il. Mais le mouvement ne s'est pas terminé.
 
-Savio inspecta la salle, les positions des portails, la zone où Clara s'était tenue et le socle.
+— Ça veut dire qu'on peut le remettre en marche ? demanda Nino.
 
-Victor se força à reconstituer la scène.
+— Peut-être. Je vois ce qui s'est déplacé, pas encore comment l'actionner sans risque.
 
-Il se souvenait vaguement de deux ouvertures proches de l'endroit où elle avait reculé.
+Julien se pencha.
 
-— Celles-là, dit-il en désignant deux passages. Je pense que c'était l'une de ces deux.
+— Alors on l'ouvre maintenant.
 
-— Tu penses ? répéta Julien.
+Savio montra les différentes inscriptions qui entouraient le socle.
 
-— Je n'ai rien vu. Mais elle était de ce côté.
+— Si nous poussons n'importe où, nous ne savons pas combien de passages s'ouvriront, ni lesquels. Et quand ils se refermeront. On a besoin de comprendre au moins comment maintenir le mécanisme dans une position stable.
 
-Savio hocha la tête.
+— Elle est seule, répondit Julien.
 
-— Deux hypothèses. Pas une preuve.
+— Justement. Il faut qu'on puisse revenir la chercher demain si elle n'est pas dans le premier passage.
 
-Julien fixa les portails.
+Victor regardait les deux marques pâles dans la pierre. Il avait envie de traverser l'une d'elles avec ses poings.
 
-— On commence par l'un des deux.
+Nino posa une main sur l'épaule de Julien.
 
-— Pas ce soir, répondit Savio.
+— Et si Clara revient ici avant nous ? demanda-t-il.
 
-Julien se tourna vers lui.
+Les autres le regardèrent.
 
-— Quoi ?
+— Elle sait où se trouve le passage du Moyen Âge, poursuivit-il. Mais si elle revient dans cette salle et qu'on est partis dans une autre époque, elle ne saura pas où nous trouver.
 
-— On ne sait pas où ils mènent. On n'emporte pas juste une lampe et de l'espoir. Il faut préparer une expédition.
+— On lui laisse un message, dit Julien.
 
-— Chaque minute...
+Il prononça ces mots avec difficulté, comme si écrire une lettre revenait à admettre qu'il ne la retrouverait pas dans l'heure.
 
-— Je sais. Mais si nous disparaissons aussi, personne ne la retrouvera.
+Ils déposèrent près de l'arche familière une feuille que Clara pourrait voir en revenant. Savio précisa qu'ils ne savaient pas dans quelle ouverture elle avait disparu et qu'il ne fallait pas s'aventurer seule dans un nouveau passage. Nino chercha une pierre suffisamment lourde pour empêcher le papier de s'envoler.
 
-Nino s'approcha de la place où Clara avait disparu.
+Julien écrivit :
 
-Il n'avait rien dit depuis son arrivée.
+*Clara, on te cherche. Si tu arrives à lire ceci, reste près du passage que tu connais. Ne prends pas de risque inutile. On reviendra ici. Ton frère.*
 
-— Elle sait revenir dans cette salle ? demanda-t-il.
+Savio prit des photos des rainures, des inscriptions et des marques laissées sur les deux murs. Il traça un petit repère discret sous chacun des emplacements que Victor avait indiqués. Il comptait revenir avec de la lumière, du matériel et assez de temps pour examiner les pierres sans agir dans la panique.
 
-Savio réfléchit.
+Raoul regarda les murs, puis la sortie. Il savait qu'il devrait peut-être aider à chercher la disparue. Il pensa aussi, malgré lui, à ce que ces passages pouvaient ouvrir : d'autres pays, d'autres époques, d'autres affaires. Sa culpabilité n'avait pas encore transformé son caractère.
 
-— Elle connaît le premier passage depuis ce soir. Mais pas les autres. Et elle ne sait peut-être pas où elle a atterri.
+— Si vous avez besoin de savoir exactement comment le socle a bougé, dit-il, j'étais là.
 
-— Alors il faut lui laisser un message.
+Julien ne lui répondit pas.
 
-Tous le regardèrent.
+L'ancien militaire finit par s'éloigner.
 
-Nino haussa les épaules.
+Victor resta devant les deux marques sur le mur. Il y posa successivement la main, comme s'il pouvait sentir de quel côté Clara avait disparu.
 
-— Si elle retrouve la salle avant nous, il faut qu'elle sache qu'on la cherche.
+— Tu reviens demain ? lui demanda Savio.
 
-Julien ferma un instant les yeux.
+Victor le regarda, stupéfait qu'on puisse poser cette question.
 
-— Oui.
+— Je reviendrai jusqu'à ce qu'on la retrouve.
 
-Ils rédigèrent une lettre. Savio y inscrivit des indications simples et vérifiables, sans mentionner de destination qu'ils ignoraient. Ils repérèrent le passage connu du Moyen Âge, celui que Clara avait déjà emprunté, et marquèrent le premier des deux passages qu'ils comptaient explorer.
+Julien prit la lettre une dernière fois entre ses doigts, puis la reposa sous la pierre.
 
-Julien resta le dernier dans la salle.
+— On la retrouve, dit-il.
 
-Il posa la lettre bien en évidence, sous une pierre qui l'empêcherait de glisser.
+Savio ne répondit pas par une promesse. Il regardait le socle, l'anneau coincé et les deux portes éteintes.
 
-Puis il recula.
+Pour la première fois, leurs prochains pas ne dépendraient pas d'un commerce ou d'un roi.
 
-Sur le papier figuraient quelques mots écrits de sa main :
-
-*Clara, on te cherche. Ne prends pas de risque inutile. On reviendra ici. Ton frère.*
-
-Il fixa longtemps la feuille.
-
-Enfin, il se retourna vers ses amis.
-
-— On la retrouve.
-
-Victor acquiesça.
-
-Nino serra la lanière de son sac.
-
-Savio regarda la porte qu'ils avaient choisie.
-
-Pour la première fois, ils n'allaient pas traverser un siècle pour gagner quelque chose.
-
-Ils allaient traverser l'inconnu pour retrouver quelqu'un.
+Ils allaient essayer de rouvrir l'inconnu pour retrouver quelqu'un.
 
 ---
 
@@ -3466,25 +3520,81 @@ Il n'avait pas trouvé la force d'y répondre.
 
 ***
 
-La salle des portails était telle qu'ils l'avaient laissée.
+La salle des portails n'avait pas changé pendant leur absence.
 
-Plusieurs ouvertures luisaient dans la pierre, silencieuses, incompréhensibles. La lettre déposée pour Clara n'avait pas bougé.
+C'était le plus difficile à supporter.
 
-Julien la relut avant de se retourner vers Savio.
+L'arche habituelle brillait toujours. Les autres emplacements n'étaient que des murs de pierre, silencieux. La lettre déposée pour Clara n'avait pas bougé.
 
-— Tu es certain de notre choix ?
+Victor alla directement vers les deux marques qu'ils avaient tracées la veille. Il posa la paume sur la première.
 
-— Non.
+— Rien, murmura-t-il.
+
+Julien relut la lettre avant de se tourner vers Savio.
+
+— Tu as compris comment les rouvrir ?
+
+— J'ai une hypothèse. Pas une certitude.
+
+Savio posa ses photographies sur le rebord du socle. Sous la lumière de sa lampe, les inscriptions formaient plusieurs séries de signes. L'anneau intérieur, déplacé pendant la bagarre, semblait désormais bloqué juste avant un renfoncement plus profond. Au bord, une pièce de pierre faisait saillie : assez pour montrer que le mécanisme n'était pas arrivé au bout de sa course.
+
+— C'est cette pièce qui a bougé quand ils sont tombés dessus, expliqua-t-il. Elle a entraîné l'anneau. Mais personne ne l'a maintenue enfoncée assez longtemps pour que le mouvement se termine.
+
+— Donc on appuie, conclut Nino.
+
+— Doucement, répondit Savio. Et on regarde avant de traverser.
+
+Ils n'avaient pas dormi suffisamment. Savio le savait à la manière dont ses mains tremblaient lorsqu'il posait la lampe. Julien, lui, observait le socle comme s'il voulait le convaincre de céder par la force de sa volonté.
+
+Ils dégagèrent la poussière autour de la pièce mobile. Savio indiqua où exercer la pression. Julien et Victor s'y mirent ensemble, lentement, tandis que Nino vérifiait les marques sur le cercle.
+
+L'anneau résista.
+
+Puis il glissa d'un cran.
+
+Une ligne de lumière apparut sur le sol.
+
+— Continuez, souffla Savio.
+
+Un second mouvement rapprocha deux symboles. La lumière gagna le premier mur, puis le second. Des contours colorés s'y dessinèrent, encore instables. Victor fit un pas en avant ; Julien le retint par le bras.
+
+— Attends.
+
+Pour la première fois depuis la disparition de Clara, Victor obéit.
+
+Savio guida leurs mains jusqu'à la dernière encoche. Un claquement sourd résonna sous le socle. La pièce resta abaissée. L'anneau ne bougea plus.
+
+Les ouvertures cessèrent de vaciller.
+
+Autour de la salle, plusieurs portes brillaient maintenant d'une lumière régulière. L'arche du Moyen Âge, elle, n'avait pas changé.
+
+Nino recula pour mieux voir.
+
+— C'est peut-être la première fois qu'un bouton fonctionne mieux quand on lit les instructions.
+
+— Ce ne sont pas des instructions, dit Savio.
+
+— Tu sais vraiment enlever toute la joie d'une découverte.
+
+Savio prit quelques minutes pour examiner la disposition des passages. Rien ne garantissait combien de temps ils resteraient ouverts. Mais le mécanisme avait atteint une position fixe, ce qui n'était pas le cas la veille.
+
+— Si on repart, il faudra vérifier qu'on retrouve exactement cette disposition, dit-il. Et surtout, ne toucher à rien d'autre.
+
+Julien se tourna vers les deux murs marqués. L'une des nouvelles ouvertures brillait à l'emplacement désigné par Victor.
+
+— Tu es certain de notre choix ? demanda-t-il.
+
+— Non, répondit Savio.
 
 — Alors pourquoi celle-là ?
 
-Savio désigna Victor.
+Savio désigna les deux marques.
 
-— Parce qu'il pense qu'elle était près de ces deux portes. Nous ne savons rien d'autre.
+— Parce que Victor a vu Clara disparaître dans ce secteur. Nous avons deux passages possibles. C'est le seul indice dont nous disposons.
 
 Victor baissa la tête.
 
-— Je n'ai pas vu laquelle.
+— Je n'ai pas vu lequel.
 
 — Je sais, dit Julien.
 
@@ -3492,15 +3602,15 @@ Il ne parlait pas sur un ton de reproche.
 
 C'était presque pire.
 
-Savio vérifia une dernière fois leurs repères.
+Savio revérifia leurs repères et la lettre laissée pour Clara près de l'arche connue.
 
 — On franchit. On note ce qu'on trouve. On reste capables de revenir.
 
 — Et si elle est là, ajouta Nino, on rentre tous ensemble.
 
-Julien s'approcha de l'ouverture.
+Julien approcha de la première ouverture. Victor voulut le précéder ; Julien lui fit signe de rester à ses côtés.
 
-Les autres se rangèrent derrière lui.
+Les quatre se rangèrent devant la lumière.
 
 Cette fois, personne ne plaisanta avant d'entrer.
 
