@@ -115,6 +115,15 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - Renforcer l'aventure et le contraste du Western, au-delà d'une simple séance d'achat.
 - Les nouvelles scènes ne sont pas encore validées.
 
+## Parenthèse comique vestimentaire — NOUVELLE DIRECTIVE AUTEUR (VALIDÉE)
+
+- **Dans le futur**, le dispositif de protection acquis chez le receleur n'est PAS un simple boîtier portatif : **il est intégré à une combinaison ou un manteau militaire futuriste au style impressionnant** (silhouette spectaculaire, légèrement excessive). **Nino** le porte, fasciné par son allure. L'assistant IA peut commenter ou surestimer son élégance avec sa politesse excessive. Le système de protection conserve des **limites d'autonomie et de fonctionnement**, et n'est pas une invulnérabilité permanente.
+- **Dans l'épisode Far West**, **Raoul** doit se retrouver **par nécessité** habillé comme un cow-boy (chapeau, long manteau de poussière / duster, bottes, éventuellement foulard), par exemple pour passer inaperçu ou remplacer ses vêtements inadaptés ; intégrer une justification crédible à la scène western à venir. Il n'adopte pas ce style uniquement pour plaisanter.
+- **Le contraste à leur retour en Égypte doit devenir un gag visuel marquant : Nino en tenue militaire de science-fiction, Raoul en cow-boy du Far West**, tandis que les Égyptiens, Clara, Julien et le reste du groupe les dévisagent. L'assistant IA peut compléter le tableau avec une remarque littérale et décalée. Préserver les tempéraments : Nino parade et s'amuse, Raoul assume son accoutrement à contrecœur.
+- **Continuité avec l'alternance obligatoire** : Japon → Égypte → futur → Égypte → Far West → Égypte. Nino conserve son manteau protecteur entre les épisodes futuriste et western ; au retour final du Far West en Égypte, leurs deux tenues sont donc visibles ensemble. Le retour intermédiaire du futur peut déjà déclencher quelques premières réactions, mais garder la meilleure scène comique pour le retour après le Western.
+- Le vêtement futuriste doit être clairement lié à l'**équipement défensif servant ensuite à protéger les civils égyptiens** : vérifier la cohérence de son mode d'activation, de sa portée et de sa réserve d'énergie lorsque le manuscrit sera réécrit.
+- **Toujours pas de réécriture ni de publication Wix à cette étape :** consigner la directive puis préparer le scénario du Far West avec l'auteur avant intégration globale.
+
 ## Principe d'architecture — VALIDÉ
 
 Alternance narrative stricte de principe :
