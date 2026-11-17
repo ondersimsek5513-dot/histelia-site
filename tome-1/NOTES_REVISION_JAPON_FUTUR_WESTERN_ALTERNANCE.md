@@ -104,7 +104,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 
 - Le **tantō japonais**, les **croquis des symboles du sanctuaire**, l'**assistant IA** et le **dispositif de protection** doivent rester traçables et cohérents lors des épisodes ultérieurs.
 - **Dans l'ordre des chapitres**, placer un chapitre égyptien entre Japon et Futur ; **dans la chronologie des personnages**, Nino et Raoul rejoignent directement le portail du Futur depuis la salle des portails, sans revenir en Égypte.
-- **Au retour unique en Égypte après le Far West**, les explorateurs rapportent le tantō, les croquis, le manteau, l'assistant IA **Nio**, les armes et leurs tenues. Conserver réactions et raccords temporels.
+- **Au retour unique en Égypte après le Far West**, les explorateurs rapportent le tantō, les croquis, le manteau, l'assistant IA **Thuggy**, les armes et leurs tenues. Conserver réactions et raccords temporels.
 - **Aucune écriture du manuscrit et aucune publication Wix ne sont autorisées par cette seule sauvegarde** : attendre la mise au point de l'aventure Western, puis appliquer l'alternance et contrôler les raccords.
 
 ## Far West — SCÉNARIO VALIDÉ PAR L'AUTEUR (à intégrer lors de la réécriture)
@@ -132,7 +132,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - Silas, Nino et Raoul repèrent un **camp de bandits près d'une ancienne mine**, dans un paysage rocheux.
 - **Ils attendent la nuit** plutôt que d'entrer dans le camp ou de tenter un marchandage direct.
 - Depuis un poste d'observation, ils discutent stratégie : nombre d'assaillants, position des sentinelles, endroit où le frère est détenu et position des armes.
-- **Nio**, nom choisi et donné à l'assistant IA **par Nino**, pendant leur séjour dans le futur, effectue **soudain un scan** lorsque Nino lui demande de l'aide. Le robot porte donc déjà ce nom au Far West.
+- **Thuggy**, nom choisi et donné à l'assistant IA **par Nino**, pendant leur séjour dans le futur, effectue **soudain un scan** lorsque Nino lui demande de l'aide. Le robot porte donc déjà ce nom au Far West.
 - L'assistant révèle les **positions et signes d'activité** de plusieurs bandits, dont une grande partie **endormie**, ainsi qu'**une forte concentration de métal dans un chariot**. Les personnages suspectent qu'il s'agit des armes ; l'IA identifie des masses et présences, **pas avec certitude des intentions ou des identités**.
 - Un repérage visuel discret permet de découvrir **le frère de Silas attaché**, et de confirmer que les caisses du chariot correspondent à la cargaison.
 - Scène de surprise comique : technologie stupéfiante pour Silas, mais vieille et défaillante du point de vue de l'IA, parfois trop polie ou littérale.
@@ -140,14 +140,14 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 ### Sauvetage, incident comique et poursuite
 - **Raoul libère discrètement le frère** en profitant des bandits endormis ; Silas et Nino le couvrent.
 - Leur deuxième objectif est d'**extraire le chariot avec les caisses** sans réveiller le camp ; plus difficile que de libérer un homme.
-- Au pire moment, **Nio annonce trop fort et involontairement** que l'opération est réussie. Nino cherche à le faire taire, mais une sentinelle est alertée.
+- Au pire moment, **Thuggy annonce trop fort et involontairement** que l'opération est réussie. Nino cherche à le faire taire, mais une sentinelle est alertée.
 - Déclencher alors **une poursuite de western** avec chariot, poussière, chevaux et danger, sans résolution miraculeuse par l'IA ou l'armure futuriste. Le manteau protecteur de Nino n'est pas employé pour résoudre le sauvetage.
 - Le groupe réussit à sauver le frère et récupérer le convoi. De retour en ville, le marchand reconnaissant leur vend **plusieurs caisses de fusils et de munitions** à prix favorable en échange de leur or.
 - Dernières plaisanteries de Nino au saloon ; départ urgent pour l'Égypte. **Raoul garde sa tenue parce qu'il l'a achetée**, ce qui prépare le gag des retrouvailles.
 
 ### Raccords avec l'Égypte
-- **Trajet effectif : Japon → salle des portails → Futur → salle des portails → Far West → salle des portails → Égypte.** Pas de retour intermédiaire. **Nino baptise lui-même son assistant « Nio » dans le Futur**, avant l'épisode western. Les chapitres égyptiens intermédiaires ne mettent en scène que les personnages restés sur place.
-- En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Nio est déguisé en enfant**.
+- **Trajet effectif : Japon → salle des portails → Futur → salle des portails → Far West → salle des portails → Égypte.** Pas de retour intermédiaire. **Nino baptise lui-même son assistant « Thuggy » dans le Futur**, avant l'épisode western. Les chapitres égyptiens intermédiaires ne mettent en scène que les personnages restés sur place.
+- En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Thuggy est déguisé en enfant**.
 - Le bouclier du manteau : **une impulsion défensive d'au plus une minute, une fois par heure**, sous réserve de charge solaire suffisante ; ne pas déclencher ici une démonstration qui gâcherait sa première utilisation marquante en Égypte.
 - Préserver la logistique du transport des caisses à travers les portails ; traiter explicitement comment le chariot ou les armes sont acheminés, sans supposer qu'un véhicule puisse franchir tous les passages.
 - **Validation porte sur le scénario et ses corrections ; aucune réécriture du manuscrit ni publication Wix à cette étape.**
@@ -174,8 +174,21 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Le corps de l'assistant IA est recouvert / habillé pour le faire passer, de loin, pour un enfant**. La supercherie doit rester imparfaite et offrir des occasions de comédie (posture, voix trop polie, remarques absurdes, besoin de se mettre en veille la nuit). Prévoir une apparence et une taille compatibles avec un déguisement d'enfant, sans transformer magiquement l'appareil.
 - **Raoul conserve son accoutrement complet de cow-boy acquis par nécessité dans le Far West** : chapeau, bottes, manteau western. Il tranche très visiblement avec les vêtements de l'Égypte antique.
 - **Gag visuel à leur retour :** Raoul en cow-boy, Nino en habit local dissimulant maladroitement une armure futuriste, « enfant » mystérieusement guindé et parfois bavard à leurs côtés. Les autres personnages découvrent progressivement l'origine de ces tenues et de leur nouvel accompagnateur ; jouer du contraste et des remarques spontanées.
-- **Continuité :** alterner les points de vue, non les déplacements : durant les trois voyages successifs, la rébellion évolue en Égypte en l'absence de Nino et Raoul. Le groupe se réunit après la troisième destination ; suivre les habits, objets, charge solaire et Nio.
+- **Continuité :** alterner les points de vue, non les déplacements : durant les trois voyages successifs, la rébellion évolue en Égypte en l'absence de Nino et Raoul. Le groupe se réunit après la troisième destination ; suivre les habits, objets, charge solaire et Thuggy.
 - Consigne uniquement de **scénarisation et sauvegarde** pour l'instant ; ne pas modifier ni publier le manuscrit avant validation de l'aventure western et de la restructuration complète.
+
+## Thuggy, partenaire de recherche scientifique de Savio — DIRECTIVE VALIDÉE
+
+- **Nom officiel et définitif : Thuggy.** La précédente tentative de renommage était une erreur ; toujours utiliser Thuggy.
+- **Nino baptise lui-même l'assistant « Thuggy »** pendant l'aventure futuriste, avant de partir pour le Far West. **Savio ne le baptise pas** et ne le rencontre qu'**après le retour unique de Nino et Raoul en Égypte**.
+- **À leur retour**, Thuggy devient un **atout scientifique majeur pour Savio** et toute l'équipe. Ce modèle obsolète dans le futur reste, pour les explorateurs venus du XXIe siècle, une intelligence artificielle extrêmement avancée.
+- Usages à exploiter concrètement : numérisation et classement des **dessins, fragments, tablettes et inscriptions** étudiés par Savio ; comparaison de symboles entre les portails, le sanctuaire japonais et les archives égyptiennes ; projections holographiques ; détection de correspondances, de formes et de matériaux ; aide à la traduction ou à l'analyse des textes anciens avec limites et incertitudes.
+- **Mine d'or intellectuelle, pas solution magique** : Thuggy propose des liens, hypothèses et analyses, mais ne connaît pas automatiquement l'origine des portails, leur carte complète ou la route du retour. **Savio garde la direction scientifique, le contrôle critique et les conclusions.**
+- **Contraste comique récurrent** : une observation technique prodigieuse peut être immédiatement suivie d'une réponse littérale, une classification absurde, une information périmée, une panne de vieux modèle ou une interruption trop polie. Ses bourdes restent occasionnelles ; il est globalement très utile.
+- **Personnages** : Nino, fier de sa trouvaille et du nom qu'il lui a donné, s'attache à Thuggy ; Savio est passionné par ses capacités ; Raoul se méfie de ses dysfonctionnements. Cet équilibre nourrit des scènes de groupe.
+- **Énergie et camouflage** : énergie solaire stockée pendant la journée ; mode veille nocturne pour préserver/rééquilibrer la réserve sans prétendre recevoir du soleil la nuit. En Égypte, Thuggy est déguisé en enfant devant les étrangers, tandis qu'il peut assister Savio en privé.
+- **Chronologie impérative** : les chapitres égyptiens intercalés entre les aventures au Japon, dans le Futur et au Far West ont lieu **sans Nino, Raoul ni Thuggy**. **Les recherches avec Thuggy commencent seulement après leur retour final du Far West en Égypte.** Adapter les scènes de recherche et l'ouverture sur les prochains tomes à cette contrainte.
+- Ce document consigne le scénario ; le manuscrit et le site ne sont pas modifiés à ce stade.
 
 ## Principe d'architecture — VALIDÉ
 
@@ -183,7 +196,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 
 **Voyage réel des explorateurs :** JAPON → salle des portails → FUTUR → salle des portails → FAR WEST → salle des portails → ÉGYPTE. Aucune escale en Égypte pendant les trois aventures.
 
-**Nom officiel de l'IA : Nio**, donné **par Nino** dans le Futur. Les anciens noms et l'attribution du baptême à Savio sont caducs.
+**Nom officiel de l'IA : Thuggy**, donné **par Nino** dans le Futur. Les anciens noms et l'attribution du baptême à Savio sont caducs.
 
 La place exacte et la renumérotation future des chapitres doivent être travaillées une fois les trois épisodes conçus. Ne pas publier une nouvelle structure ou déplacer les chapitres de rébellion sans contrôle des raccords (archives de Savio, impact des objets rapportés, chronologie de la rébellion, premier affrontement, emploi de la protection futuriste).
 
