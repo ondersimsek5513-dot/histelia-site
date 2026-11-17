@@ -107,13 +107,50 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - Le retour en Égypte avec les objets doit correspondre à la chronologie révisée de l'affrontement et des secours aux civils ; le personnage IA devra être intégré à l'inventaire et aux réactions des autres.
 - **Aucune écriture du manuscrit et aucune publication Wix ne sont autorisées par cette seule sauvegarde** : attendre la mise au point de l'aventure Western, puis appliquer l'alternance et contrôler les raccords.
 
-## Far West — À CONCEVOIR AVEC L'AUTEUR
+## Far West — SCÉNARIO VALIDÉ PAR L'AUTEUR (à intégrer lors de la réécriture)
 
-Éléments actuels du manuscrit pouvant servir de base, à valider/retravailler :
-- Contraste économique : contrairement au futur, l'or est prisé.
-- Raoul et Nino se procurent du matériel utile à la résistance en Égypte.
-- Renforcer l'aventure et le contraste du Western, au-delà d'une simple séance d'achat.
-- Les nouvelles scènes ne sont pas encore validées.
+### Entrée au saloon et urgence égyptienne
+- Nino et Raoul arrivent dans un saloon typique du Far West : portes battantes, pianiste, poker, cow-boys, tenancier. Ambiance cinématographique et humour.
+- Ils vérifient d'abord qu'une **petite pièce d'or** suffit pour obtenir **le gîte et le couvert pendant quelque temps**. Contraste avec le monde futuriste où l'or ne valait rien et l'identité numérique était obligatoire.
+- Leurs compagnons en Égypte ont **urgemment besoin d'armes en quantité** ; ils cherchent un fournisseur fiable sans s'attarder inutilement.
+- Le patron du saloon leur apprend que l'armurier local ne suffit pas pour une grosse commande. Un homme à la table de poker se mêle à la conversation : **Silas Reed** (nom de travail à conserver sauf choix contraire de l'auteur).
+
+### Marché proposé par Silas
+- Silas est un ancien convoyeur du secteur. Il connaît une importante **cargaison d'armes volée lors de l'attaque d'un convoi**.
+- **Le frère de Silas** a été fait prisonnier avec la cargaison.
+- Silas propose un accord : en l'aidant à récupérer son frère et le convoi, les voyageurs obtiendront grâce à lui plusieurs caisses de fusils et de munitions à un prix avantageux, réglé en or.
+- La mission est suffisamment rapide pour rester compatible avec l'urgence égyptienne (environ deux ou trois jours au total, à caler lors de la rédaction).
+
+### Les costumes achetés — CORRECTION DE CONTINUITÉ EXPRESSE
+- Pour ne pas être trop reconnaissables et supporter le terrain, **les vêtements western sont ACHETÉS chez un marchand de vêtements d'occasion**, où Silas les conduit.
+- **Raoul achète** et porte chapeau de cow-boy, bottes, chemise, foulard si pertinent et long manteau de poussière (duster). Il les conserve parce qu'**ils lui appartiennent**.
+- **ERREUR À ÉVITER :** aucune scène où Silas demande à Raoul de « lui rendre ses vêtements » ni les lui offre finalement. Les habits ne sont ni prêtés ni fournis par Silas : il ne fait que les conduire chez le commerçant.
+- Nino conserve son manteau militaire futuriste protecteur, qu'il masque sous des vêtements plus discrets.
+- L'assistant IA voyage avec eux, camouflé pour paraître être un enfant, ce qui permet des quiproquos avec Silas.
+
+### Mine abandonnée : infiltration nocturne, pas négociation avec les bandits
+- Silas, Nino et Raoul repèrent un **camp de bandits près d'une ancienne mine**, dans un paysage rocheux.
+- **Ils attendent la nuit** plutôt que d'entrer dans le camp ou de tenter un marchandage direct.
+- Depuis un poste d'observation, ils discutent stratégie : nombre d'assaillants, position des sentinelles, endroit où le frère est détenu et position des armes.
+- **Thuggy**, nom donné à l'assistant IA **par Savio** (à introduire lors du passage égyptien situé entre les épisodes futuriste et western, pour justifier que Nino et Raoul l'utilisent déjà), effectue **soudain un scan** lorsque Nino lui demande de l'aide.
+- L'assistant révèle les **positions et signes d'activité** de plusieurs bandits, dont une grande partie **endormie**, ainsi qu'**une forte concentration de métal dans un chariot**. Les personnages suspectent qu'il s'agit des armes ; l'IA identifie des masses et présences, **pas avec certitude des intentions ou des identités**.
+- Un repérage visuel discret permet de découvrir **le frère de Silas attaché**, et de confirmer que les caisses du chariot correspondent à la cargaison.
+- Scène de surprise comique : technologie stupéfiante pour Silas, mais vieille et défaillante du point de vue de l'IA, parfois trop polie ou littérale.
+
+### Sauvetage, incident comique et poursuite
+- **Raoul libère discrètement le frère** en profitant des bandits endormis ; Silas et Nino le couvrent.
+- Leur deuxième objectif est d'**extraire le chariot avec les caisses** sans réveiller le camp ; plus difficile que de libérer un homme.
+- Au pire moment, **Thuggy annonce trop fort et involontairement** que l'opération est réussie. Nino cherche à le faire taire, mais une sentinelle est alertée.
+- Déclencher alors **une poursuite de western** avec chariot, poussière, chevaux et danger, sans résolution miraculeuse par l'IA ou l'armure futuriste. Le manteau protecteur de Nino n'est pas employé pour résoudre le sauvetage.
+- Le groupe réussit à sauver le frère et récupérer le convoi. De retour en ville, le marchand reconnaissant leur vend **plusieurs caisses de fusils et de munitions** à prix favorable en échange de leur or.
+- Dernières plaisanteries de Nino au saloon ; départ urgent pour l'Égypte. **Raoul garde sa tenue parce qu'il l'a achetée**, ce qui prépare le gag des retrouvailles.
+
+### Raccords avec l'Égypte
+- Toujours appliquer le rythme **Japon → Égypte → futur → Égypte → Far West → Égypte** : une scène égyptienne doit permettre à **Savio de baptiser l'assistant « Thuggy »** avant sa participation nommée à l'aventure western.
+- En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Thuggy est déguisé en enfant**.
+- Le bouclier du manteau : **une impulsion défensive d'au plus une minute, une fois par heure**, sous réserve de charge solaire suffisante ; ne pas déclencher ici une démonstration qui gâcherait sa première utilisation marquante en Égypte.
+- Préserver la logistique du transport des caisses à travers les portails ; traiter explicitement comment le chariot ou les armes sont acheminés, sans supposer qu'un véhicule puisse franchir tous les passages.
+- **Validation porte sur le scénario et ses corrections ; aucune réécriture du manuscrit ni publication Wix à cette étape.**
 
 ## Parenthèse comique vestimentaire — NOUVELLE DIRECTIVE AUTEUR (VALIDÉE)
 
@@ -154,4 +191,4 @@ Branche : main
 Manuscrit : tome-1/manuscrit.md
 Site Wix Histelia relié à ce manuscrit : modifications à publier seulement après mise en récit et vérification.
 
-**Prochaine étape :** concevoir et valider l'aventure du Far West avec l'auteur, puis réécrire les trois escapades et insérer les chapitres égyptiens entre elles avant publication sur le site.
+**Prochaine étape :** les scénarios Japon, futur et Far West sont validés. Préparer leur réécriture en chapitres alternés avec l'Égypte, vérifier la chronologie et la logistique, puis publier uniquement sur instruction explicite de l'auteur.
