@@ -1,14 +1,23 @@
 # HISTELIA — CONSIGNES VALIDÉES : JAPON, FUTUR, FAR WEST ET ALTERNANCE
 
 Date : 17 novembre 2026
-Statut : NOTE DE TRAVAIL VALIDÉE PAR L'AUTEUR — réécriture du manuscrit et publication Wix NON effectuées pour ces consignes.
+Statut : **SCÉNARIOS INTÉGRÉS ET PUBLIÉS** — manuscrit GitHub et lecteur Wix synchronisés avec **35 chapitres** le 17 novembre 2026.
 
-## Directives impératives pour les révisions à venir
+## État de l'intégration — version publiée (17 novembre 2026)
+
+- **Manuscrit définitif de cette étape :** [tome-1/manuscrit.md](https://github.com/ondersimsek5513-dot/histelia-site/blob/main/tome-1/manuscrit.md), branche main, commit d30e722618c7b67bacaa2751c75aa55b9badd772.
+- **Site public mis à jour :** https://headless-omtyimykitx-ondersimsek5513-140f.wix-site-host.com ; les 35 chapitres sont intégrés au lecteur et le contrôle du nombre de chapitres (ainsi que la reprise de lecture) est mis à jour.
+- **Alternance éditoriale réalisée :** 25 Japon ; 26 Égypte ; 27 Futur ; 28 Égypte ; 29 Far West ; 30 Égypte/retour. Chapitres de conclusion renumérotés 31–35.
+- **Chronologie réelle :** les explorateurs passent d'un monde à l'autre sans retour intermédiaire en Égypte. Les épisodes égyptiens montrent les compagnons restés sur place. Leur retour unique se déroule au chapitre 30.
+- **Raccords traités :** Thuggy baptisé par Nino au chapitre 27, utilisé au Far West au chapitre 29, rencontré par Savio seulement au chapitre 30 et à nouveau sollicité au chapitre 35 ; vêtements achetés ; tantō et croquis conservés ; transport des caisses à bras à travers les portails ; bouclier intégré au manteau, une minute maximum avec au moins une heure avant réactivation et charge solaire suffisante ; scène de protection des civils au chapitre 32.
+- Les consignes de non-publication ci-dessous sont **des étapes historiques de préparation**, désormais exécutées avec l'accord de l'auteur. Le roman reste sujet à des relectures littéraires ultérieures.
+
+## Directives et contraintes du scénario
 
 - **Nino et Raoul explorent successivement le Japon, le Futur et le Far West, sans retour physique en Égypte entre ces voyages.** Ils rentrent en Égypte **une seule fois, après les trois aventures**.
 - **Pour la lecture uniquement**, intercaler des chapitres situés en Égypte : Clara, Dara, Savio et Julien poursuivent les préparatifs de la rébellion **en parallèle, en l'absence de Nino et Raoul**.
 - Conserver l'effet de rupture : chaque nouvelle époque est une parenthèse immersive (ambiance, humour, danger) qui contraste avec la gravité des épisodes égyptiens.
-- Les **trois scénarios Japon, Futur et Far West sont validés** par l'auteur ; leur réécriture en chapitres alternés reste à effectuer.
+- Les **trois scénarios Japon, Futur et Far West ont été validés puis intégrés** dans les chapitres alternés publiés.
 - Éviter les intrigues japonaises inutilement longues et ne pas détourner le tome de sa trame égyptienne. Préserver les raccords et conséquences à long terme.
 - La numérotation actuelle du roman est de **31 chapitres** ; l'ancien chapitre 25 « L'or ne vaut rien » contient actuellement Japon + Futur et l'ancien chapitre 26 « Au pays où l'or commande » traite du Western. Cette structure est à réorganiser ultérieurement après conception des trois récits.
 
@@ -105,7 +114,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - Le **tantō japonais**, les **croquis des symboles du sanctuaire**, l'**assistant IA** et le **dispositif de protection** doivent rester traçables et cohérents lors des épisodes ultérieurs.
 - **Dans l'ordre des chapitres**, placer un chapitre égyptien entre Japon et Futur ; **dans la chronologie des personnages**, Nino et Raoul rejoignent directement le portail du Futur depuis la salle des portails, sans revenir en Égypte.
 - **Au retour unique en Égypte après le Far West**, les explorateurs rapportent le tantō, les croquis, le manteau, l'assistant IA **Thuggy**, les armes et leurs tenues. Conserver réactions et raccords temporels.
-- **Aucune écriture du manuscrit et aucune publication Wix ne sont autorisées par cette seule sauvegarde** : attendre la mise au point de l'aventure Western, puis appliquer l'alternance et contrôler les raccords.
+- **Instruction historique exécutée :** la réécriture du manuscrit et la mise à jour Wix ont été effectuées après la demande explicite de l'auteur.
 
 ## Far West — SCÉNARIO VALIDÉ PAR L'AUTEUR (à intégrer lors de la réécriture)
 
@@ -150,7 +159,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Thuggy est déguisé en enfant**.
 - Le bouclier du manteau : **une impulsion défensive d'au plus une minute, une fois par heure**, sous réserve de charge solaire suffisante ; ne pas déclencher ici une démonstration qui gâcherait sa première utilisation marquante en Égypte.
 - Préserver la logistique du transport des caisses à travers les portails ; traiter explicitement comment le chariot ou les armes sont acheminés, sans supposer qu'un véhicule puisse franchir tous les passages.
-- **Validation porte sur le scénario et ses corrections ; aucune réécriture du manuscrit ni publication Wix à cette étape.**
+- **Intégration réalisée :** scénario et corrections du Far West publiés au chapitre 29.
 
 ## Parenthèse comique vestimentaire — NOUVELLE DIRECTIVE AUTEUR (VALIDÉE)
 
@@ -159,7 +168,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Le contraste à leur retour en Égypte doit devenir un gag visuel marquant** : **Raoul en cow-boy du Far West, Nino cachant son manteau de science-fiction sous une toge, et l'assistant IA déguisé en enfant**. Prévoir un dévoilement comique progressif du manteau et des capacités de l'IA ; Nino s'amuse, Raoul assume sa tenue à contrecœur.
 - **Alternance des chapitres, sans retours intermédiaires :** Japon (explorateurs) → Égypte (groupe sur place) → Futur (explorateurs) → Égypte (groupe sur place) → Far West (explorateurs) → Égypte (retrouvailles). Le gag des tenues n'a lieu qu'à leur retour unique après le Far West.
 - Le vêtement futuriste doit être clairement lié à l'**équipement défensif servant ensuite à protéger les civils égyptiens** : vérifier la cohérence de son mode d'activation, de sa portée et de sa réserve d'énergie lorsque le manuscrit sera réécrit.
-- **Toujours pas de réécriture ni de publication Wix à cette étape :** consigner la directive puis préparer le scénario du Far West avec l'auteur avant intégration globale.
+- **Étape accomplie :** la version vestimentaire validée a été intégrée au manuscrit et au site.
 
 ## Autonomie énergétique, camouflage et trio décalé — DIRECTIVE VALIDÉE
 
@@ -175,7 +184,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Raoul conserve son accoutrement complet de cow-boy acquis par nécessité dans le Far West** : chapeau, bottes, manteau western. Il tranche très visiblement avec les vêtements de l'Égypte antique.
 - **Gag visuel à leur retour :** Raoul en cow-boy, Nino en habit local dissimulant maladroitement une armure futuriste, « enfant » mystérieusement guindé et parfois bavard à leurs côtés. Les autres personnages découvrent progressivement l'origine de ces tenues et de leur nouvel accompagnateur ; jouer du contraste et des remarques spontanées.
 - **Continuité :** alterner les points de vue, non les déplacements : durant les trois voyages successifs, la rébellion évolue en Égypte en l'absence de Nino et Raoul. Le groupe se réunit après la troisième destination ; suivre les habits, objets, charge solaire et Thuggy.
-- Consigne uniquement de **scénarisation et sauvegarde** pour l'instant ; ne pas modifier ni publier le manuscrit avant validation de l'aventure western et de la restructuration complète.
+- **Étape accomplie :** règles de l'autonomie solaire et du camouflage intégrées au manuscrit publié.
 
 ## Thuggy, partenaire de recherche scientifique de Savio — DIRECTIVE VALIDÉE
 
@@ -188,7 +197,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Personnages** : Nino, fier de sa trouvaille et du nom qu'il lui a donné, s'attache à Thuggy ; Savio est passionné par ses capacités ; Raoul se méfie de ses dysfonctionnements. Cet équilibre nourrit des scènes de groupe.
 - **Énergie et camouflage** : énergie solaire stockée pendant la journée ; mode veille nocturne pour préserver/rééquilibrer la réserve sans prétendre recevoir du soleil la nuit. En Égypte, Thuggy est déguisé en enfant devant les étrangers, tandis qu'il peut assister Savio en privé.
 - **Chronologie impérative** : les chapitres égyptiens intercalés entre les aventures au Japon, dans le Futur et au Far West ont lieu **sans Nino, Raoul ni Thuggy**. **Les recherches avec Thuggy commencent seulement après leur retour final du Far West en Égypte.** Adapter les scènes de recherche et l'ouverture sur les prochains tomes à cette contrainte.
-- Ce document consigne le scénario ; le manuscrit et le site ne sont pas modifiés à ce stade.
+- **Intégration effectuée :** Thuggy et son rôle auprès de Savio figurent désormais dans le manuscrit publié.
 
 ## Principe d'architecture — VALIDÉ
 
@@ -198,7 +207,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 
 **Nom officiel de l'IA : Thuggy**, donné **par Nino** dans le Futur. Les anciens noms et l'attribution du baptême à Savio sont caducs.
 
-La place exacte et la renumérotation future des chapitres doivent être travaillées une fois les trois épisodes conçus. Ne pas publier une nouvelle structure ou déplacer les chapitres de rébellion sans contrôle des raccords (archives de Savio, impact des objets rapportés, chronologie de la rébellion, premier affrontement, emploi de la protection futuriste).
+**Renumérotation et raccords effectués :** 35 chapitres, trois voyages alternés avec l'Égypte ; contrôle de la chronologie, de l'inventaire, des travaux de Savio et de la protection futuriste.
 
 ## Environnement éditorial
 
@@ -207,4 +216,4 @@ Branche : main
 Manuscrit : tome-1/manuscrit.md
 Site Wix Histelia relié à ce manuscrit : modifications à publier seulement après mise en récit et vérification.
 
-**Prochaine étape :** structurer et réécrire les deux récits parallèles (explorateurs vs. Égypte), vérifier la durée totale des trois aventures, la logistique et le retour unique, puis publier uniquement sur instruction explicite de l'auteur.
+**Prochaine étape éventuelle :** relecture littéraire du tome complet, densité des scènes et continuité des personnages ; cette version est déjà écrite, sauvegardée et publiée.
