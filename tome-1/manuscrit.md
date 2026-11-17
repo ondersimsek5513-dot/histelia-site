@@ -8062,589 +8062,1277 @@ Le premier, lui, allait bientôt se régler dans la douleur.
 
 ---
 
-## Chapitre 25 — L'or ne vaut rien
+## Chapitre 25 — L'élégance de la lame
 
-Raoul vérifia trois fois que la porte vers l'Égypte était bien celle qu'ils venaient d'emprunter.
+Raoul vérifia une dernière fois l'emblème de l'ouverture qui menait à l'Égypte. Il le compara au dessin de Savio, puis referma le carnet.
 
-Nino l'observa avec un sourire.
+— Tu as peur de ne pas retrouver le chemin ? demanda Nino.
+— J'essaie surtout de m'assurer qu'on ne finira pas dans une époque dont personne ne connaît la sortie.
+— Ça réduit les destinations.
 
-— Tu as peur de te perdre ?
+La seconde salle des portails, sous l'île maudite, donnait accès à plusieurs mondes. Savio les avait envoyés en reconnaissance courte. Ils devaient noter les indices, éviter les risques inutiles et revenir avec des renseignements utiles pour la rébellion.
 
-— J'essaie surtout de ne pas te ramener dans une époque où personne ne comprendra tes blagues.
+Nino avait surtout retenu qu'on lui faisait enfin assez confiance pour le laisser explorer.
 
-— Ça élimine la moitié du monde.
-
-Ils se trouvaient dans la seconde salle des portails, sous l'île maudite. Les signes éclairés dessinaient plusieurs ouvertures. Savio leur avait demandé de noter soigneusement chaque essai, de revenir dès qu'ils n'étaient plus certains de leur chemin et de ne toucher à aucun mécanisme qu'ils ne comprenaient pas.
-
-Raoul avait retenu les consignes.
-
-Nino avait retenu qu'on lui faisait enfin assez confiance pour l'envoyer en mission.
-
-— Alors, première porte, dit-il.
-
-Il entra.
-
-Raoul le suivit.
+Ils franchirent une arche marquée d'un symbole inconnu.
 
 ***
 
-L'air sentait le bois humide.
+De l'autre côté, l'air sentait la terre humide et le bois. Des cèdres entouraient un chemin qui descendait vers une vallée. Un château se dressait au-dessus de maisons sombres.
 
-Au-delà d'un passage étroit, une vallée s'ouvrait sur des maisons de bois et des collines couvertes d'arbres. Au loin, un château se dressait sur une hauteur.
+Nino ouvrit de grands yeux.
 
-Des hommes en armure traversèrent un chemin. Leurs armes, leurs vêtements et leurs gestes appartenaient à une époque que Nino reconnut d'abord à travers les films.
+— Raoul. On est au Japon !
+— Je vois ça.
+— Mais au Japon des samouraïs !
 
-— Le Japon, souffla-t-il.
+Une procession avançait sur la route : un homme et son épouse, deux enfants, un serviteur chargé des bagages et deux guerriers armés de sabres.
 
-Raoul regarda les guerriers.
+Nino se glissa derrière un talus avec Raoul.
 
-— Et pas le Japon des touristes.
+— Regarde leur démarche. Même marcher, ils le font avec classe.
+— Ils surveillent les bois, répondit Raoul.
 
-Nino se mit instinctivement à parler plus doucement.
+Le premier samouraï s'arrêta. Un oiseau venait de quitter brusquement un fourré.
 
-— Tu crois qu'on peut faire une photo ?
-
-— Non.
-
-— Une toute petite ?
-
-— Non.
-
-Ils observèrent encore quelques instants.
-
-Le paysage était magnifique. Tout invitait à s'enfoncer vers les villages, à comprendre qui vivait dans le château et pourquoi certains hommes portaient des sabres.
-
-Mais leur mission ne consistait pas à commencer une nouvelle aventure.
-
-— On rentre, dit Raoul.
-
-Nino hésita.
-
-— Tu sais que c'est complètement fou ? On vient de voir le Japon d'une autre époque et on repart comme si on avait raté notre bus.
-
-— On reviendra peut-être.
-
-Nino regarda une dernière fois le château.
-
-— J'espère.
-
-Ils franchirent la porte dans l'autre sens et retrouvèrent la grotte de l'île maudite.
+Quatre hommes surgirent de part et d'autre du chemin.
 
 ***
 
-Le second monde les déconcerta plus que tous les précédents.
+La violence fut brève.
 
-Ils émergèrent dans un passage parfaitement éclairé, sans lampes visibles, devant une ville dont les bâtiments semblaient flotter les uns au-dessus des autres. Des surfaces lumineuses changeaient de couleur. Des véhicules circulaient dans un silence étrange. Les vêtements des passants avaient des formes que Nino n'arrivait même pas à décrire.
+Le premier samouraï repoussa la famille vers un arbre, dégaina et détourna la lame d'un assaillant. Son geste était d'une précision presque irréelle. L'homme tomba avant d'avoir compris comment il avait perdu l'avantage.
 
-Il s'arrêta net.
+Le deuxième guerrier intercepta deux bandits à la fois. Un pas de côté, un mouvement net du sabre, puis une seconde riposte. L'un lâcha son arme. L'autre s'effondra, incapable de poursuivre.
 
-— Je retire ce que j'ai dit sur le Japon.
+Trois adversaires étaient hors de combat.
 
-Raoul fixait une machine qui venait de glisser près d'eux sans roue apparente.
+Nino, fasciné, n'avait presque pas respiré.
 
-— On est où ?
+Il n'y avait ni grands cris ni gestes destinés à impressionner. Chaque mouvement avait un but, une vitesse, une élégance que les films ne lui avaient jamais vraiment montrées.
 
-— Je crois qu'on est beaucoup plus tard que chez nous.
+Le quatrième bandit avait contourné les deux samouraïs. Il se dirigeait vers le père de famille, sa lame à la main.
 
-Nino sortit son téléphone.
+Il passa tout près de la cachette de Raoul et Nino, le dos tourné. Il ne les avait pas vus.
 
-L'écran fonctionnait.
+Raoul jaillit et lui lança un coup de pied chassé.
 
-Il regarda la date.
+L'homme fut projeté vers l'avant, lâcha sa lame et tomba lourdement. Le premier samouraï se précipita pour le maîtriser vivant.
 
-— Ça n'aide pas.
+Un silence incrédule suivit.
 
-Ils avancèrent prudemment jusqu'à une zone où plusieurs personnes échangeaient des objets et des services. Rien ne ressemblait aux boutiques qu'ils connaissaient, mais ils finirent par comprendre qu'il s'agissait d'un lieu de commerce.
+Nino sortit du talus.
 
-Raoul sortit une pièce d'or.
+— J'étais en train d'admirer un combat exceptionnel !
+— Et moi, j'essayais d'empêcher un meurtre, répondit Raoul.
+— Oui, bon. Tu aurais pu prévenir avant d'entrer en scène.
 
-Il la présenta à une commerçante.
+Le samouraï qui tenait le prisonnier adressa à Raoul un salut discret.
 
-Elle l'examina d'un air amusé, puis la lui rendit.
-
-— C'est joli, dit-elle, mais ce matériau n'a pas de valeur d'échange ici.
-
-Nino crut avoir mal entendu.
-
-— Comment ça, pas de valeur ?
-
-La femme désigna la pièce.
-
-— Vous pouvez en obtenir autant que vous voulez avec les procédés ordinaires. Pourquoi vous donnerais-je quelque chose pour ça ?
-
-Raoul rangea lentement l'or.
-
-— Il faut repartir.
-
-— Attends.
-
-— Notre seul moyen de paiement ne sert à rien.
-
-— Je réfléchis.
-
-Ils essayèrent encore deux endroits. Le résultat fut le même. L'or intéressait à peine les habitants, sinon comme un métal banal.
-
-Raoul regarda la porte qu'ils avaient laissée derrière eux.
-
-— On ne va pas faire le tour de cette ville sans ressources.
-
-Nino acquiesça.
-
-Puis il baissa les yeux vers son téléphone.
-
-Il regarda l'écran.
-
-Puis les passants.
-
-Puis l'écran à nouveau.
-
-Un sourire apparut sur son visage.
-
-— J'ai une idée.
-
-Raoul se méfia immédiatement.
-
-— Non.
-
-— Tu ne sais pas ce que c'est.
-
-— Justement.
-
-— Mon téléphone.
-
-— Quoi, ton téléphone ?
-
-Nino le lui montra.
-
-— Chez nous, c'est le dernier modèle. Ici, c'est sûrement un objet très ancien.
-
-Raoul resta immobile.
-
-— Tu veux vendre un appareil qui ne capte même pas leur réseau ?
-
-— Ce n'est pas un appareil qu'on vend. C'est une antiquité.
-
-Raoul le regarda plus attentivement.
-
-Pour la première fois depuis leur départ, il ne trouva rien à répondre.
+Raoul le lui rendit.
 
 ***
 
-Il leur fallut encore du temps pour trouver quelqu'un qui s'intéressait réellement aux objets anciens.
+Le chef de famille se nommait Masanori. Il s'occupait de conserver et d'authentifier des actes relatifs aux terres de plusieurs villages : un métier que Nino décrivit aussitôt comme celui d'un notaire.
 
-L'homme qui les reçut était un collectionneur. Il tenait une petite galerie où étaient exposés des objets du passé : instruments, plaques, jouets, pièces de machines et appareils que Nino reconnaissait parfois sans comprendre pourquoi quelqu'un voudrait les conserver.
+L'homme capturé prétendit d'abord être un brigand. Mais son récit ne résista pas à l'interrogatoire. Les quatre agresseurs avaient été payés pour tuer Masanori, sous les apparences d'un banal vol de grand chemin.
 
-Le collectionneur examina le téléphone.
+Le seigneur local convoitait des terres dont les registres conservés par Masanori contredisaient les prétentions.
 
-Il demanda d'où il venait.
+— On veut supprimer l'homme qui garde les preuves, résuma Raoul.
+— C'est cela, répondit Masanori.
 
-Nino répondit qu'il l'avait acheté récemment.
+Nino observa le prisonnier.
 
-Le collectionneur leva les yeux.
+— Les époques changent. Certaines méthodes commerciales, beaucoup moins.
 
-— Récemment ?
+Masanori les invita dans sa demeure. Raoul voulut refuser : ils étaient venus en reconnaissance, pas pour participer à une affaire politique. Mais la nuit approchait, et la famille insistait pour leur offrir un repas et un toit.
 
-— À mon époque.
-
-L'homme s'arrêta de respirer une seconde.
-
-Il demanda à voir l'appareil fonctionner.
-
-Nino déverrouilla l'écran.
-
-Une photographie des quatre amis, prise bien avant la découverte du portail, apparut.
-
-Le collectionneur fixa l'image.
-
-Puis il examina les bords de l'appareil, ses composants visibles, sa conception.
-
-— C'est un modèle authentique.
-
-— Le dernier cri, confirma Nino.
-
-— Il est dans un état remarquable.
-
-— Il a quand même pris un peu de sable.
-
-Le collectionneur ne l'écoutait déjà plus.
-
-Il lui proposa un montant que Nino ne sut pas comparer à quoi que ce soit.
-
-Raoul fit remarquer que cette somme devait avoir un équivalent utilisable dans la ville.
-
-Le collectionneur accepta de leur fournir un moyen d'échange local.
-
-Nino hésita.
-
-Ce téléphone contenait des photographies, des messages, des souvenirs. Depuis qu'ils avaient commencé à traverser des époques, il avait été son seul objet vraiment personnel.
-
-Raoul le remarqua.
-
-— Tu n'es pas obligé.
-
-Nino regarda son écran.
-
-La photo des amis était encore là.
-
-— On peut peut-être rentrer chez nous grâce à cette découverte. Et si on ne trouve pas le chemin, il faut au moins revenir avec quelque chose d'utile.
-
-Il éteignit l'appareil.
-
-— D'accord.
-
-Le collectionneur le prit avec le soin réservé à un objet unique.
+Nino trouva la proposition tout à fait raisonnable.
 
 ***
 
-Ils n'avaient pas assez de temps pour découvrir toute la société futuriste.
+La demeure était paisible, entourée d'un jardin de pierres et d'arbres entretenus avec soin. Les portes coulissantes s'ouvraient sur des pièces dont les sols étaient couverts de tatamis.
 
-Raoul insista pour qu'ils ne s'éloignent pas davantage du passage. Dans la zone commerciale voisine, ils remarquèrent un équipement de protection portatif qui paraissait ordinaire à ceux qui le vendaient.
+On leur indiqua où laisser leurs chaussures, comment prendre place, comment saluer.
 
-Pour Nino et son compagnon, c'était un objet de science-fiction.
+Nino s'appliqua tellement à imiter les gestes de ses hôtes qu'il salua trois fois la même personne.
 
-Sa forme compacte et son étrange matière ne permettaient pas de comprendre immédiatement ses capacités.
+Raoul murmura :
 
-— C'est une arme ? demanda Nino.
+— À ce rythme, tu vas finir par t'incliner devant les meubles.
+— Je respecte la tradition.
+— Tu fatigues surtout tes genoux.
 
-Le vendeur confirma qu'il s'agissait d'un ancien dispositif défensif, aujourd'hui dépassé par des technologies plus récentes.
+On leur servit du thé et un repas présenté avec une délicatesse qui força Nino à ralentir ses mouvements. Un morceau de nourriture lui échappa des baguettes et disparut dans sa manche. Il préféra ne pas interrompre la cérémonie pour le récupérer.
 
-Raoul l'examina sans prétendre en maîtriser le fonctionnement.
+Raoul échangea quelques mots avec les deux samouraïs. Ils ne partageaient pas les mêmes armes ni les mêmes méthodes, mais reconnaissaient l'importance de la discipline et du sang-froid.
 
-— On ne sait même pas de quoi c'est capable.
+Le plus jeune enfant de Masanori lui demanda comment il avait appris son coup de pied.
 
-— C'est justement pour ça qu'il faudra être prudent, répondit Nino.
+— En ratant beaucoup d'autres coups de pied, répondit Raoul.
 
-Le prix correspondait à ce qu'ils pouvaient obtenir après leur échange.
-
-Ils quittèrent le monde futuriste avec une arme technologiquement très avancée pour leur époque, mais dont ils n'avaient pas encore compris les limites.
+Même les deux guerriers sourirent.
 
 ***
 
-De retour dans la salle de l'île maudite, Nino posa son sac.
+Le lendemain, Masanori leur fit visiter un petit sanctuaire sur ses terres.
 
-Raoul regarda l'objet qu'ils venaient d'acquérir.
+Deux statues anciennes gardaient l'entrée. La mousse recouvrait leurs socles. Nino s'arrêta devant l'une d'elles.
 
-— Tu as vraiment réussi.
+— Attends. Raoul, regarde ça !
 
-Nino sourit.
+Dans la pierre étaient gravées plusieurs lignes formant un cercle incomplet.
 
-— Quoi ?
+Raoul ouvrit le carnet confié par Savio.
 
-— Tu as trouvé un moyen de payer alors que notre or ne valait rien.
+— Ça ressemble à un des signes des portails.
+— On vient peut-être de trouver un autre morceau de leur histoire.
 
-— C'est le principe du commerce. Il faut vendre ce que l'acheteur veut.
+Nino prit plusieurs photographies avec son téléphone. Raoul recopia chaque tracé sur le papier, avec la position exacte de la marque et l'apparence de la statue.
 
-— Victor serait jaloux.
+— Pourquoi tu dessines tout ? demanda Nino.
+— Parce qu'un carnet n'a jamais besoin d'être rechargé.
 
-— Il faudra qu'on lui raconte.
+Masanori ignorait l'origine des inscriptions. Les statues étaient plus anciennes que les bâtiments actuels, voilà tout.
 
-Raoul contempla encore l'arme.
+Cette incertitude intéressa presque davantage Nino que les réponses qu'il avait espérées.
 
-— Tu as vendu ton téléphone pour ça.
+***
+
+Avant leur départ, la famille leur offrit un tantō, poignard traditionnel à la lame courte et au fourreau travaillé.
+
+Raoul hésita.
+
+— Nous ne pouvons pas accepter un cadeau pareil.
+— Vous avez aidé ma famille sans rien demander, répondit Masanori. Recevez-le comme le souvenir d'une maison où vous serez toujours les bienvenus.
+
+Raoul accepta avec respect. Il rangea soigneusement le poignard parmi leurs affaires.
+
+Ils saluèrent la famille et reprirent le chemin du passage.
+
+— On reviendra peut-être, dit Nino.
+— Peut-être. Pour l'instant, les autres ont besoin de nous.
+
+Ils retrouvèrent la seconde salle des portails.
+
+Raoul repéra l'ouverture de l'Égypte, mais ne la franchit pas. Ils avaient encore deux destinations à explorer avant de retourner auprès du groupe.
+
+Nino vérifia le carnet, le tantō et son téléphone.
+
+— Prochaine aventure.
+
+Et ils entrèrent dans la lumière.
+
+---
+
+
+## Chapitre 26 — Pendant leur absence
+
+En Égypte, le premier repas sans Raoul et Nino fut remarquablement calme.
+
+Malo observa la place vide près du feu.
+
+— Il manque quelque chose.
+— Les blagues ? proposa Solan.
+— Le bruit de quelqu'un qui explique qu'il mérite deux portions.
+
+Clara posa ses registres sur la table.
+
+— Profitez du calme. Nous avons du travail.
+
+Avec Dara, elle organisait les réserves de nourriture, les abris pour les familles et les déplacements possibles si les soldats occupaient les chemins.
+
+La décision de résister avait été prise collectivement. Mais elle ne faisait pas apparaître des vivres supplémentaires.
+
+Victor négociait avec les marchands des villages voisins. Certains refusaient de livrer quoi que ce soit tant que la situation restait dangereuse. D'autres réclamaient des prix impossibles.
+
+— Ils veulent tous savoir qui paiera si nous perdons, expliqua Victor.
+— Et si nous gagnons ? demanda Clara.
+— Ils reviendront avec des offres.
+
+Dara examina les réserves.
+
+— Alors nous devons d'abord compter sur nous-mêmes.
+
+***
+
+Julien rejoignit les habitants chargés de surveiller les routes.
+
+La plupart étaient cultivateurs ou bateliers. Ils connaissaient leur pays mieux que les étrangers, mais n'avaient pas l'habitude d'affronter des soldats professionnels.
+
+Un ancien lui demanda :
+
+— Tes compagnons reviendront avec des armes ?
+
+Julien regarda l'horizon.
+
+— Je l'ignore. Ils devaient reconnaître plusieurs passages. Nous devons préparer notre défense sans compter sur ce qu'ils pourraient rapporter.
+
+Ce n'était pas la réponse que l'homme espérait.
+
+C'était pourtant la seule honnête.
+
+Des messagers continuaient d'arriver. Deux communautés souhaitaient rejoindre les réunions de Dara. Une troisième préférait attendre. Une quatrième craignait d'être punie si elle prenait parti.
+
+Clara s'irrita.
+
+— Ils voient bien ce qui se passe !
+— Ils ont le droit d'avoir peur, répondit Dara. Et de décider par eux-mêmes. Sinon, que défendons-nous ?
+
+Clara prit une feuille et rédigea une réponse respectueuse. Personne ne serait contraint de soutenir la rébellion.
+
+***
+
+Savio passait toujours une partie de ses journées dans les archives égyptiennes.
+
+Le scribe qui l'avait accueilli lui montrait des fragments anciens, des tracés qui ressemblaient parfois aux symboles des portails.
+
+— Vous pensez que cela représente un chemin ? demanda le vieil homme.
+— Peut-être. Ou une famille de signes. Ou des constructions semblables.
+— Vous avez donc trois hypothèses.
+— Pour l'instant.
+
+Il recopia un autre motif et le plaça à côté des dessins des arches.
+
+Quelque part, au-delà de l'île maudite, Raoul et Nino cherchaient peut-être des indices qui permettraient de départager ces hypothèses.
+
+Savio ne pouvait ni les joindre ni accélérer leur retour.
+
+Il continua donc de travailler.
+
+***
+
+Le soir, Dara réunit les représentants des communautés.
+
+Des patrouilles royales avaient été signalées plus près des villages. Un officier exigeait les noms des responsables du mouvement.
+
+— Nous ne lui donnerons pas une liste de familles à arrêter, déclara Dara.
+
+Un homme demanda s'il fallait attaquer le poste le plus proche.
+
+Julien intervint.
+
+— Pas sans préparation. Ils sont mieux armés et plus nombreux. Nous ne pouvons pas mettre tout le village en danger pour une démonstration.
+
+Dara approuva.
+
+La décision fut prise de protéger les provisions, de préparer des abris et de maintenir les contacts avec les autres communautés.
+
+Lorsqu'ils quittèrent la réunion, Clara retrouva son frère devant la route.
+
+— Tu t'inquiètes pour eux ?
+— Oui.
+— Moi aussi.
+
+Julien la regarda.
+
+— Et si leur reconnaissance dure plus longtemps que prévu ?
+
+Clara lui tendit les listes de provisions.
+
+— Alors on aura encore plus de choses à faire pendant leur absence.
+
+Le fleuve continuait de couler au pied du village.
+
+De l'autre côté des portails, les explorateurs poursuivaient leur voyage. Ici, ceux qui attendaient n'avaient pas le droit de rester immobiles.
+
+---
+
+
+## Chapitre 27 — Les pauvres d'un monde parfait
+
+De l'autre côté du deuxième passage, les voitures n'avaient plus de roues.
+
+Nino s'arrêta si brusquement que Raoul faillit lui rentrer dedans.
+
+Au-dessus d'eux, des véhicules silencieux circulaient entre les immeubles. Des jardins semblaient suspendus dans le vide. Les façades changeaient de couleur selon la lumière, et de petites machines glissaient sur les trottoirs en nettoyant le sol.
+
+— On est dans le futur, souffla Nino.
+— On dirait, répondit Raoul. Regarde surtout où se trouve notre porte.
+
+Ils repérèrent l'alcôve qui abritait leur passage, puis s'aventurèrent dans la ville.
+
+Nino suivit des yeux un véhicule qui montait presque à la verticale.
+
+— Ils ont inventé les voitures volantes.
+— Et nous, on n'a toujours pas trouvé le chemin de la maison.
+— Tu as un don pour gâcher les moments historiques.
+
+***
+
+Tout semblait se dérouler sans intervention humaine. Les transports s'arrêtaient à la demande. Les magasins ouvraient leurs vitrines aux passants. Les commandes apparaissaient derrière des cloisons transparentes.
+
+Lorsque Nino tenta d'acheter deux repas, une borne exigea son identité numérique.
+
+Il approcha sa main, puis son visage.
+
+« Identité non reconnue. »
+
+Il recommença.
+
+« Identité non reconnue. »
+
+Raoul sortit une petite pièce d'or.
+
+La machine l'examina.
+
+« Matériau commun. Valeur commerciale négligeable. »
+
+— Commun ? répéta Nino.
+— Ils savent probablement le produire en quantité.
+— Donc on a réussi à fabriquer de l'or, des voitures volantes, des robots... mais pas un sandwich pour deux types sans carte ?
+
+Une seconde borne leur opposa le même refus.
+
+Ils découvrirent vite qu'ici, sans identité enregistrée, personne ne pouvait payer, louer une chambre ou accéder aux services les plus ordinaires.
+
+***
+
+Un bâtiment portant des images de siècles anciens attira leur attention.
+
+Son hall, libre d'accès, abritait des vitrines d'objets historiques.
+
+Nino découvrit un vieux téléphone, des écouteurs, un briquet et une carte bancaire présentés comme des vestiges du XXIe siècle.
+
+Il éclata de rire devant une notice qui décrivait les cartes de paiement comme un système primitif de reconnaissance sociale.
+
+— Regarde ! Ils parlent de notre époque comme des hommes des cavernes.
+
+Raoul remarqua les prix affichés pour des reproductions de ces objets.
+
+— Les originaux doivent valoir cher.
+
+Nino sortit lentement son propre téléphone.
+
+— On est peut-être riches.
+
+Son sourire s'effaça légèrement lorsqu'il contempla l'écran éteint.
+
+Le téléphone contenait aussi les photos de leurs amis, de leur vie d'avant, et celles des symboles gravés sur la statue du Japon.
+
+Heureusement, Raoul avait recopié ces derniers dans le carnet de Savio.
+
+***
+
+À la sortie du musée, un garçon leur barra le chemin.
+
+Il avait une douzaine d'années, un manteau usé et un regard vif.
+
+— Vous avez quelque chose à manger ?
+
+Raoul se tourna vers une borne toute proche.
+
+— Pourquoi tu ne prends pas un repas là-bas ?
+
+Le garçon eut un sourire triste.
+
+— Pas d'identité.
+
+— Comment ça ?
+
+— J'en ai pas. Enfin, plus qui marche.
+
+Nino regarda les jardins suspendus et les appareils qui réparaient les trottoirs.
+
+— Vous avez des machines qui font absolument tout... et il y a encore des enfants qui ont faim ?
+
+— Les machines ne donnent rien à ceux qui n'existent pas, répondit le garçon.
+
+Il se nommait Ilan. Il vivait dans les quartiers laissés à l'écart des services automatiques.
+
+Lorsqu'ils lui demandèrent où vendre des antiquités authentiques, il examina le téléphone que Nino lui montrait.
+
+— Je connais un endroit. Mais il faut pas avoir peur de se salir.
+
+***
+
+Ilan les conduisit sous les plateformes brillantes de la ville.
+
+En dessous, la lumière se faisait rare. Des logements improvisés s'empilaient contre d'immenses piliers. Les robots d'entretien s'arrêtaient à la limite des quartiers reconnus.
+
+Des familles vivaient sans accès aux réseaux officiels. Certains adultes avaient perdu leurs droits numériques à cause de dettes. D'autres n'avaient jamais été enregistrés.
+
+Ilan gagnait de quoi aider sa mère et sa petite sœur en récupérant des appareils cassés et, parfois, en volant de petites babioles aux habitants des secteurs riches.
+
+Raoul vit dépasser de sa poche un objet manifestement pris ailleurs.
+
+— Tu l'as volé ?
+— À quelqu'un qui en avait cinq autres.
+
+Raoul ne sembla pas convaincu, mais il renonça à lui faire la morale.
+
+— Conduis-nous chez ton marchand.
+
+***
+
+Le magasin était dissimulé derrière un atelier de réparation, dans une ruelle où aucune caméra ne semblait encore fonctionner.
+
+Un homme aux doigts tachés de graisse électronique releva la tête.
+
+— Encore toi, Ilan ? Qu'est-ce que tu m'apportes aujourd'hui ?
+
+Son regard glissa vers les deux étrangers.
+
+— Des clients, dit le garçon. Ceux-là ont quelque chose d'intéressant.
+
+Le commerçant se faisait appeler Voss.
+
+Sa boutique débordait d'appareils démontés, de pièces anciennes et de machines dont Nino ne comprenait même pas l'utilité.
+
+Derrière le comptoir se tenait un petit personnage métallique, à peine plus grand qu'un enfant. Il avait deux jambes, des mains articulées et un visage de surfaces lumineuses.
+
+— Bienvenue, annonça-t-il. Je dois vous avertir que mon propriétaire a fait l'objet de cinquante-trois contestations commerciales non résolues.
+
+— Tais-toi ! ordonna Voss.
+
+Nino resta bouche bée.
+
+— Il vient vraiment de dire ça ?
+
+— Un vieux modèle. Complètement dépassé. Il comprend une chose sur deux et parle trop.
+
+La machine inclina la tête.
+
+— Je confirme l'ancienneté du modèle. Je conteste le reste de cette affirmation.
+
+Nino éclata de rire.
+
+— Mais il est incroyable !
+
+Voss lui adressa un regard plus attentif.
+
+Il venait de comprendre qu'il pourrait peut-être lui vendre autre chose.
+
+***
+
+Le marchand examina le téléphone.
+
+Il prétendit d'abord qu'il s'agissait d'une reproduction grossière. Nino cita la description qu'il venait de lire au musée.
+
+Voss passa alors l'appareil dans une machine d'analyse. Il vérifia les matériaux, les composants, la datation.
+
+Son expression changea.
+
+— Où avez-vous trouvé ça ?
+— Dans ma poche, répondit Nino.
+
+Le petit assistant s'approcha.
+
+— Estimation historique : appareil potentiellement authentique. L'offre initiale envisagée par mon propriétaire serait particulièrement défavorable au vendeur.
+
+— Tais-toi, toi aussi ! s'écria Voss.
+
+Ilan ricana.
+
+Nino avait désormais compris le jeu du marchand. Il sortit également quelques objets ordinaires de sa propre époque : un briquet, un trousseau de clés et de petits accessoires.
+
+La négociation fut longue. Raoul exigea une contrepartie réelle, pas seulement des crédits inutilisables sans identité numérique.
+
+Ilan connaissait les boutiques qui acceptaient les moyens de paiement du marché parallèle.
+
+— Il essaie de vous avoir, souffla-t-il à plusieurs reprises.
+
+Voss n'appréciait pas ses interventions, mais ne pouvait pas nier la valeur du téléphone.
+
+***
+
+Dans une arrière-salle, Voss leur montra du matériel jugé obsolète.
+
+Nino s'arrêta devant un long manteau militaire futuriste. Sa matière sombre présentait des lignes lumineuses et une coupe impressionnante.
+
+Il l'enfila devant une surface réfléchissante.
+
+— Raoul. Regarde-moi.
+— Je te vois.
+— Je ressemble à un général de l'espace !
+
+Le petit assistant intervint aussitôt.
+
+— L'apparence est effectivement compatible avec un officier. Aucune compétence de commandement n'a cependant été identifiée.
+
+— Je l'adore, déclara Nino.
+
+Voss sourit.
+
+Le manteau abritait un dispositif de bouclier défensif alimenté par un système solaire extrêmement avancé. Sa protection pouvait tenir une minute au maximum, mais le système ne pouvait être réactivé avant au moins une heure, à condition d'avoir assez d'énergie stockée.
+
+— Une minute seulement ? demanda Raoul.
+— Une minute qui pourrait vous sauver la vie, répondit Voss.
+
+Le marchand expliqua que le robot utilisait une technologie similaire. Il emmagasinait la lumière durant la journée, puis passait en veille la nuit pour économiser ses réserves.
+
+— Tu veux dire qu'il n'a pas besoin de prise ? s'enthousiasma Nino.
+— Plus personne ne veut de cet ancien modèle, dit Voss. Je pourrais vous en débarrasser... contre un supplément.
+
+Raoul croisa les bras.
+
+— Vous voulez surtout vous en débarrasser, tout court.
+
+Le robot leva poliment la main.
+
+— Il est exact que mon propriétaire m'a proposé à dix-sept acheteurs précédents sans succès.
+
+Voss sembla sur le point d'exploser.
+
+***
+
+Finalement, Nino céda son téléphone et plusieurs antiquités contre le manteau, le petit assistant et une somme suffisante pour aider Ilan.
+
+Il posa une condition : une partie substantielle de l'échange serait immédiatement consacrée à des provisions, des vêtements et des ressources utilisables dans les commerces indépendants du quartier, pour le garçon et sa famille.
+
+Voss accepta à contrecœur. Raoul contrôla les livraisons avant de conclure.
+
+Ilan contemplait les caisses.
+
+— Vous faites ça pour moi ?
 
 Nino haussa les épaules.
 
-— Il était déjà vieux.
+— Tu nous as trouvé un acheteur alors que personne ne voulait de notre or. Tu mérites ta commission.
 
-— Tu l'avais depuis quelques jours.
+Le garçon voulut répondre, mais les mots lui manquèrent.
 
-— Oui, mais on était dans le futur.
+Avant de remettre son téléphone, Nino le ralluma une dernière fois.
 
-L'ancien militaire se mit à rire.
+Il regarda les photos de ses amis, les visages qu'il ne savait pas encore s'il reverrait dans leur siècle. Il s'attarda sur les images du Japon, puis vérifia que les dessins étaient bien conservés dans le carnet.
 
-Nino resta immobile.
+Raoul posa une main sur son épaule.
 
-— Attends. Tu as ri ?
+— On peut encore renoncer.
 
-— Non.
+Nino éteignit l'appareil.
 
-— Si.
+— Non. Il nous a rendu service pendant des années. Maintenant, il va nous aider une dernière fois.
 
-— C'est le bruit de la grotte.
+***
 
-— Tu as ri à une de mes blagues.
+Ilan les raccompagna vers la partie supérieure de la ville.
 
-Raoul reprit la marche.
+Le petit assistant marchait près de Nino. Il avait accepté de quitter Voss avec une politesse qui confinait à l'enthousiasme.
 
-— Il nous reste une troisième porte.
+— Tu as un nom ? demanda Nino.
+— Désignation de série : assistant polyvalent modèle...
+— Non. Un vrai nom.
 
-Nino le suivit, heureux comme il ne l'avait plus été depuis longtemps.
+Nino réfléchit quelques secondes.
 
-Ils n'avaient toujours pas trouvé le présent.
+— Thuggy.
 
-Mais, grâce à lui, ils ne revenaient pas les mains vides.
+Le robot inclina la tête.
+
+— Ce nom n'appartient pas à ma nomenclature d'origine.
+— Maintenant, si.
+
+Un signal lumineux traversa son visage.
+
+— Enregistrement effectué. Je suis Thuggy. Ravi de faire votre connaissance.
+
+Raoul regarda Nino.
+
+— Tu viens de baptiser une machine qui passe son temps à nous contredire.
+— C'est exactement pour ça qu'on va bien s'entendre.
+
+Ilan éclata de rire.
+
+Après lui avoir dit adieu, ils retrouvèrent l'alcôve de leur portail.
+
+Raoul vérifia le chemin. Il distinguait toujours l'emblème de l'Égypte, mais ils n'avaient pas terminé leur reconnaissance.
+
+Nino serra son nouveau manteau autour de lui.
+
+— Deux mondes. Un sabre magnifique, un robot et une armure. Et toujours pas les armes dont on a besoin.
+
+Thuggy leva la main.
+
+— Je peux fournir une liste historique des méthodes d'acquisition d'armements.
+
+— Pas maintenant ! répondirent les deux hommes ensemble.
+
+Ils franchirent la porte suivante.
 
 ---
 
-## Chapitre 26 — Au pays où l'or commande
 
-La première chose que Nino vit fut un cheval.
+## Chapitre 28 — Des décisions sans renforts
 
-La deuxième, une enseigne au-dessus d'un bâtiment de bois.
+Le deuxième soir sans nouvelles de Raoul et Nino, Julien dormit très peu.
 
-La troisième, un homme qui crachait dans la poussière avec la conviction de faire partie d'un grand spectacle.
+Il ne pouvait ni les appeler ni savoir dans quel monde ils se trouvaient. La seconde salle des portails était à l'écart, au-delà du passage de l'île maudite, et les explorateurs avaient promis de ne revenir qu'après avoir terminé leurs reconnaissances.
 
-— Non, dit Nino.
+Au matin, Clara le trouva devant les cartes.
 
-Raoul s'arrêta.
+— Toujours aucune nouvelle ?
+— Comment veux-tu qu'on en ait ?
+— Alors viens m'aider. Ça nous changera tous les deux les idées.
 
-— Quoi ?
+***
 
-— On ne peut pas être là.
+Les soldats royaux avaient renforcé les contrôles sur les routes.
 
-Au bout de la rue, des maisons basses bordaient une voie de terre. Une charrette avançait lentement. Deux hommes portaient de larges chapeaux. Un piano jouait derrière la porte battante d'un saloon.
+Dara apprit qu'un officier exigeait la liste des familles ayant participé aux réunions du village. Elle refusa de la fournir.
+
+— Il reviendra, l'avertit un homme.
+— Alors il entendra la même réponse.
+
+Clara surveillait la distribution des provisions. Malo et Solan préparaient des embarcations légères pour transporter les réserves si certaines voies devenaient trop dangereuses.
+
+Julien inspectait les chemins avec les habitants.
+
+Ils savaient où ralentissait le fleuve, quels canaux pouvaient être franchis et quels villages risquaient d'être isolés. Les connaissances locales valaient bien davantage qu'un discours prononcé depuis un pays étranger.
+
+Mais aucune de ces précautions ne suffirait, à elle seule, à repousser l'armée du pharaon.
+
+***
+
+Au palais, le souverain avait appris qu'une communauté refusait de livrer les travailleurs demandés.
+
+— Ils ont refusé ? répéta-t-il.
+
+L'officier courba la tête.
+
+— Plusieurs villages ont protesté, Majesté.
+
+Le pharaon ordonna de mobiliser davantage d'hommes et d'assurer le contrôle des entrepôts et des voies du fleuve.
+
+Certains gouverneurs hésitèrent. Les réquisitions étaient coûteuses, les récoltes déjà incertaines, et la perspective d'une guerre contre des familles désarmées ne soulevait pas l'enthousiasme.
+
+Personne ne contesta encore ouvertement le souverain.
+
+Pourtant, le premier doute venait de s'installer.
+
+***
+
+Savio travaillait toujours avec le scribe des archives.
+
+Il avait classé ses dessins des portails selon la forme des lignes, puis essayé de les rapprocher des fragments trouvés dans les collections égyptiennes.
+
+— Tu progresses ? demanda Victor, qui vint le rejoindre.
+— J'ai isolé trois motifs qui pourraient appartenir à une même série.
+— Ils conduisent où ?
+— C'est justement ce que j'ignore.
+
+Victor contempla les feuilles éparpillées.
+
+— Tu as travaillé deux jours pour découvrir qu'il te manque des informations ?
+— Non. J'ai découvert quelles informations il me manque.
+
+Victor secoua la tête.
+
+— Tu es vraiment fait pour ça.
+
+Savio aurait donné beaucoup pour disposer d'une machine capable de comparer rapidement toutes les inscriptions. Mais ses seuls outils restaient le papier, les crayons et la patience du scribe.
+
+Il continua.
+
+***
+
+Dara réunit les représentants des familles lorsqu'on annonça l'approche de nouvelles patrouilles.
+
+Une femme demanda s'il fallait aller délivrer des proches travaillant près d'un poste royal.
+
+Un ancien craignit qu'une attaque précipitée attire les représailles sur tout le village.
+
+Clara prit la parole.
+
+— Nous pouvons protéger les gens qui s'enfuient. Nous pouvons préparer des abris et des provisions. Mais nous ne devons pas leur promettre une victoire que nous ne savons pas obtenir.
+
+Dara acquiesça.
+
+La décision fut prise d'envoyer des messagers et d'organiser l'accueil des familles, sans provoquer immédiatement une bataille.
+
+Julien quitta la réunion en regardant l'horizon.
+
+Il espérait que Raoul et Nino avaient trouvé quelque chose d'utile.
+
+Il savait pourtant qu'ils ne seraient pas là pour prendre les prochaines décisions.
+
+Le village devrait tenir jusqu'à leur retour.
+
+---
+
+
+## Chapitre 29 — Le saloon et la mine aux armes
+
+La troisième porte débouchait sur une ville traversée par une rue poussiéreuse.
+
+La première chose que Nino aperçut fut un cheval. La deuxième, un homme coiffé d'un chapeau immense. La troisième, les portes battantes d'un bâtiment au-dessus duquel on lisait : SALOON.
+
+Il s'immobilisa.
+
+— Raoul.
+— J'ai vu.
+— On est dans un western.
+— On a surtout du travail.
+
+Thuggy observa un cheval attelé à une charrette.
+
+— Moyen de transport terrestre biologique. Niveau de confort théorique : médiocre.
+
+Raoul le tira doucement à l'écart.
+
+— Et si tu évitais de te faire écraser avant de nous donner ton avis ?
+
+***
+
+À l'intérieur du saloon, un piano accompagnait les conversations. Des hommes jouaient aux cartes. La fumée montait vers les lampes suspendues.
+
+Nino poussa les portes avec un plaisir enfantin.
+
+Raoul se rendit au comptoir.
+
+— On cherche une chambre et de quoi manger pendant quelques jours.
+
+Il posa une petite pièce d'or.
+
+Le tenancier la fit tourner entre ses doigts, la soupesa et regarda les deux voyageurs avec un intérêt soudain.
+
+— Avec ça, messieurs, vous aurez de quoi rester confortablement.
+
+Nino se pencha vers Raoul.
+
+— Dans le futur, on n'achetait même pas un sandwich avec ça.
+— Ici, essaie de ne pas acheter le saloon entier.
+
+Ils commandèrent à manger.
+
+Thuggy, enveloppé dans un manteau trop grand pour lui, resta près de la table. Une serveuse lui proposa un plat.
+
+— Je fonctionne principalement à l'énergie solaire, madame.
+
+Nino toussa.
+
+— Il veut dire qu'il a déjà mangé.
+
+La serveuse les regarda avec méfiance avant de s'éloigner.
+
+***
+
+Raoul interrogea discrètement le tenancier.
+
+Il leur fallait plusieurs caisses d'armes, et vite. En Égypte, les familles qui leur avaient fait confiance ne pourraient pas attendre éternellement.
+
+Le patron secoua la tête.
+
+— L'armurier du coin n'a pas de quoi équiper une troupe. Il faut voir les marchands de convois.
+
+Une voix s'éleva derrière eux.
+
+— Vous cherchez une cargaison ?
+
+Un homme à la table de poker posa ses cartes.
+
+Il se nommait Silas Reed. Il avait la peau tannée par le soleil, les mains solides et le regard de ceux qui ont passé davantage de temps sur les routes que dans les maisons.
+
+— Je connais un marchand qui possède les armes que vous cherchez, expliqua-t-il. Ou plutôt, qui les possédait.
+
+Quelques jours plus tôt, un convoi avait été attaqué dans les collines. Les bandits avaient pris les chariots, les caisses et le jeune frère de Silas, Elias, qui accompagnait la livraison.
+
+Silas avait suivi leur piste jusqu'à une mine abandonnée.
+
+— Si vous m'aidez à ramener mon frère et la cargaison, je vous présenterai au propriétaire. Il vous vendra ce qu'il vous faut. Je m'en porte garant.
+
+Raoul l'observa.
+
+— Combien sont-ils ?
+— Je ne sais pas.
+— Où gardent-ils ton frère ?
+— Je ne sais pas.
+— Tu connais au moins l'emplacement exact de la mine ?
+— Oui.
+— C'est déjà ça.
+
+Nino leva un doigt.
+
+— Je constate qu'on a de l'or, un guide et beaucoup de questions. C'est un progrès.
+
+***
+
+Le lendemain, Silas les conduisit chez un marchand de vêtements d'occasion.
+
+— On repère des étrangers habillés comme vous de l'autre côté d'une rue, expliqua-t-il. Dans les collines, il faut pouvoir marcher, monter et ne pas attirer les regards.
+
+Raoul acheta de solides bottes, une chemise, un chapeau et un long manteau de poussière.
+
+Quand il ressortit, Nino le contempla sans parvenir à cacher son enthousiasme.
+
+— Attends... tourne-toi.
+— Non.
+— Tu ressembles à un vrai cow-boy !
+— Ce sont des vêtements de travail.
+— C'est exactement ce que dirait un vrai cow-boy.
+
+Raoul tira légèrement sur le bord de son chapeau.
+
+— Si tu continues, tu rentres à pied.
+
+Nino se procura une veste pour dissimuler son manteau militaire futuriste. Le tissu sombre et ses lignes lumineuses auraient attiré trop de regards.
+
+Thuggy fut recouvert d'un petit poncho et coiffé d'un chapeau adapté à sa taille. À distance, on pouvait le prendre pour un enfant.
+
+Silas contempla leur étrange trio.
+
+— Le petit parle toujours aussi bizarrement ?
+
+Thuggy répondit aussitôt :
+
+— Je m'exprime conformément aux règles de courtoisie de ma génération.
+
+— Il est très bien élevé, improvisa Nino.
+
+Silas décida de ne plus poser de questions.
+
+***
+
+Ils partirent à cheval.
+
+Nino découvrit rapidement qu'aucun des chevaux ne souhaitait jouer un rôle dans son rêve de western.
+
+— Le mien me déteste, assura-t-il après un soubresaut.
+— Il a du jugement, répondit Raoul.
+
+Thuggy, qui avait passé la journée à accumuler de l'énergie lumineuse et à observer le trajet, ne cessait de proposer des commentaires inutiles sur la vitesse des montures.
+
+À l'approche des collines, Raoul imposa le silence.
+
+La mine se trouvait dans un repli du terrain, entourée de roches rouges. Quelques cabanes de bois encadraient une galerie abandonnée. Deux chariots étaient rangés près d'un enclos.
+
+Silas voulut descendre immédiatement.
+
+Raoul lui barra le passage.
+
+— On attend la nuit. On regarde combien ils sont, où se trouve Elias et ce qu'on peut espérer sortir de là.
+
+Ils patientèrent sur une hauteur jusqu'à ce que les feux du camp diminuent.
+
+***
+
+La nuit était presque complète lorsque Raoul prit la parole.
+
+— On voit des sentinelles. Mais pas assez pour savoir combien dorment dans les bâtiments.
+
+Silas montra la cabane la plus éloignée.
+
+— Mon frère pourrait être là.
+
+Nino regarda son petit assistant.
+
+— Thuggy, tu n'as pas quelque chose pour nous aider ?
+
+Le robot pencha légèrement la tête.
+
+— Analyse des présences et des matériaux disponible. Attention : ce module est considéré comme obsolète depuis deux siècles.
+
+— Encore mieux. Il a eu le temps de faire ses preuves.
+
+Une faible lumière se forma dans l'air devant eux.
+
+Un plan du camp apparut, traversé de points lumineux.
+
+Silas recula d'un pas.
+
+— Bon Dieu... qu'est-ce que c'est ?
+
+Raoul s'approcha malgré lui.
+
+— Tu peux nous dire combien il y a d'hommes ?
+
+— Plusieurs signatures corporelles détectées. Une majorité présente une activité compatible avec le sommeil. Quelques présences restent mobiles autour des bâtiments.
+
+Sur le plan, des zones s'éclairèrent.
+
+— Une signature isolée demeure immobile près de la cabane orientale. Position des membres inhabituelle. Hypothèse : personne retenue, blessée ou endormie dans une posture contrainte.
+
+Silas se pencha aussitôt.
+
+— Elias...
+
+Thuggy poursuivit.
+
+— Concentration élevée de matière métallique dans le chariot central. Objets de formes régulières, entreposés en série.
+
+Nino donna un petit coup de coude à Raoul.
+
+— Bingo.
+
+— Ça pourrait être les caisses, répondit Raoul. On vérifie avant de se réjouir.
+
+— Précision acceptée, dit Thuggy. Je détecte des matériaux, pas leur propriété juridique ni leur destination.
+
+— Merci, professeur, murmura Nino.
+
+***
+
+Les trois hommes se rapprochèrent suffisamment pour observer le camp sans se montrer.
+
+Silas aperçut enfin un prisonnier attaché sous un auvent.
+
+Un instant, il resta incapable de parler.
+
+— C'est lui.
+
+Les caisses du chariot portaient aussi les marques du convoi disparu.
+
+Raoul regarda le jeune homme ligoté, puis les bandits endormis autour du feu.
+
+— D'abord ton frère. Les armes ensuite, si on peut.
+
+Silas acquiesça.
+
+Ils profitèrent de l'obscurité et de la faible vigilance du camp. Quelques minutes semblèrent durer une éternité.
+
+Puis Raoul reparut avec Elias, épuisé mais capable de marcher. Silas le serra contre lui.
+
+— Tu en as mis du temps, souffla Elias.
+— Tu as choisi un drôle d'endroit pour m'attendre.
+
+Il restait une difficulté : faire partir le chariot chargé d'armes sans réveiller tous les bandits.
+
+***
+
+Les chevaux commencèrent à avancer. Les roues grincèrent sur le sol irrégulier.
+
+Nino retint son souffle.
+
+Ils avaient presque atteint le chemin lorsque Thuggy se redressa brusquement.
+
+— Félicitations ! Opération de récupération accomplie avec succès !
+
+La voix résonna entre les cabanes.
+
+Nino se précipita sur lui.
+
+— MAIS CHUT !
+
+Une porte claqua.
+
+— Hé ! Qui est là ?
+
+Silas lança les chevaux.
+
+Le chariot bondit sur la piste tandis que des cris éclataient derrière eux. Plusieurs cavaliers se mirent en mouvement.
+
+Nino fut projeté contre une ridelle et s'y cramponna.
+
+— Je croyais qu'on avait un robot intelligent !
+— Je suis intelligent, répondit Thuggy. Mon protocole de célébration sonore a toutefois été mal calibré.
+
+Le canyon se remplit de poussière. Raoul aidait Silas à maîtriser l'attelage. Elias, étendu à l'arrière, essayait de protéger sa tête des secousses.
+
+Les poursuivants gagnèrent du terrain, puis le perdirent dans un passage rocheux où le chariot souleva un nuage épais. Une roue heurta une pierre. Nino poussa un cri dont Thuggy proposa immédiatement une interprétation médicale.
+
+— Pas maintenant ! hurla-t-il.
+
+Ils retrouvèrent enfin une route plus large.
+
+Lorsque les bruits de poursuite s'éloignèrent, Silas ralentit.
+
+Le silence revint peu à peu.
+
+Raoul regarda Thuggy.
+
+— Plus aucune félicitation avant l'arrivée.
+— Consigne enregistrée.
+— Et pas de commentaires.
+— Consigne également...
+
+— Pas de commentaires !
+
+Thuggy se tut.
+
+Nino souffla.
+
+— Ça lui arrive, finalement.
+
+***
+
+De retour en ville, le propriétaire de la cargaison embrassa presque Elias, puis son frère, puis ses caisses. L'ordre exact de ses émotions restait difficile à établir.
+
+Silas tint parole.
+
+Raoul et Nino purent acheter plusieurs caisses de fusils et de munitions contre une partie de leur or. Le marchand accepta de répartir le matériel en colis assez petits pour être portés à bras d'homme.
+
+Ils firent déposer le chargement près d'une piste isolée, non loin de l'endroit où se trouvait leur passage secret.
+
+Les convoyeurs repartirent sans voir l'entrée.
+
+Nino contempla les caisses.
+
+— Tu es sûr qu'on va porter tout ça ?
+— Pas en une fois.
+— On ne peut pas louer un cheval pour passer le portail ?
+— Tu veux expliquer au cheval où se trouve l'Égypte ?
+
+Thuggy leva la main.
+
+— Mes capacités de manutention sont limitées.
+
+— Toi aussi, tu choisis bien ton moment, dit Nino.
+
+Ils effectuèrent plusieurs traversées entre la piste et l'arche, chaque homme portant une caisse à la fois. Les colis passaient sans difficulté dans l'ouverture, contrairement au chariot qui les avait transportés jusque-là.
+
+Silas, qui les avait aidés jusqu'à la piste sans découvrir le secret du portail, leur serra une dernière fois la main.
+
+— Vous avez sauvé mon frère.
+— Et vous avez peut-être sauvé des gens que vous ne rencontrerez jamais, répondit Raoul.
+
+***
+
+Nino jeta un dernier regard aux collines.
+
+— Tu sais, j'aurais bien passé une semaine de plus ici.
+— En Égypte, ils n'en ont peut-être pas une à perdre.
+
+Raoul ajusta son chapeau, qu'il avait acheté et qu'il comptait garder.
+
+Ils revinrent dans la salle des portails avec le tantō japonais, le carnet de symboles, le manteau militaire futuriste, Thuggy et les caisses d'armes.
+
+Cette fois, Raoul se dirigea vers l'arche portant l'emblème de l'Égypte.
+
+— On rentre.
 
 Nino regarda son compagnon.
 
-— On est dans un western.
-
-Raoul observa le décor avec un intérêt plus pratique.
-
-— Oui.
-
-— Tu te rends compte ? Les films. Les chevaux. Les saloons. Les chapeaux.
-
-— Les ennuis.
-
-Nino hocha la tête.
-
-— Aussi. Mais avec des chapeaux.
-
-***
-
-Ils découvrirent rapidement une différence essentielle avec le monde futuriste.
-
-Ici, leur or intéressait tout le monde.
-
-Le premier commerçant à qui ils en montrèrent une pièce voulut en vérifier la nature. Raoul lui expliqua qu'ils disposaient d'une réserve plus importante et qu'ils cherchaient un moyen de se procurer des marchandises précises.
-
-L'homme ne sembla nullement impressionné par leur tenue, mais il se montra très intéressé par la bourse.
-
-Nino se pencha vers son compagnon.
-
-— Tu vois ? On aurait dû commencer par ici.
-
-— On n'avait aucune idée de ce qu'on trouverait.
-
-— C'est le problème des voyages organisés par une machine dont personne ne comprend la notice.
-
-Le commerçant revint avec une balance.
-
-— Vous voulez vendre votre or ?
-
-— Nous voulons acheter, répondit Raoul.
-
-L'homme désigna une rue voisine.
-
-— Alors allez voir les fournisseurs qui travaillent pour les convois. Et ne vous laissez pas impressionner par le premier prix annoncé.
-
-Nino regarda Raoul.
-
-— C'est un conseil de négociation.
-
-— J'ai entendu.
-
-— Je suis très fort en négociation.
-
-— Depuis ton téléphone, tu ne vas plus t'arrêter de le rappeler.
-
-— Exactement.
-
-***
-
-Le matériel recherché n'avait rien à voir avec l'arme du futur.
-
-Les armes du Western étaient des objets mécaniques, moins perfectionnés que ceux du XXIe siècle. Mais elles représentaient une puissance que les habitants de l'Égypte ancienne ne connaissaient pas.
-
-Raoul examina les conditions de la vente avec un calme d'homme qui reconnaissait un métier.
-
-Nino, lui, observait les visages.
-
-Le premier vendeur leur proposa un prix si élevé que Raoul en devint presque poli.
-
-— Nous allons réfléchir.
-
-Ils sortirent.
-
-Nino attendit quelques pas.
-
-— Tu crois qu'il nous prend pour des idiots ?
-
-— Il nous prend pour des étrangers pressés qui ont beaucoup d'or.
-
-— Ce n'est pas totalement faux.
-
-Raoul s'arrêta.
-
-— C'est pour ça qu'on ne doit pas lui donner raison.
-
-Ils rencontrèrent un autre marchand. Celui-ci posa des questions précises sur le volume souhaité, les délais et les moyens de transport. Il ne promit pas tout immédiatement.
-
-Nino remarqua qu'il répondait aux questions avant de parler du prix.
-
-Il se pencha vers Raoul.
-
-— Je préfère celui-là.
-
-— Pourquoi ?
-
-— Parce qu'il essaie de comprendre ce qu'on veut. L'autre essayait seulement de comprendre combien on pouvait payer.
-
-Raoul le regarda.
-
-— C'est une bonne observation.
-
-Nino se figea.
-
-— Deux compliments en deux mondes. On approche de la fin des temps.
-
-***
-
-Les heures suivantes furent consacrées à une transaction que Victor aurait rêvé de diriger.
-
-Raoul savait ce qu'il voulait éviter. Nino posait les questions inattendues. Ensemble, ils parvinrent à un accord pour plusieurs caisses de matériel d'armement de l'époque, sans prétendre disposer d'un arsenal illimité.
-
-Le commerçant les regarda au moment de conclure.
-
-— Vous partez loin ?
-
-— Assez, répondit Raoul.
-
-— Vous n'êtes pas d'ici.
-
-Nino regarda la rue poussiéreuse.
-
-— Ça se voit à ce point ?
-
-— Vous ne connaissez pas les routes, mais vous avez de l'or. C'est une combinaison dangereuse.
-
-Raoul acquiesça.
-
-— On apprend vite.
-
-Le commerçant leur fournit aussi de quoi acheminer la marchandise jusqu'à l'endroit convenu. Nino passa une partie du trajet à essayer de calmer un cheval qui le considérait manifestement comme une mauvaise idée.
-
-— Il me déteste, dit-il.
-
-Raoul regarda l'animal.
-
-— Il a du jugement.
-
-— Très drôle.
-
-— J'apprends.
-
-***
-
-Transporter les caisses jusqu'au passage fut plus compliqué que les acheter.
-
-Elles étaient lourdes. Certaines devaient être portées à deux. La lumière baissait, et Nino ne cessait de rappeler qu'il avait promis de rentrer avant que les autres ne commencent à s'inquiéter.
-
-Ils réussirent cependant à rejoindre le portail.
-
-Raoul vérifia le repère.
-
-— C'est le bon.
-
-Nino passa le premier, puis revint aider à déplacer le chargement à travers l'ouverture.
-
-Une fois les dernières caisses ramenées dans la salle de l'île maudite, les deux hommes s'assirent par terre.
-
-Raoul regarda la pile.
-
-— On a réussi.
-
-Nino sourit.
-
-— Oui.
-
-Un instant passa.
-
-— Tu sais ce qui me plaît le plus ?
-
-— Je crains de l'apprendre.
-
-— On a acheté des armes au pays des cow-boys avec de l'or qui vient du Moyen Âge, après avoir vendu un téléphone du XXIe siècle dans le futur.
-
-Raoul réfléchit.
-
-— Dit comme ça, personne ne nous croira jamais.
-
-— Voilà pourquoi il faudra écrire un livre.
-
-***
-
-Ils regagnèrent l'Égypte avec leurs acquisitions.
-
-Dara, Clara et les représentants du peuple virent arriver les caisses avec un mélange d'espoir et d'inquiétude.
-
-Victor les examina.
-
-— Vous avez réussi à trouver tout ça ?
-
-Nino bomba le torse.
-
-— Et mieux encore.
-
-Il montra le dispositif futuriste.
-
-Savio le regarda longuement.
-
-— Qu'est-ce que c'est ?
-
-Raoul répondit :
-
-— On ne sait pas encore précisément.
-
-Julien leva les yeux.
-
-— Vous avez acheté une arme que vous ne savez pas utiliser ?
-
-— On sait ce que c'est censé être, répondit Nino. On n'en connaît pas les limites.
-
-Clara tendit la main.
-
-— Alors personne ne s'en sert avant qu'on ait compris les risques.
-
-Nino acquiesça.
-
-— Exactement ce que je disais.
-
-Raoul sourit discrètement.
-
-Savio fit le compte des caisses et des hommes disponibles.
-
-L'aide était réelle.
-
-Elle ne résolvait pas le problème fondamental.
-
-— Le pharaon a beaucoup plus de soldats que nous, dit-il.
-
-Dara s'avança.
-
-— Nous le savons depuis le début.
-
-Elle posa la main sur l'une des caisses.
-
-— Mais maintenant, nous avons une chance de faire entendre notre refus.
-
-Julien regarda le peuple rassemblé.
-
-Il se souvint du Moyen Âge, des armes et de leur première guerre.
-
-Il ne voulait pas revivre la même catastrophe.
-
-Pourtant, il voyait la différence : cette fois, le soulèvement ne venait pas d'un marché royal ou d'une promesse commerciale.
-
-Il venait de ceux qui n'acceptaient plus d'être soumis.
-
-Le groupe avait rapporté des armes.
-
-Mais la décision de se battre appartenait à d'autres.
+— Tu sais qu'avec cette tenue tu vas provoquer des commentaires ?
+— Tu portes un manteau de science-fiction et tu voyages avec un robot déguisé en enfant.
+— C'est vrai. On fait une belle équipe.
+
+Ils franchirent le passage.
 
 ---
 
-## Chapitre 27 — Les premières victoires
+
+## Chapitre 30 — Le cow-boy, le soldat et l'enfant
+
+Raoul sortit du portail égyptien sous un soleil écrasant.
+
+Son long manteau de cow-boy était couvert de poussière. Son chapeau lui protégeait les yeux, et ses nouvelles bottes faisaient un bruit peu discret sur la pierre.
+
+Nino apparut derrière lui, enveloppé dans son manteau militaire du futur. Thuggy suivait, avec les petites caisses qu'ils avaient ramenées en plusieurs traversées.
+
+— On a deux problèmes, annonça Raoul.
+— Trois, répondit Nino. J'ai faim.
+— Il faut transporter ça au village et ne pas effrayer tout le pays.
+
+Ils trouvèrent de l'aide auprès d'habitants qui connaissaient déjà les compagnons de Clara. Avant d'arriver au campement, Nino emprunta une grande étoffe de lin pour cacher les lignes futuristes de son manteau.
+
+Thuggy fut recouvert d'une tunique à capuche, assez grande pour masquer ses articulations.
+
+Raoul, lui, conserva son accoutrement de cow-boy.
+
+— Tu pourrais au moins enlever ton chapeau, remarqua Nino.
+— Je l'ai acheté.
+— Personne ne remet ça en question.
+— Je préfère préciser.
+
+***
+
+Leur arrivée interrompit une réunion de Dara.
+
+Julien se leva d'un bond.
+
+— Vous êtes vivants !
+
+Clara les rejoignit avec un soulagement qu'elle tenta de dissimuler derrière un regard sévère.
+
+— Une reconnaissance courte ! C'est ce que vous aviez promis !
+
+Raoul ôta son chapeau.
+
+— Les choses se sont compliquées.
+
+Victor les examina de haut en bas.
+
+— Vous êtes partis explorer des portails ou ouvrir une boutique de déguisements ?
+
+Nino gonfla le torse sous sa toge.
+
+— Nous avons rapporté bien mieux.
+
+Julien désigna Raoul.
+
+— Pourquoi il est habillé en cow-boy ?
+
+— Il a acheté les vêtements, répondit Nino.
+
+— Merci, marmonna Raoul.
+
+Une petite silhouette encapuchonnée s'avança alors.
+
+— Bonjour. Je suis Thuggy. Votre inquiétude était compréhensible, mais statistiquement excessive.
+
+Clara le dévisagea.
+
+— Pourquoi cet enfant parle-t-il comme un manuel ?
+
+Nino abaissa doucement sa capuche.
+
+Un visage métallique apparut.
+
+Victor recula. Malo éclata de rire. Solan resta un moment sans voix.
+
+Raoul ferma les yeux.
+
+— Voilà. Ça commence.
+
+***
+
+À l'écart des regards, les explorateurs racontèrent leurs trois aventures.
+
+Le Japon et ses samouraïs. L'embuscade contre Masanori. Le tantō offert par la famille et les symboles découverts sur le socle d'une statue ancienne.
+
+Le futur, où l'or ne valait plus rien, où tout dépendait d'une identité numérique, et où un enfant des quartiers abandonnés leur avait permis de trouver un acheteur pour des objets du XXIe siècle.
+
+Enfin, le Far West, Silas, son frère prisonnier, les bandits de la mine et la poursuite nocturne.
+
+— Elle a été provoquée par une annonce inutile, conclut Raoul.
+— Mon annonce était exacte, précisa Thuggy.
+— C'est justement le problème, répliqua Nino.
+
+Ils montrèrent les caisses.
+
+Dara les regarda avec une gravité nouvelle.
+
+— Voilà ce que vous êtes partis chercher.
+
+Raoul acquiesça.
+
+— Elles peuvent nous aider. Mais elles peuvent aussi entraîner des catastrophes. Nous savons ce qui s'est passé au Moyen Âge.
+
+Julien repensa aux morts de cette guerre.
+
+— Cette fois, ce sont les habitants qui ont décidé de résister. Ce n'est pas à nous de leur imposer une bataille.
+
+— Exactement, répondit Dara.
+
+On mit le matériel à l'abri, dans l'attente de décisions collectives et de préparatifs prudents.
+
+***
+
+Savio avait du mal à écouter la fin du récit.
+
+Ses yeux revenaient sans cesse vers Thuggy.
+
+— Tu peux analyser des inscriptions ?
+— Oui, sous réserve de leur lisibilité.
+— Comparer des formes ?
+— Avec un degré d'incertitude mesurable.
+— Reconnaître des matériaux ?
+— Dans certaines limites.
+
+Savio s'assit lentement.
+
+Nino sourit.
+
+— Je savais que vous alliez vous entendre.
+
+Il ouvrit le carnet rapporté du Japon.
+
+Raoul lui montra les dessins copiés sur le socle de la statue. Les photos prises avec le téléphone étaient restées dans le futur, mais les tracés manuscrits avaient été conservés.
+
+Savio plaça les dessins près des fragments qu'il avait examinés dans les archives égyptiennes.
+
+— Thuggy, compare ces motifs, s'il te plaît.
+
+Le robot projeta dans l'air une image lumineuse.
+
+Les lignes du sanctuaire japonais apparurent au-dessus de celles des fragments anciens. Des correspondances s'illuminèrent, puis d'autres s'effacèrent.
+
+Savio se pencha.
+
+— Cette courbe. On la retrouve sur le troisième fragment.
+
+— Quatre-vingt-sept correspondances potentielles détectées, annonça Thuggy.
+
+Savio releva brusquement la tête.
+
+— Quatre-vingt-sept ?
+
+— Dont quatre-vingt-six peuvent résulter de ressemblances géométriques sans signification.
+
+Nino éclata de rire.
+
+— C'est bien mon robot !
+
+Raoul secoua la tête.
+
+— Il a surtout appris à te ressembler.
+
+Mais Savio ne riait pas. Il observait la correspondance restante.
+
+— Une seule peut suffire à ouvrir une piste. Montre-moi les écarts.
+
+Thuggy obéit.
+
+L'étude des portails venait de trouver un assistant extraordinaire. Pas un oracle : un outil capable d'étudier en quelques instants ce qui aurait demandé des semaines à Savio.
+
+***
+
+Le soir, Thuggy annonça qu'il allait entrer en veille.
+
+— Tu dors ? demanda Nino.
+
+— Je réduis ma consommation durant la nuit. L'énergie solaire collectée pendant la journée alimente mes réserves. Je ne capte pas de soleil pendant la nuit, contrairement à certaines affirmations de mon ancien propriétaire.
+
+Savio nota ce détail, puis examina le manteau de Nino.
+
+— Et ton bouclier ?
+— Une impulsion de protection d'une minute maximum, répondit Raoul. Pas plus d'une fois par heure, si la batterie est suffisamment chargée.
+
+— Ça semble peu, dit Clara.
+
+Raoul la regarda.
+
+— Quand des gens courent pour échapper à des soldats, une minute peut compter énormément.
+
+Nino cacha soigneusement son manteau sous l'étoffe de lin.
+
+Thuggy, dans son déguisement d'enfant, s'immobilisa au fond de la pièce.
+
+Raoul posa son chapeau sur la table.
+
+Victor regarda leur trio.
+
+— Donc, nous sommes en Égypte antique, avec un cow-boy, un soldat du futur et un enfant-robot qui a besoin de soleil.
+
+Nino sourit.
+
+— Il faut savoir s'adapter aux coutumes locales.
+
+Clara lui tendit les registres de provisions.
+
+— Parfait. Demain, tu t'adapteras au travail.
+
+— Thuggy, tu as entendu ?
+
+Le robot ne répondit pas.
+
+Il était déjà en veille.
+
+***
+
+Dara rejoignit Julien à l'extérieur.
+
+Les messagers signalaient l'approche de nouvelles troupes royales. Les villages s'organisaient, mais la situation devenait plus dangereuse chaque jour.
+
+— Ils sont revenus, dit Julien.
+— Oui.
+— Et ils ont rapporté des choses extraordinaires.
+— Ce n'est pas encore une victoire.
+
+Julien acquiesça.
+
+À l'intérieur, Savio avait rallumé sa lampe. Il examinait les dessins japonais avec une attention renouvelée, sous le regard éteint de Thuggy.
+
+Pour la première fois, les deux grands problèmes du groupe semblaient moins opaques : aider un peuple à se défendre, et comprendre les portes qui les avaient conduits jusqu'ici.
+
+Mais il restait à agir.
+
+Et l'armée du pharaon était déjà en marche.
+
+---
+
+## Chapitre 31 — Les premières victoires
 
 Le pharaon apprit la nouvelle au milieu d'un repas.
 
@@ -8816,23 +9504,23 @@ Après les premiers revers, il mobilisa des contingents beaucoup plus importants
 
 Les routes se remplirent de soldats. Des messagers annoncèrent que de nouvelles troupes avaient quitté plusieurs garnisons. Les rebelles comprirent que ce qui avait commencé comme un soulèvement local risquait de devenir un affrontement avec une armée entière.
 
-Nino regarda le dispositif futuriste, toujours conservé sous la surveillance du groupe.
+Nino posa une main sur le manteau futuriste qu'il dissimulait sous son vêtement de lin.
 
-— On pourrait peut-être utiliser ça.
+— On pourrait peut-être utiliser le bouclier.
 
 Raoul secoua la tête.
 
-— Pas tant qu'on ne sait pas ce que ça fait et ce que ça risque de provoquer.
+— Pas pour remplacer une défense entière. On sait qu'il tient une minute au maximum et qu'il ne peut pas être réactivé avant une heure.
 
 — Je sais.
 
-— Et même si ça fonctionnait, tu crois qu'une seule arme pourrait arrêter tous ces soldats ?
+— Et même si ça fonctionnait, tu crois qu'une minute de protection pourrait arrêter tous ces soldats ?
 
 Nino regarda les personnes qui couraient entre les habitations.
 
 — Non.
 
-Il rangea l'objet.
+Il rabattit la toge sur son manteau.
 
 Ce n'était pas un renoncement.
 
@@ -8884,7 +9572,7 @@ Ou la détruire.
 
 ---
 
-## Chapitre 28 — Le pharaon perd son trône
+## Chapitre 32 — Le pharaon perd son trône
 
 Ils entendirent les tambours avant de voir l'armée.
 
@@ -9010,15 +9698,13 @@ La confusion ne dura que quelques instants, mais elle suffit à empêcher que le
 
 Nino était avec Malo et Solan près du groupe de civils.
 
-Il avait le dispositif futuriste dans son sac.
+Sous sa toge, il portait toujours son manteau militaire venu du futur.
 
-Il ne savait toujours pas tout ce qu'il pouvait faire.
+Savio et Thuggy avaient étudié les indications du vêtement. Le bouclier utilisait l'énergie solaire stockée dans ses fibres. Il pouvait protéger temporairement Nino et quelques personnes à proximité, pendant une minute au maximum. Il fallait ensuite attendre au moins une heure avant toute nouvelle impulsion, à condition que la charge le permette.
 
-Après des observations prudentes, Savio avait seulement identifié qu'il s'agissait d'un appareil de protection limité, dont la réserve semblait presque épuisée. Ils avaient décidé qu'il ne serait employé qu'en dernier recours, pour éviter un danger immédiat.
+Ils avaient décidé de n'y recourir qu'en dernier ressort.
 
-Nino le regarda.
-
-Puis il regarda les familles qui tentaient de se replier.
+Nino regarda les familles qui tentaient de se replier.
 
 Raoul arriva près de lui.
 
@@ -9026,35 +9712,43 @@ Raoul arriva près de lui.
 
 — Je sais.
 
-— Le dispositif...
+— Ton manteau est chargé ?
 
-Nino hocha la tête.
+Nino consulta le petit indicateur dissimulé sous son vêtement de lin.
 
-Ils prirent la décision ensemble.
+— Une impulsion. Pas davantage.
 
-L'objet produisit une clarté intense et brève qui se déploya devant le passage des civils. Pendant quelques instants, un phénomène lumineux protégea la zone la plus exposée et provoqua la stupeur des soldats.
+Raoul observa les civils rassemblés près du chemin.
 
-Les familles eurent le temps de gagner un endroit plus sûr.
+— Alors fais-les approcher. On n'aura pas une deuxième minute.
 
-Puis la lumière s'éteignit.
+Ils agirent ensemble.
 
-L'appareil redevint silencieux.
+Nino écarta sa toge et activa le manteau. Une clarté intense se déploya en barrière translucide autour du petit groupe, juste assez large pour couvrir les familles serrées près de lui.
 
-Nino le regarda, incrédule.
+Les soldats s'immobilisèrent, stupéfaits.
 
-— C'est tout ?
+Malo et Solan firent avancer les civils vers le passage sûr. Le temps se comptait en pas, en respirations et en enfants qu'il fallait aider à franchir les derniers mètres.
+
+Le signal lumineux du manteau vira à l'orange.
+
+Puis la protection disparut, avant même qu'une minute entière se soit écoulée.
+
+— C'est déjà fini ? souffla Nino.
 
 Raoul l'attrapa par le bras.
 
-— C'est beaucoup.
+— Ça leur a suffi.
 
 Ils coururent rejoindre les autres.
 
-L'arme du futur n'avait pas arrêté l'armée.
+Le bouclier restait indisponible pour au moins une heure et sa réserve devrait se recharger à la lumière.
 
-Elle avait seulement gagné un peu de temps.
+Le manteau n'avait ni arrêté l'armée ni changé l'issue de la guerre à lui seul.
 
-Et ce temps avait sauvé des personnes.
+Il avait gagné moins d'une minute.
+
+Et cette minute avait sauvé des personnes.
 
 ***
 
@@ -9172,7 +9866,7 @@ Clara acquiesça.
 
 Elle comprenait.
 
-Raoul rejoignit Nino, qui contemplait l'appareil futuriste désormais inerte.
+Raoul rejoignit Nino, qui contemplait son manteau futuriste. Le bouclier s'était désactivé et les réserves d'énergie solaire devaient être reconstituées avant une nouvelle utilisation.
 
 — Tu avais dit que tu voulais enfin servir à quelque chose, lui rappela-t-il.
 
@@ -9224,7 +9918,7 @@ Cette fois, il avait compris pourquoi elle le demandait.
 
 ---
 
-## Chapitre 29 — Un pays à eux
+## Chapitre 33 — Un pays à eux
 
 Le premier problème du nouveau pays fut de trouver une salle assez grande pour y réunir tout le monde.
 
@@ -9466,7 +10160,7 @@ Elle ne leur avait pas encore rendu la maison.
 
 ---
 
-## Chapitre 30 — Trois jours d'eau entre nous et chez nous
+## Chapitre 34 — Trois jours d'eau entre nous et chez nous
 
 Victor avait dessiné cinq flèches sur une feuille.
 
@@ -9696,7 +10390,7 @@ Et, peut-être, infiniment plus vaste.
 
 ---
 
-## Chapitre 31 — Derrière chaque porte
+## Chapitre 35 — Derrière chaque porte
 
 Savio demanda une table plus grande.
 
@@ -9745,6 +10439,20 @@ Nino ferma les yeux.
 — Je savais qu'on allait encore avoir des devoirs.
 
 ***
+
+Thuggy s'approcha de la table. Ses capteurs venaient de recevoir la lumière du matin et il pouvait de nouveau travailler aux côtés de Savio.
+
+Une carte holographique apparut au-dessus du carnet, reprenant les motifs gravés sur les arches, les dessins du sanctuaire japonais et certains fragments des archives égyptiennes.
+
+— Plusieurs ressemblances de structure sont confirmées, annonça-t-il. Aucune ne démontre encore une connexion directe entre deux destinations.
+
+— C'est bien ce que j'espérais, répondit Savio. Un outil pour comparer, pas une machine qui invente des certitudes.
+
+Nino sourit.
+
+— Moi, j'espérais un robot qui fasse les devoirs à ma place.
+
+— Cette fonction reste en cours d'évaluation, indiqua Thuggy.
 
 L'intello posa trois feuilles autour du dessin.
 
