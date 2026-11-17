@@ -3895,6 +3895,7 @@ Le portail était tout près. Jamais quelques centaines de mètres n'avaient sem
 Les soldats emmenèrent les cinq hommes sous les cris.
 
 Derrière les murs de Rome, une porte vers leur époque resta ouverte, parfaitement inutile.
+
 ---
 
 ## Chapitre 10 — Cinq hommes pour une arène
@@ -5285,7 +5286,237 @@ Mais ce soir-là, pour la première fois depuis leur arrivée, ils eurent le sen
 
 ---
 
-## Chapitre 16 — La fille qui donnait des ordres
+## Chapitre 16 — Ceux qui connaissent l'île
+
+Au matin, Savio décida que la carte ressemblait suffisamment à une carte pour être utile.
+
+Nino n'était pas d'accord.
+
+— Là, dit-il en pointant le milieu du papier, on dirait une patate avec une oreille.
+
+— C'est le relief central.
+
+— Et là, c'est quoi ?
+
+— Une zone pas encore explorée.
+
+— Ça ressemble à une autre patate.
+
+Victor s'approcha.
+
+— Est-ce qu'on peut arrêter de comparer notre seul outil d'orientation à un repas ?
+
+Julien prit la carte.
+
+Les marques que Nino avait découvertes sur un tronc se situaient près d'un chemin étroit. Ils décidèrent de le suivre, cette fois sans s'éloigner les uns des autres.
+
+Raoul marchait en tête avec Savio, qui notait chaque bifurcation.
+
+Nino observait les arbres avec le sérieux neuf de quelqu'un qui avait enfin fourni une découverte utile.
+
+Il repéra d'autres entailles, puis des pierres disposées à intervalles réguliers le long du chemin.
+
+— Quelqu'un entretient ce passage, dit-il.
+
+Savio examina les pierres.
+
+— C'est possible.
+
+— Tu vas encore dire qu'il faut vérifier ?
+
+— Oui.
+
+— Un jour, j'aurai une idée et tu diras directement « bravo ».
+
+— Il faudra vérifier.
+
+***
+
+Ils atteignirent un ruisseau.
+
+De l'autre côté se trouvaient trois personnes.
+
+Deux adultes et un adolescent portaient des paniers. Ils s'arrêtèrent immédiatement en voyant surgir les étrangers du sous-bois.
+
+Pendant plusieurs secondes, les deux groupes s'observèrent.
+
+Julien leva lentement les mains pour montrer qu'il n'avait pas l'intention de les menacer.
+
+Raoul recula d'un pas.
+
+Savio essaya une salutation.
+
+Les habitants ne répondirent pas dans une langue qu'il connaissait.
+
+Nino fit un sourire immense.
+
+— Bonjour !
+
+L'un des adultes le regarda avec perplexité.
+
+Nino montra sa propre poitrine.
+
+— Nino.
+
+Puis il désigna un autre membre du groupe.
+
+— Julien.
+
+Victor murmura :
+
+— On va vraiment leur présenter toute la classe ?
+
+— Tu préfères qu'ils nous prennent pour des gens hostiles ?
+
+Un des habitants fit un geste de la main. Nino tenta de l'imiter.
+
+Il le fit exactement à l'envers.
+
+L'adolescent éclata de rire.
+
+Nino se redressa.
+
+— Voilà. On communique.
+
+L'adulte le plus âgé observa un moment les sacs, les chaussures et les gestes du groupe. Il ne semblait ni agressif ni particulièrement ravi de cette rencontre.
+
+Il désigna le ruisseau, puis un passage plus haut.
+
+Savio comprit qu'il cherchait probablement à leur indiquer un endroit où traverser sans dégrader la berge.
+
+Ils suivirent son geste.
+
+Raoul resta un peu en retrait, laissant les autres avancer.
+
+***
+
+La rencontre fut plus simple que prévu et beaucoup moins instructive qu'ils l'avaient espéré.
+
+Les habitants leur montrèrent un secteur où trouver de l'eau et un chemin évitant les terrains instables. En échange, les voyageurs aidèrent à relever un panier tombé dans le ruisseau. Savio essaya de comprendre les noms des lieux, mais la conversation avançait surtout par gestes.
+
+Ils finirent par atteindre une petite zone habitée, avec des abris soigneusement entretenus et des espaces de travail.
+
+Personne n'y vivait comme dans les films d'aventure que Nino connaissait.
+
+Les habitants avaient leurs tâches, leurs disputes, leurs habitudes, leurs enfants curieux et leur manière de regarder cinq inconnus qui se présentaient sans avoir été invités.
+
+Un vieil homme s'approcha d'eux.
+
+Il échangea quelques mots avec les premiers rencontrés puis désigna la direction de la côte.
+
+Il répéta un geste évoquant le mouvement d'un navire.
+
+Julien se redressa.
+
+— Un bateau ?
+
+Savio l'observa.
+
+— Il parle peut-être de gens venus par mer.
+
+Julien sortit la barrette de Clara.
+
+Il la montra avec précaution.
+
+— Une femme. Vous avez vu une femme avec ça ?
+
+Les regards se croisèrent.
+
+Le vieil homme examina l'objet, puis secoua la tête.
+
+Julien sentit l'espoir retomber.
+
+L'un des habitants évoqua de nouveau la mer et mima quelque chose qui ressemblait à plusieurs personnes transportant des caisses.
+
+— Des visiteurs ? demanda Victor.
+
+Savio acquiesça.
+
+— C'est plausible.
+
+Julien serra la barrette.
+
+Ce n'était pas encore une réponse.
+
+Mais l'île n'était plus entièrement silencieuse.
+
+***
+
+Ils restèrent assez longtemps pour comprendre qu'ils avaient une chose essentielle à faire : ne pas déranger ceux qui vivaient là.
+
+Savio demanda, avec beaucoup de gestes, quelles zones ils pouvaient emprunter. Les habitants leur montrèrent certains chemins et leur indiquèrent clairement qu'un secteur proche du rivage n'était pas destiné aux visiteurs.
+
+Julien accepta.
+
+Victor parut surpris.
+
+— On est venus pour retrouver Clara.
+
+— Et eux vivent ici, répondit Julien. On ne va pas leur imposer nos recherches.
+
+Raoul l'approuva d'un signe de tête.
+
+Nino observait un petit garçon qui s'amusait à faire rebondir un fruit sur une pierre plate.
+
+Il tenta de reproduire le geste.
+
+Le fruit lui échappa et roula jusqu'aux pieds du vieil homme.
+
+Nino se figea.
+
+Le vieil homme ramassa le fruit, le lui lança avec une adresse déconcertante et lui adressa un sourire.
+
+— Je crois, souffla Nino, que je viens de me faire humilier par un grand-père.
+
+Victor se mit à rire.
+
+Le rire leur fit du bien.
+
+***
+
+Lorsqu'ils reprirent le chemin du camp, les cinq étaient plus tranquilles.
+
+Ils avaient découvert des habitants qui connaissaient véritablement l'île, et dont la présence changeait tout : ce lieu n'était pas un désert abandonné à la première bande d'aventuriers qui y débarquait.
+
+Julien se demanda si Clara les avait rencontrés.
+
+Il n'osa pas croire qu'ils en savaient davantage.
+
+À l'approche de la plage, Nino s'arrêta.
+
+— Vous entendez ?
+
+Un bruit profond venait de la mer.
+
+Ils avancèrent jusqu'à une hauteur dégagée.
+
+À l'horizon, un navire apparaissait.
+
+Pas une petite barque.
+
+Un grand bâtiment à voiles, dont la silhouette se découpait sur le soleil.
+
+Victor plissa les yeux.
+
+— On est à quelle époque, déjà ?
+
+Savio regarda longuement le bateau.
+
+— On va peut-être le savoir.
+
+Julien sentit la barrette contre sa paume.
+
+Un navire signifiait des voyageurs.
+
+Des voyageurs signifiaient des histoires.
+
+Et peut-être que l'une de ces histoires parlerait enfin de Clara.
+
+---
+
+## Chapitre 17 — La fille qui donnait des ordres
+
+Bien avant que Julien ne retrouve sa barrette, Clara avait commencé un voyage dont personne, dans son monde, ne connaissait la direction.
 
 La première chose que Clara comprit en ouvrant les yeux, ce fut qu'elle était allongée par terre.
 
@@ -5539,6 +5770,48 @@ Elle découvrit qu'il avait raison.
 
 Après cela, elle écouta davantage ceux qui savaient.
 
+Deux jours plus tard, l'un des marins se blessa en déplaçant une lourde caisse. Le bois céda sous sa main et une longue écharde lui ouvrit l'avant-bras. Le sang traversa presque aussitôt la manche de sa chemise.
+
+Le second cria qu'on aille chercher du linge. Un autre proposa de verser de l'alcool sur la plaie. Tout le monde parlait à la fois.
+
+Clara s'agenouilla auprès du blessé.
+
+— Arrêtez de le faire bouger. Et donnez-moi le tissu le plus propre que vous ayez.
+
+Le marin essaya de retirer son bras.
+
+— Vous êtes médecin ?
+
+— Infirmière. Je soigne des blessés, là d'où je viens. Mais il faut que vous m'aidiez.
+
+Elle comprima la plaie avec du linge propre. Lorsque le saignement diminua, elle demanda de l'eau qu'on avait fait bouillir puis laissée refroidir, et de quoi préparer un pansement propre. Elle ne prétendit pas disposer de remèdes miraculeux : sans ses instruments ni les traitements de son époque, une infection restait possible.
+
+— Et si ça recommence à saigner ? demanda le second.
+
+— Vous me prévenez. Il ne reprend pas le travail aujourd'hui. Et on surveille la blessure.
+
+Le capitaine avait assisté à la scène sans intervenir. Quand Clara eut terminé, il lui demanda :
+
+— C'est ainsi que les femmes de votre pays soignent les marins ?
+
+— C'est ainsi que les infirmières soignent les gens. Les marins aussi, quand ils se laissent faire.
+
+Le blessé grogna.
+
+— Je me suis laissé faire.
+
+— Vous avez râlé pendant tout le soin.
+
+— C'est ce qui m'a empêché de m'évanouir.
+
+Quelques marins rirent, soulagés.
+
+Les jours suivants, Clara changea le pansement et surveilla l'apparition de signes d'infection. Le blessé se remit progressivement. Le capitaine, qui n'avait pas compris la moitié de ses explications, avait parfaitement compris que cet étranger savait rester utile quand tout le monde paniquait.
+
+Ce fut à partir de là que les hommes cessèrent de la considérer seulement comme une passagère bruyante.
+
+Certains commencèrent à lui demander conseil pour leurs blessures, leurs mains abîmées par les cordages, ou les malaises provoqués par le travail sous le soleil. Elle les aidait lorsque ses connaissances suffisaient, et disait clairement quand elles ne suffisaient pas.
+
 Et ils finirent, à leur tour, par écouter ce qu'elle savait faire.
 
 ***
@@ -5675,237 +5948,115 @@ Elle avait enfin entendu quelque chose qui ressemblait à une piste.
 
 Et, pour la première fois depuis sa disparition, elle n'avait plus envie d'attendre que quelqu'un vienne la chercher.
 
----
+***
 
-## Chapitre 17 — Ceux qui connaissent l'île
+Le lendemain, Clara reparla de l'île maudite.
 
-Au matin, Savio décida que la carte ressemblait suffisamment à une carte pour être utile.
+— Vous avez déjà donné votre réponse, lui rappela le capitaine.
 
-Nino n'était pas d'accord.
+— Et moi, j'ai eu une nuit pour réfléchir.
 
-— Là, dit-il en pointant le milieu du papier, on dirait une patate avec une oreille.
+— Ce qui m'inquiète davantage encore.
 
-— C'est le relief central.
+Elle passa les jours suivants à recueillir les récits de l'équipage. Les uns évoquaient des voix dans une grotte, les autres des marins qui n'en étaient jamais revenus. Rien de tout cela n'avait la précision d'une carte, mais plusieurs histoires désignaient les mêmes falaises.
 
-— Et là, c'est quoi ?
+Deux hommes finirent par accepter d'examiner cette piste avec elle. Malo, marin expérimenté, avait l'habitude des récifs et des vents changeants. Solan, plus jeune, possédait une curiosité que les superstitions de ses camarades ne suffisaient pas à décourager.
 
-— Une zone pas encore explorée.
+— Il ne faut pas croire que nous savons ce qu'il y a là-bas, précisa Malo.
 
-— Ça ressemble à une autre patate.
+— Je n'en sais pas plus que vous, répondit Clara. Mais je suis arrivée ici par une porte impossible. Si une autre existe, je dois la chercher.
 
-Victor s'approcha.
+— Et si vous ne revenez pas ?
 
-— Est-ce qu'on peut arrêter de comparer notre seul outil d'orientation à un repas ?
+Clara pensa à Julien et à Victor, qui devaient déjà la chercher.
 
-Julien prit la carte.
+— Alors au moins, je n'aurai pas passé mes journées à attendre.
 
-Les marques que Nino avait découvertes sur un tronc se situaient près d'un chemin étroit. Ils décidèrent de le suivre, cette fois sans s'éloigner les uns des autres.
+Solan regarda Malo.
 
-Raoul marchait en tête avec Savio, qui notait chaque bifurcation.
+— Je crois que ça veut dire qu'elle ira même sans nous.
 
-Nino observait les arbres avec le sérieux neuf de quelqu'un qui avait enfin fourni une découverte utile.
-
-Il repéra d'autres entailles, puis des pierres disposées à intervalles réguliers le long du chemin.
-
-— Quelqu'un entretient ce passage, dit-il.
-
-Savio examina les pierres.
-
-— C'est possible.
-
-— Tu vas encore dire qu'il faut vérifier ?
-
-— Oui.
-
-— Un jour, j'aurai une idée et tu diras directement « bravo ».
-
-— Il faudra vérifier.
+— Je l'avais compris.
 
 ***
 
-Ils atteignirent un ruisseau.
+Le capitaine refusa de risquer son grand navire. Mais Malo et Solan avaient le droit de partir, et il finit par leur laisser une petite embarcation, des provisions et les indications qu'il possédait.
 
-De l'autre côté se trouvaient trois personnes.
+— Vous me promettez de ne pas vous jeter dans la première ouverture que vous trouverez ? demanda-t-il à Clara.
 
-Deux adultes et un adolescent portaient des paniers. Ils s'arrêtèrent immédiatement en voyant surgir les étrangers du sous-bois.
+— Je promets de regarder avant.
 
-Pendant plusieurs secondes, les deux groupes s'observèrent.
+— Ce n'est pas la même chose.
 
-Julien leva lentement les mains pour montrer qu'il n'avait pas l'intention de les menacer.
+Il se tourna vers ses marins.
 
-Raoul recula d'un pas.
+— Et vous, ne laissez pas votre curiosité l'emporter sur la mer.
 
-Savio essaya une salutation.
+Malo leva les yeux au ciel.
 
-Les habitants ne répondirent pas dans une langue qu'il connaissait.
+— Je sais naviguer, capitaine.
 
-Nino fit un sourire immense.
+— Voilà pourquoi c'est à toi que je le dis.
 
-— Bonjour !
+Clara remercia l'homme qui l'avait recueillie malgré les complications qu'elle lui avait apportées. Elle regarda une dernière fois le pont du navire, les tonneaux qu'elle avait fait réorganiser et le marin dont le bras guérissait.
 
-L'un des adultes le regarda avec perplexité.
-
-Nino montra sa propre poitrine.
-
-— Nino.
-
-Puis il désigna un autre membre du groupe.
-
-— Julien.
-
-Victor murmura :
-
-— On va vraiment leur présenter toute la classe ?
-
-— Tu préfères qu'ils nous prennent pour des gens hostiles ?
-
-Un des habitants fit un geste de la main. Nino tenta de l'imiter.
-
-Il le fit exactement à l'envers.
-
-L'adolescent éclata de rire.
-
-Nino se redressa.
-
-— Voilà. On communique.
-
-L'adulte le plus âgé observa un moment les sacs, les chaussures et les gestes du groupe. Il ne semblait ni agressif ni particulièrement ravi de cette rencontre.
-
-Il désigna le ruisseau, puis un passage plus haut.
-
-Savio comprit qu'il cherchait probablement à leur indiquer un endroit où traverser sans dégrader la berge.
-
-Ils suivirent son geste.
-
-Raoul resta un peu en retrait, laissant les autres avancer.
+Elle n'était plus une prisonnière de circonstance. Elle partait de son plein gré, avec deux compagnons qui avaient décidé de lui faire confiance.
 
 ***
 
-La rencontre fut plus simple que prévu et beaucoup moins instructive qu'ils l'avaient espéré.
+Le voyage fut moins confortable qu'elle l'avait espéré.
 
-Les habitants leur montrèrent un secteur où trouver de l'eau et un chemin évitant les terrains instables. En échange, les voyageurs aidèrent à relever un panier tombé dans le ruisseau. Savio essaya de comprendre les noms des lieux, mais la conversation avançait surtout par gestes.
+Solan dut écoper de l'eau après une vague trop haute. Malo corrigea leur direction plus d'une fois. Clara, à qui personne ne confiait le gouvernail, surveilla les provisions et se retint de demander toutes les dix minutes s'ils étaient bientôt arrivés.
 
-Ils finirent par atteindre une petite zone habitée, avec des abris soigneusement entretenus et des espaces de travail.
+Lorsque les falaises de l'île maudite surgirent enfin, elles ne ressemblaient à rien de surnaturel. Seulement à des rochers sombres, des vagues violentes et une côte peu accueillante.
 
-Personne n'y vivait comme dans les films d'aventure que Nino connaissait.
+— C'est là ? demanda Clara.
 
-Les habitants avaient leurs tâches, leurs disputes, leurs habitudes, leurs enfants curieux et leur manière de regarder cinq inconnus qui se présentaient sans avoir été invités.
+— Si les anciens récits disent vrai, répondit Malo.
 
-Un vieil homme s'approcha d'eux.
+Ils débarquèrent et remontèrent une pente qui menait à une ouverture dans la roche.
 
-Il échangea quelques mots avec les premiers rencontrés puis désigna la direction de la côte.
+À l'intérieur de la grotte, le bruit de la mer diminua jusqu'à devenir un grondement lointain. Les parois portaient des signes que Clara avait déjà vus dans la salle où elle avait disparu.
 
-Il répéta un geste évoquant le mouvement d'un navire.
+Elle s'immobilisa.
 
-Julien se redressa.
+— Je reconnais ces marques.
 
-— Un bateau ?
+Solan s'approcha sans toucher à la pierre.
 
-Savio l'observa.
+— Alors les histoires étaient vraies ?
 
-— Il parle peut-être de gens venus par mer.
+— Une partie, au moins.
 
-Julien sortit la barrette de Clara.
+Au fond de la salle, une étrange lumière ondulait dans une arche. Malo vérifia le chemin derrière eux.
 
-Il la montra avec précaution.
+— J'aimerais vraiment savoir où ça mène avant de franchir le seuil.
 
-— Une femme. Vous avez vu une femme avec ça ?
+— Moi aussi, répondit Clara.
 
-Les regards se croisèrent.
+Elle hésita. Les portes avaient déjà détruit sa vie ordinaire. Pourtant, elles étaient peut-être son unique moyen de retrouver ceux qu'elle aimait.
 
-Le vieil homme examina l'objet, puis secoua la tête.
+— Vous pouvez encore repartir, dit-elle aux deux hommes.
 
-Julien sentit l'espoir retomber.
+Solan regarda Malo, qui soupira.
 
-L'un des habitants évoqua de nouveau la mer et mima quelque chose qui ressemblait à plusieurs personnes transportant des caisses.
+— On n'a pas traversé cette mer pour vous laisser entrer seule.
 
-— Des visiteurs ? demanda Victor.
+Clara leur tendit la main.
 
-Savio acquiesça.
+— Ensemble, alors.
 
-— C'est plausible.
+Elle franchit le portail. Malo et Solan la suivirent.
 
-Julien serra la barrette.
+De l'autre côté, un souffle de chaleur les frappa. Une terre lumineuse s'étendait au-delà de la roche, et, plus loin, brillait l'eau d'un fleuve immense.
 
-Ce n'était pas encore une réponse.
-
-Mais l'île n'était plus entièrement silencieuse.
-
-***
-
-Ils restèrent assez longtemps pour comprendre qu'ils avaient une chose essentielle à faire : ne pas déranger ceux qui vivaient là.
-
-Savio demanda, avec beaucoup de gestes, quelles zones ils pouvaient emprunter. Les habitants leur montrèrent certains chemins et leur indiquèrent clairement qu'un secteur proche du rivage n'était pas destiné aux visiteurs.
-
-Julien accepta.
-
-Victor parut surpris.
-
-— On est venus pour retrouver Clara.
-
-— Et eux vivent ici, répondit Julien. On ne va pas leur imposer nos recherches.
-
-Raoul l'approuva d'un signe de tête.
-
-Nino observait un petit garçon qui s'amusait à faire rebondir un fruit sur une pierre plate.
-
-Il tenta de reproduire le geste.
-
-Le fruit lui échappa et roula jusqu'aux pieds du vieil homme.
-
-Nino se figea.
-
-Le vieil homme ramassa le fruit, le lui lança avec une adresse déconcertante et lui adressa un sourire.
-
-— Je crois, souffla Nino, que je viens de me faire humilier par un grand-père.
-
-Victor se mit à rire.
-
-Le rire leur fit du bien.
-
-***
-
-Lorsqu'ils reprirent le chemin du camp, les cinq étaient plus tranquilles.
-
-Ils avaient découvert des habitants qui connaissaient véritablement l'île, et dont la présence changeait tout : ce lieu n'était pas un désert abandonné à la première bande d'aventuriers qui y débarquait.
-
-Julien se demanda si Clara les avait rencontrés.
-
-Il n'osa pas croire qu'ils en savaient davantage.
-
-À l'approche de la plage, Nino s'arrêta.
-
-— Vous entendez ?
-
-Un bruit profond venait de la mer.
-
-Ils avancèrent jusqu'à une hauteur dégagée.
-
-À l'horizon, un navire apparaissait.
-
-Pas une petite barque.
-
-Un grand bâtiment à voiles, dont la silhouette se découpait sur le soleil.
-
-Victor plissa les yeux.
-
-— On est à quelle époque, déjà ?
-
-Savio regarda longuement le bateau.
-
-— On va peut-être le savoir.
-
-Julien sentit la barrette contre sa paume.
-
-Un navire signifiait des voyageurs.
-
-Des voyageurs signifiaient des histoires.
-
-Et peut-être que l'une de ces histoires parlerait enfin de Clara.
+Aucun des trois ne savait encore dans quel monde il venait d'entrer.
 
 ---
 
 ## Chapitre 18 — Autour du feu
+
+Les cinq hommes, eux, ignoraient tout du voyage de Clara vers l'île maudite. Sur la première île, ils venaient de découvrir un navire au large.
 
 Le navire aborda l'île en fin d'après-midi.
 
@@ -6009,7 +6160,7 @@ Victor lui saisit le bras.
 
 Le capitaine continua, plus doucement :
 
-— Elle nous a manqué après son départ.
+— Elle nous a manqué après son départ. Elle a même soigné l'un de mes hommes, quand il s'est ouvert le bras. Sans elle, il aurait peut-être bien plus mal fini.
 
 Un silence suivit.
 
@@ -6887,65 +7038,9 @@ Il regarda ses compagnons.
 
 ---
 
-## Chapitre 22 — L'étrangère et les deux pirates
+## Chapitre 22 — L'étrangère au bord du fleuve
 
-Clara avait découvert qu'un capitaine pouvait être très têtu.
-
-Elle avait également découvert qu'il existait quelque chose de plus têtu qu'un capitaine.
-
-Elle-même.
-
-Lorsque l'homme avait refusé de la conduire jusqu'à l'île maudite, elle avait décidé d'en parler aux autres marins. Deux d'entre eux lui avaient fait confiance : Malo, qui savait naviguer dans des eaux difficiles, et Solan, plus jeune, dont la curiosité avait survécu à plusieurs voyages malheureux.
-
-Ils avaient préparé une embarcation, pris des provisions et quitté le navire avec l'accord réticent de leur capitaine, malgré ses avertissements.
-
-Clara avait promis qu'ils reviendraient lorsqu'ils auraient retrouvé quelque chose.
-
-Le capitaine lui avait demandé :
-
-— Quoi, exactement ?
-
-Elle avait répondu :
-
-— Un moyen de rentrer chez moi.
-
-Il n'avait pas cherché à la faire changer d'avis une deuxième fois.
-
-***
-
-L'île maudite n'avait rien offert de particulièrement accueillant.
-
-Il y avait eu les rochers, le vent, la grotte et, plus profond, cette salle impossible que le capitaine n'avait connue qu'à travers des histoires.
-
-Malo avait regardé les inscriptions.
-
-— Je n'aime pas ça.
-
-Solan, lui, avait touché la pierre avec fascination.
-
-— C'est comme si quelqu'un avait construit une porte à l'intérieur d'une montagne.
-
-Clara avait reconnu le principe avant les deux autres.
-
-Elle n'avait pas compris le mécanisme. Pas plus que Victor ou les garçons auparavant.
-
-Mais elle avait vu ce genre de passage.
-
-Une ouverture, plusieurs signes, cette étrange impression que l'air lui-même était devenu une surface.
-
-— Je crois que c'est le bon endroit.
-
-Malo avait soupiré.
-
-— Vous disiez aussi ça avant de partir de notre navire.
-
-— Et vous êtes toujours là pour me le rappeler.
-
-Ils avaient franchi le passage ensemble.
-
-Puis ils avaient découvert l'Égypte.
-
-***
+Bien avant que les cinq amis ne franchissent à leur tour le portail de l'île maudite, Clara, Malo et Solan en avaient découvert l'autre côté.
 
 La première difficulté de Clara fut la chaleur.
 
@@ -9970,3 +10065,6 @@ Trois chemins étaient déjà connus.
 Et derrière chacun se cachaient d'autres portes.
 
 **FIN DU TOME 1 — PREMIER JET**
+
+---
+
