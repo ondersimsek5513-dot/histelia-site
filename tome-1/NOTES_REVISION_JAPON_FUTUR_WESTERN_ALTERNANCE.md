@@ -8,7 +8,7 @@ Statut : NOTE DE TRAVAIL VALIDÉE PAR L'AUTEUR — réécriture du manuscrit et 
 - Ne PAS enchaîner l'aventure au Japon, le monde futuriste et le Far West dans deux chapitres consécutifs.
 - Les trois escapades doivent être **entrecoupées de chapitres consacrés à l'Égypte**, à Clara, Dara, la situation politique et aux enjeux de la rébellion.
 - Conserver l'effet de rupture : chaque nouvelle époque est une parenthèse immersive (ambiance, humour, danger) qui contraste avec la gravité des épisodes égyptiens.
-- Les épisodes futuriste et western doivent être améliorés séparément avec l'auteur AVANT leur réécriture définitive ; leurs nouvelles intrigues ne sont pas encore validées.
+- L'épisode du **futur est validé** par l'auteur, comme celui du Japon ; le **Far West reste à construire et valider** avant la réécriture définitive.
 - Éviter les intrigues japonaises inutilement longues et ne pas détourner le tome de sa trame égyptienne. Préserver les raccords et conséquences à long terme.
 - La numérotation actuelle du roman est de **31 chapitres** ; l'ancien chapitre 25 « L'or ne vaut rien » contient actuellement Japon + Futur et l'ancien chapitre 26 « Au pays où l'or commande » traite du Western. Cette structure est à réorganiser ultérieurement après conception des trois récits.
 
@@ -46,14 +46,66 @@ Statut : NOTE DE TRAVAIL VALIDÉE PAR L'AUTEUR — réécriture du manuscrit et 
 - Savio pourra comparer ces dessins à ses propres observations et aux fragments égyptiens ; découverte qui renforce la piste d'un réseau interconnecté.
 - Départ vers le portail avec le tantō et les relevés : possibilité de retour au Japon dans un tome futur, mais pas de grande intrigue supplémentaire à ce stade.
 
-## Monde futuriste — À CONCEVOIR AVEC L'AUTEUR
+## Monde futuriste — SCÉNARIO VALIDÉ PAR L'AUTEUR (à intégrer lors de la réécriture)
 
-Éléments actuels du manuscrit pouvant servir de base, à valider/retravailler :
-- Société très avancée, or devenu un matériau sans valeur commerciale.
-- Nino trouve une utilité inattendue à son téléphone du XXIe siècle comme objet de collection ancien ; vente à un collectionneur, avec coût émotionnel lié à ses photos.
-- Obtention d'un dispositif de protection futuriste dont les capacités sont limitées et mal connues.
-- Toute photographie du sanctuaire japonais conservée sur ce téléphone serait perdue en cas de vente : le croquis manuscrit est donc essentiel.
-- Les scènes et péripéties futuristes nouvelles restent à discuter ; ne pas inventer une validation.
+### 1. Une civilisation merveilleuse, mais entièrement contrôlée
+
+- Nino et Raoul découvrent une métropole futuriste spectaculaire : grands immeubles, transports autonomes, robots, interfaces intelligentes, automatisation quasi totale.
+- La ville semble d'abord idéale, propre et confortable. La surveillance et les services reposent sur une **identité numérique** obligatoire, dont nos voyageurs sont dépourvus.
+- Sans identité reconnue, ils ne peuvent pas payer de repas ni accéder aux services, même quand ils ont des objets de valeur. **L'or n'a pratiquement aucune valeur**, car il est désormais facile à produire.
+- Conserver un ton d'émerveillement et de comédie, puis faire émerger un envers du décor plus sombre sans transformer cette escapade en seconde rébellion.
+
+### 2. Le musée de leur propre époque
+
+- Ils visitent un **musée consacré au passé**, où des objets du XXIe siècle sont exposés comme des antiquités.
+- Nino reconnaît des objets quotidiens de son époque et saisit le potentiel commercial de **son téléphone et de quelques autres objets authentiques du XXIe siècle**. Réactions comiques et dépaysement.
+- Le téléphone contient des photos et souvenirs de ses amis : le céder constitue un vrai sacrifice personnel.
+- **Continuité impérative Japon → futur :** les symboles photographiés sur le socle de la statue japonaise doivent aussi avoir été recopiés dans le carnet, conservé lorsque le téléphone est vendu.
+
+### 3. L'enfant des quartiers abandonnés
+
+- À la sortie du musée, **un enfant des bidonvilles futuristes leur fait la manche**.
+- L'enfant révèle l'envers du décor : sous la ville automatisée vivent des exclus qui n'ont pas d'identité numérique ou dont l'accès aux services a été révoqué.
+- Il est **débrouillard, intelligent, malicieux**, pas simplement une figure de misère. Il survit notamment en dérobant de petites babioles dans les quartiers riches.
+- Nino et Raoul lui demandent **où vendre leurs antiquités**. Il devient leur guide à travers les zones marginales de la métropole.
+- Le contraste riche/pauvre doit être concret et visuel ; évitons une longue digression politique.
+
+### 4. La boutique cachée du receleur
+
+- L'enfant les conduit dans un **magasin clandestin, caché, encombré d'appareils et d'objets de toutes les époques**.
+- Le commerçant est un magouilleur rusé, sympathique en surface mais peu fiable, habitué à racheter les petits objets volés par l'enfant. **Il reconnaît le garçon et accepte de faire affaire grâce à lui**.
+- Le marchand commence par sous-évaluer le téléphone et les autres antiquités. L'enfant connaît ses ruses, Nino a déjà vu la valeur de ces objets au musée : ils ne doivent pas être naïvement escroqués.
+- Le circuit clandestin permet un **échange sans identité numérique officielle** (crédits utilisables dans les circuits parallèles, troc de matériel, produits ou équivalents), ce que les magasins réguliers refuseraient.
+
+### 5. Le vieil assistant IA comique — POINT CENTRAL VALIDÉ
+
+- La boutique possède un **assistant d'intelligence artificielle / robot d'ancienne génération**, jugé **vieux et défaillant** par les habitants de cette époque, mais extraordinaire aux yeux de Nino et Raoul.
+- Capacités possibles : conversation naturelle, identification d'objets, projections holographiques, traduction limitée et analyses utiles ; failles : interprétations trop littérales, informations parasites, diagnostics erronés, pannes occasionnelles. **Il reste parfois vraiment compétent**, pas juste un gag inutile.
+- L'assistant est **excessivement poli**, prend au premier degré les plaisanteries de Nino et contredit parfois son propriétaire avec des remarques embarrassantes sur ses pratiques commerciales.
+- Le commerçant en a assez, lui ordonne de se taire ; Nino, émerveillé, **montre très vite un intérêt évident**. **Le marchand le remarque immédiatement** et y voit une nouvelle occasion d'affaire : essayer de lui refiler cette « vieille machine » à un tarif avantageux pour lui.
+- Raoul reste vigilant et Nino doit négocier ; le contraste entre ce robot jugé obsolète dans le futur et prodigieux pour le XXIe siècle doit être visible.
+- L'assistant IA est destiné à **repartir avec les personnages comme compagnon récurrent**, au potentiel humoristique et narratif utile, mais limité : ne jamais le rendre omniscient ni capable de résoudre automatiquement tous les obstacles ou tous les portails.
+
+### 6. Transaction finale validée en trois volets
+
+La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** doit rapporter une contrepartie suffisamment importante pour :
+
+1. **Aider concrètement l'enfant** (et ses proches, si présents dans la rédaction finale), par des ressources ou une sécurité matérielle durable ; pas seulement une petite pièce symbolique.
+2. **Acquérir un dispositif futuriste de protection portatif** que le groupe utilisera plus tard en Égypte pour protéger des civils. Technologie obsolète dans le futur mais extraordinaire pour eux, avec **autonomie limitée, fonctionnement imparfait et contraintes réelles**, pas une solution magique à la guerre.
+3. **Obtenir le vieil assistant IA du marchand**, compagnon récurrent de Nino, source de situations loufoques et possiblement d'une aide inattendue plus tard.
+
+- La négociation doit garder de l'humour et du suspense, avec le marchand opportuniste qui cherche à valoriser son robot obsolète dès qu'il voit l'enthousiasme de Nino.
+- Conserver une **scène émotionnelle** avant la vente du téléphone, dernier regard sur les photos de ses amis. Nino choisit délibérément de le céder.
+- La relation Nino–Raoul évolue : après le Japon où Raoul a été décisif dans le sauvetage, **c'est Nino qui trouve la solution commerciale et humaine dans le futur**.
+- Le garçon est davantage qu'un bénéficiaire : c'est lui qui permet la rencontre avec le marchand et aide à éviter l'arnaque.
+- Ne pas se disperser dans un nouveau mouvement insurrectionnel contre le régime du futur : l'Égypte demeure le fil politique central.
+
+### 7. Raccords futurs impératifs
+
+- Le **tantō japonais**, les **croquis des symboles du sanctuaire**, l'**assistant IA** et le **dispositif de protection** doivent rester traçables et cohérents lors des épisodes ultérieurs.
+- Les scènes de l'Égypte doivent s'alterner entre Japon, futur et Western : l'aventure futuriste ne suit pas immédiatement le Japon dans l'édition définitive.
+- Le retour en Égypte avec les objets doit correspondre à la chronologie révisée de l'affrontement et des secours aux civils ; le personnage IA devra être intégré à l'inventaire et aux réactions des autres.
+- **Aucune écriture du manuscrit et aucune publication Wix ne sont autorisées par cette seule sauvegarde** : attendre la mise au point de l'aventure Western, puis appliquer l'alternance et contrôler les raccords.
 
 ## Far West — À CONCEVOIR AVEC L'AUTEUR
 
@@ -77,4 +129,4 @@ Branche : main
 Manuscrit : tome-1/manuscrit.md
 Site Wix Histelia relié à ce manuscrit : modifications à publier seulement après mise en récit et vérification.
 
-**Prochaine étape :** approfondir la version futuriste avec l'auteur, puis la version western, avant d'effectuer la réécriture et l'alternance sur le site.
+**Prochaine étape :** concevoir et valider l'aventure du Far West avec l'auteur, puis réécrire les trois escapades et insérer les chapitres égyptiens entre elles avant publication sur le site.
