@@ -1,6 +1,6 @@
 # HISTELIA — LES MARCHANDS DU TEMPS
 
-*Tome 1 — Lecture publique. Chapitre 1 réécrit (V3) ; prénoms définitifs harmonisés dans les 32 chapitres ; chapitres 2 à 32 en cours de révision stylistique.*
+*Tome 1 — Lecture publique. Chapitre 1 réécrit (V3) ; prénoms définitifs harmonisés dans les 31 chapitres ; chapitres 2 à 31 en cours de révision stylistique.*
 
 ## Chapitre 1 — Une idée qui ne vaut pas de l'or
 
@@ -5280,241 +5280,65 @@ Raoul hésita.
 
 — On va peut-être commencer par choisir ensemble.
 
-Le lendemain leur réservait une découverte importante.
-
 Mais ce soir-là, pour la première fois depuis leur arrivée, ils eurent le sentiment que les cinq personnes autour du camp constituaient réellement une équipe.
 
----
-
-## Chapitre 16 — Ceux qui connaissent l'île
-
-Au matin, Savio décida que la carte ressemblait suffisamment à une carte pour être utile.
-
-Nino n'était pas d'accord.
-
-— Là, dit-il en pointant le milieu du papier, on dirait une patate avec une oreille.
-
-— C'est le relief central.
-
-— Et là, c'est quoi ?
-
-— Une zone pas encore explorée.
-
-— Ça ressemble à une autre patate.
-
-Victor s'approcha.
-
-— Est-ce qu'on peut arrêter de comparer notre seul outil d'orientation à un repas ?
-
-Julien prit la carte.
-
-Les marques que Nino avait découvertes sur un tronc se situaient près d'un chemin étroit. Ils décidèrent de le suivre, cette fois sans s'éloigner les uns des autres.
-
-Raoul marchait en tête avec Savio, qui notait chaque bifurcation.
-
-Nino observait les arbres avec le sérieux neuf de quelqu'un qui avait enfin fourni une découverte utile.
-
-Il repéra d'autres entailles, puis des pierres disposées à intervalles réguliers le long du chemin.
-
-— Quelqu'un entretient ce passage, dit-il.
-
-Savio examina les pierres.
-
-— C'est possible.
-
-— Tu vas encore dire qu'il faut vérifier ?
-
-— Oui.
-
-— Un jour, j'aurai une idée et tu diras directement « bravo ».
-
-— Il faudra vérifier.
-
 ***
 
-Ils atteignirent un ruisseau.
+Le lendemain, Nino voulut absolument retrouver les entailles qu'il avait découvertes.
 
-De l'autre côté se trouvaient trois personnes.
+— Pour une fois que je trouve quelque chose avant Savio, on ne va pas laisser tomber.
 
-Deux adultes et un adolescent portaient des paniers. Ils s'arrêtèrent immédiatement en voyant surgir les étrangers du sous-bois.
+— Je les ai notées sur la carte, répondit Savio.
 
-Pendant plusieurs secondes, les deux groupes s'observèrent.
+— Voilà. Tu confirmes officiellement ma découverte.
 
-Julien leva lentement les mains pour montrer qu'il n'avait pas l'intention de les menacer.
+Ils suivirent les marques à travers les arbres. Le sentier devenait moins net par endroits, puis reparaissait entre deux rochers. Rien ne permettait de savoir qui l'avait emprunté, ni depuis combien de temps.
 
-Raoul recula d'un pas.
+Raoul s'arrêta devant une bande de sable à demi cachée par la végétation. Deux pieux usés se dressaient près d'une grosse pierre. Un morceau de corde effilochée pendait encore à l'un d'eux.
 
-Savio essaya une salutation.
+— On a attaché des embarcations ici, dit-il.
 
-Les habitants ne répondirent pas dans une langue qu'il connaissait.
+Savio examina le rivage sans toucher aux traces.
 
-Nino fit un sourire immense.
+— Ça prouve au moins que des gens peuvent accoster sur cette partie de l'île.
 
-— Bonjour !
+Julien se retourna vers la mer.
 
-L'un des adultes le regarda avec perplexité.
+— Donc Clara a peut-être quitté l'île en bateau.
 
-Nino montra sa propre poitrine.
+— Peut-être, répondit Savio. Mais on ne sait toujours pas avec qui.
 
-— Nino.
+Nino avait grimpé sur un rocher un peu plus haut.
 
-Puis il désigna un autre membre du groupe.
+— Hé ! Venez voir !
 
-— Julien.
+Victor leva les yeux.
 
-Victor murmura :
+— Quoi, encore une corde ?
 
-— On va vraiment leur présenter toute la classe ?
+— Beaucoup plus gros.
 
-— Tu préfères qu'ils nous prennent pour des gens hostiles ?
+Les quatre autres le rejoignirent.
 
-Un des habitants fit un geste de la main. Nino tenta de l'imiter.
+À l'horizon avançait une silhouette sombre, découpée sur la lumière de l'après-midi. Une coque haute. Plusieurs voiles. Un grand navire qui se dirigeait vers leur côte.
 
-Il le fit exactement à l'envers.
+Nino plissa les yeux.
 
-L'adolescent éclata de rire.
+— Là, on est définitivement loin du Club Med.
 
-Nino se redressa.
+Raoul observa la direction du bâtiment.
 
-— Voilà. On communique.
+— Il pourrait venir mouiller dans cette anse.
 
-L'adulte le plus âgé observa un moment les sacs, les chaussures et les gestes du groupe. Il ne semblait ni agressif ni particulièrement ravi de cette rencontre.
+Julien glissa la main dans sa poche, autour de la barrette de Clara.
 
-Il désigna le ruisseau, puis un passage plus haut.
+Ils avaient cherché des traces de son passage pendant des jours.
 
-Savio comprit qu'il cherchait probablement à leur indiquer un endroit où traverser sans dégrader la berge.
-
-Ils suivirent son geste.
-
-Raoul resta un peu en retrait, laissant les autres avancer.
-
-***
-
-La rencontre fut plus simple que prévu et beaucoup moins instructive qu'ils l'avaient espéré.
-
-Les habitants leur montrèrent un secteur où trouver de l'eau et un chemin évitant les terrains instables. En échange, les voyageurs aidèrent à relever un panier tombé dans le ruisseau. Savio essaya de comprendre les noms des lieux, mais la conversation avançait surtout par gestes.
-
-Ils finirent par atteindre une petite zone habitée, avec des abris soigneusement entretenus et des espaces de travail.
-
-Personne n'y vivait comme dans les films d'aventure que Nino connaissait.
-
-Les habitants avaient leurs tâches, leurs disputes, leurs habitudes, leurs enfants curieux et leur manière de regarder cinq inconnus qui se présentaient sans avoir été invités.
-
-Un vieil homme s'approcha d'eux.
-
-Il échangea quelques mots avec les premiers rencontrés puis désigna la direction de la côte.
-
-Il répéta un geste évoquant le mouvement d'un navire.
-
-Julien se redressa.
-
-— Un bateau ?
-
-Savio l'observa.
-
-— Il parle peut-être de gens venus par mer.
-
-Julien sortit la barrette de Clara.
-
-Il la montra avec précaution.
-
-— Une femme. Vous avez vu une femme avec ça ?
-
-Les regards se croisèrent.
-
-Le vieil homme examina l'objet, puis secoua la tête.
-
-Julien sentit l'espoir retomber.
-
-L'un des habitants évoqua de nouveau la mer et mima quelque chose qui ressemblait à plusieurs personnes transportant des caisses.
-
-— Des visiteurs ? demanda Victor.
-
-Savio acquiesça.
-
-— C'est plausible.
-
-Julien serra la barrette.
-
-Ce n'était pas encore une réponse.
-
-Mais l'île n'était plus entièrement silencieuse.
-
-***
-
-Ils restèrent assez longtemps pour comprendre qu'ils avaient une chose essentielle à faire : ne pas déranger ceux qui vivaient là.
-
-Savio demanda, avec beaucoup de gestes, quelles zones ils pouvaient emprunter. Les habitants leur montrèrent certains chemins et leur indiquèrent clairement qu'un secteur proche du rivage n'était pas destiné aux visiteurs.
-
-Julien accepta.
-
-Victor parut surpris.
-
-— On est venus pour retrouver Clara.
-
-— Et eux vivent ici, répondit Julien. On ne va pas leur imposer nos recherches.
-
-Raoul l'approuva d'un signe de tête.
-
-Nino observait un petit garçon qui s'amusait à faire rebondir un fruit sur une pierre plate.
-
-Il tenta de reproduire le geste.
-
-Le fruit lui échappa et roula jusqu'aux pieds du vieil homme.
-
-Nino se figea.
-
-Le vieil homme ramassa le fruit, le lui lança avec une adresse déconcertante et lui adressa un sourire.
-
-— Je crois, souffla Nino, que je viens de me faire humilier par un grand-père.
-
-Victor se mit à rire.
-
-Le rire leur fit du bien.
-
-***
-
-Lorsqu'ils reprirent le chemin du camp, les cinq étaient plus tranquilles.
-
-Ils avaient découvert des habitants qui connaissaient véritablement l'île, et dont la présence changeait tout : ce lieu n'était pas un désert abandonné à la première bande d'aventuriers qui y débarquait.
-
-Julien se demanda si Clara les avait rencontrés.
-
-Il n'osa pas croire qu'ils en savaient davantage.
-
-À l'approche de la plage, Nino s'arrêta.
-
-— Vous entendez ?
-
-Un bruit profond venait de la mer.
-
-Ils avancèrent jusqu'à une hauteur dégagée.
-
-À l'horizon, un navire apparaissait.
-
-Pas une petite barque.
-
-Un grand bâtiment à voiles, dont la silhouette se découpait sur le soleil.
-
-Victor plissa les yeux.
-
-— On est à quelle époque, déjà ?
-
-Savio regarda longuement le bateau.
-
-— On va peut-être le savoir.
-
-Julien sentit la barrette contre sa paume.
-
-Un navire signifiait des voyageurs.
-
-Des voyageurs signifiaient des histoires.
-
-Et peut-être que l'une de ces histoires parlerait enfin de Clara.
+Peut-être que ceux qui arrivaient connaissaient enfin son histoire.
 
 ---
 
-## Chapitre 17 — La fille qui donnait des ordres
+## Chapitre 16 — La fille qui donnait des ordres
 
 Bien avant que Julien ne retrouve sa barrette, Clara avait commencé un voyage dont personne, dans son monde, ne connaissait la direction.
 
@@ -6144,7 +5968,7 @@ Aucun des trois ne savait encore dans quel monde il venait d'entrer.
 
 ---
 
-## Chapitre 18 — Autour du feu
+## Chapitre 17 — Autour du feu
 
 Les cinq hommes, eux, ne savaient rien du voyage de Clara vers l'île maudite. Sur la première île, ils venaient de découvrir un navire au large.
 
@@ -6170,7 +5994,7 @@ Ils restèrent cachés.
 
 ***
 
-Les marins dressèrent un camp près du rivage, à distance des habitations de l'île. Une partie de l'équipage répara une embarcation pendant que les autres transportaient les réserves.
+Les marins dressèrent un camp près du rivage, dans une anse à l'abri du vent. Une partie de l'équipage répara une embarcation pendant que les autres transportaient les réserves.
 
 Nino commençait à souffrir de leur attente.
 
@@ -6444,7 +6268,7 @@ Pour Victor, c'était déjà le début d'une négociation.
 
 ---
 
-## Chapitre 19 — Dix jours et beaucoup d'or
+## Chapitre 18 — Dix jours et beaucoup d'or
 
 Victor attendit le lendemain matin pour aborder à nouveau le capitaine.
 
@@ -6706,7 +6530,7 @@ Pour Julien, ces trois jours étaient déjà trop longs.
 
 ---
 
-## Chapitre 20 — Trois jours vers l'inconnu
+## Chapitre 19 — Trois jours vers l'inconnu
 
 Le premier jour, Victor eut le mal de mer.
 
@@ -6940,7 +6764,7 @@ Et, sous leurs pas, la pierre sembla rendre un écho qui ne venait pas tout à f
 
 ---
 
-## Chapitre 21 — Le deuxième mécanisme
+## Chapitre 20 — Le deuxième mécanisme
 
 Savio retrouva dans cette grotte la sensation qui l'avait saisi lors de leur première découverte : l'impression d'être entré dans un endroit qui ne voulait pas être compris.
 
@@ -7134,7 +6958,7 @@ Il regarda ses compagnons.
 
 ---
 
-## Chapitre 22 — L'étrangère au bord du fleuve
+## Chapitre 21 — L'étrangère au bord du fleuve
 
 Bien avant que les cinq amis ne franchissent à leur tour le portail de l'île maudite, Clara, Malo et Solan en avaient découvert l'autre côté.
 
@@ -7344,7 +7168,7 @@ Et cette idée, elle n'était pas encore prête à l'affronter.
 
 ---
 
-## Chapitre 23 — La reine qu'ils cherchaient
+## Chapitre 22 — La reine qu'ils cherchaient
 
 Julien n'avait jamais autant détesté les compliments.
 
@@ -7718,7 +7542,7 @@ Elle n'avait simplement pas attendu qu'il vienne pour commencer une autre vie.
 
 ---
 
-## Chapitre 24 — Un peuple qui dit non
+## Chapitre 23 — Un peuple qui dit non
 
 Le représentant du pharaon arriva avec six soldats et un sourire.
 
@@ -7974,7 +7798,7 @@ Il restait désormais à lui donner une chance.
 
 ---
 
-## Chapitre 25 — Des signes dans les archives
+## Chapitre 24 — Des signes dans les archives
 
 Savio avait toujours aimé les bibliothèques.
 
@@ -8238,7 +8062,7 @@ Le premier, lui, allait bientôt se régler dans la douleur.
 
 ---
 
-## Chapitre 26 — L'or ne vaut rien
+## Chapitre 25 — L'or ne vaut rien
 
 Raoul vérifia trois fois que la porte vers l'Égypte était bien celle qu'ils venaient d'emprunter.
 
@@ -8552,7 +8376,7 @@ Mais, grâce à lui, ils ne revenaient pas les mains vides.
 
 ---
 
-## Chapitre 27 — Au pays où l'or commande
+## Chapitre 26 — Au pays où l'or commande
 
 La première chose que Nino vit fut un cheval.
 
@@ -8820,7 +8644,7 @@ Mais la décision de se battre appartenait à d'autres.
 
 ---
 
-## Chapitre 28 — Les premières victoires
+## Chapitre 27 — Les premières victoires
 
 Le pharaon apprit la nouvelle au milieu d'un repas.
 
@@ -9060,7 +8884,7 @@ Ou la détruire.
 
 ---
 
-## Chapitre 29 — Le pharaon perd son trône
+## Chapitre 28 — Le pharaon perd son trône
 
 Ils entendirent les tambours avant de voir l'armée.
 
@@ -9400,7 +9224,7 @@ Cette fois, il avait compris pourquoi elle le demandait.
 
 ---
 
-## Chapitre 30 — Un pays à eux
+## Chapitre 29 — Un pays à eux
 
 Le premier problème du nouveau pays fut de trouver une salle assez grande pour y réunir tout le monde.
 
@@ -9642,7 +9466,7 @@ Elle ne leur avait pas encore rendu la maison.
 
 ---
 
-## Chapitre 31 — Trois jours d'eau entre nous et chez nous
+## Chapitre 30 — Trois jours d'eau entre nous et chez nous
 
 Victor avait dessiné cinq flèches sur une feuille.
 
@@ -9872,7 +9696,7 @@ Et, peut-être, infiniment plus vaste.
 
 ---
 
-## Chapitre 32 — Derrière chaque porte
+## Chapitre 31 — Derrière chaque porte
 
 Savio demanda une table plus grande.
 
