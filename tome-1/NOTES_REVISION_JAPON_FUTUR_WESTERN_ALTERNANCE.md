@@ -5,10 +5,10 @@ Statut : NOTE DE TRAVAIL VALIDÉE PAR L'AUTEUR — réécriture du manuscrit et 
 
 ## Directives impératives pour les révisions à venir
 
-- Ne PAS enchaîner l'aventure au Japon, le monde futuriste et le Far West dans deux chapitres consécutifs.
-- Les trois escapades doivent être **entrecoupées de chapitres consacrés à l'Égypte**, à Clara, Dara, la situation politique et aux enjeux de la rébellion.
+- **Nino et Raoul explorent successivement le Japon, le Futur et le Far West, sans retour physique en Égypte entre ces voyages.** Ils rentrent en Égypte **une seule fois, après les trois aventures**.
+- **Pour la lecture uniquement**, intercaler des chapitres situés en Égypte : Clara, Dara, Savio et Julien poursuivent les préparatifs de la rébellion **en parallèle, en l'absence de Nino et Raoul**.
 - Conserver l'effet de rupture : chaque nouvelle époque est une parenthèse immersive (ambiance, humour, danger) qui contraste avec la gravité des épisodes égyptiens.
-- L'épisode du **futur est validé** par l'auteur, comme celui du Japon ; le **Far West reste à construire et valider** avant la réécriture définitive.
+- Les **trois scénarios Japon, Futur et Far West sont validés** par l'auteur ; leur réécriture en chapitres alternés reste à effectuer.
 - Éviter les intrigues japonaises inutilement longues et ne pas détourner le tome de sa trame égyptienne. Préserver les raccords et conséquences à long terme.
 - La numérotation actuelle du roman est de **31 chapitres** ; l'ancien chapitre 25 « L'or ne vaut rien » contient actuellement Japon + Futur et l'ancien chapitre 26 « Au pays où l'or commande » traite du Western. Cette structure est à réorganiser ultérieurement après conception des trois récits.
 
@@ -103,8 +103,8 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 ### 7. Raccords futurs impératifs
 
 - Le **tantō japonais**, les **croquis des symboles du sanctuaire**, l'**assistant IA** et le **dispositif de protection** doivent rester traçables et cohérents lors des épisodes ultérieurs.
-- Les scènes de l'Égypte doivent s'alterner entre Japon, futur et Western : l'aventure futuriste ne suit pas immédiatement le Japon dans l'édition définitive.
-- Le retour en Égypte avec les objets doit correspondre à la chronologie révisée de l'affrontement et des secours aux civils ; le personnage IA devra être intégré à l'inventaire et aux réactions des autres.
+- **Dans l'ordre des chapitres**, placer un chapitre égyptien entre Japon et Futur ; **dans la chronologie des personnages**, Nino et Raoul rejoignent directement le portail du Futur depuis la salle des portails, sans revenir en Égypte.
+- **Au retour unique en Égypte après le Far West**, les explorateurs rapportent le tantō, les croquis, le manteau, l'assistant IA **Nio**, les armes et leurs tenues. Conserver réactions et raccords temporels.
 - **Aucune écriture du manuscrit et aucune publication Wix ne sont autorisées par cette seule sauvegarde** : attendre la mise au point de l'aventure Western, puis appliquer l'alternance et contrôler les raccords.
 
 ## Far West — SCÉNARIO VALIDÉ PAR L'AUTEUR (à intégrer lors de la réécriture)
@@ -132,7 +132,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - Silas, Nino et Raoul repèrent un **camp de bandits près d'une ancienne mine**, dans un paysage rocheux.
 - **Ils attendent la nuit** plutôt que d'entrer dans le camp ou de tenter un marchandage direct.
 - Depuis un poste d'observation, ils discutent stratégie : nombre d'assaillants, position des sentinelles, endroit où le frère est détenu et position des armes.
-- **Thuggy**, nom donné à l'assistant IA **par Savio** (à introduire lors du passage égyptien situé entre les épisodes futuriste et western, pour justifier que Nino et Raoul l'utilisent déjà), effectue **soudain un scan** lorsque Nino lui demande de l'aide.
+- **Nio**, nom choisi et donné à l'assistant IA **par Nino**, pendant leur séjour dans le futur, effectue **soudain un scan** lorsque Nino lui demande de l'aide. Le robot porte donc déjà ce nom au Far West.
 - L'assistant révèle les **positions et signes d'activité** de plusieurs bandits, dont une grande partie **endormie**, ainsi qu'**une forte concentration de métal dans un chariot**. Les personnages suspectent qu'il s'agit des armes ; l'IA identifie des masses et présences, **pas avec certitude des intentions ou des identités**.
 - Un repérage visuel discret permet de découvrir **le frère de Silas attaché**, et de confirmer que les caisses du chariot correspondent à la cargaison.
 - Scène de surprise comique : technologie stupéfiante pour Silas, mais vieille et défaillante du point de vue de l'IA, parfois trop polie ou littérale.
@@ -140,14 +140,14 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 ### Sauvetage, incident comique et poursuite
 - **Raoul libère discrètement le frère** en profitant des bandits endormis ; Silas et Nino le couvrent.
 - Leur deuxième objectif est d'**extraire le chariot avec les caisses** sans réveiller le camp ; plus difficile que de libérer un homme.
-- Au pire moment, **Thuggy annonce trop fort et involontairement** que l'opération est réussie. Nino cherche à le faire taire, mais une sentinelle est alertée.
+- Au pire moment, **Nio annonce trop fort et involontairement** que l'opération est réussie. Nino cherche à le faire taire, mais une sentinelle est alertée.
 - Déclencher alors **une poursuite de western** avec chariot, poussière, chevaux et danger, sans résolution miraculeuse par l'IA ou l'armure futuriste. Le manteau protecteur de Nino n'est pas employé pour résoudre le sauvetage.
 - Le groupe réussit à sauver le frère et récupérer le convoi. De retour en ville, le marchand reconnaissant leur vend **plusieurs caisses de fusils et de munitions** à prix favorable en échange de leur or.
 - Dernières plaisanteries de Nino au saloon ; départ urgent pour l'Égypte. **Raoul garde sa tenue parce qu'il l'a achetée**, ce qui prépare le gag des retrouvailles.
 
 ### Raccords avec l'Égypte
-- Toujours appliquer le rythme **Japon → Égypte → futur → Égypte → Far West → Égypte** : une scène égyptienne doit permettre à **Savio de baptiser l'assistant « Thuggy »** avant sa participation nommée à l'aventure western.
-- En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Thuggy est déguisé en enfant**.
+- **Trajet effectif : Japon → salle des portails → Futur → salle des portails → Far West → salle des portails → Égypte.** Pas de retour intermédiaire. **Nino baptise lui-même son assistant « Nio » dans le Futur**, avant l'épisode western. Les chapitres égyptiens intermédiaires ne mettent en scène que les personnages restés sur place.
+- En Égypte, **Raoul reste habillé en cow-boy**, **Nino cache sous une toge son manteau militaire futuriste**, et **Nio est déguisé en enfant**.
 - Le bouclier du manteau : **une impulsion défensive d'au plus une minute, une fois par heure**, sous réserve de charge solaire suffisante ; ne pas déclencher ici une démonstration qui gâcherait sa première utilisation marquante en Égypte.
 - Préserver la logistique du transport des caisses à travers les portails ; traiter explicitement comment le chariot ou les armes sont acheminés, sans supposer qu'un véhicule puisse franchir tous les passages.
 - **Validation porte sur le scénario et ses corrections ; aucune réécriture du manuscrit ni publication Wix à cette étape.**
@@ -157,7 +157,7 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Dans le futur**, le dispositif de protection acquis chez le receleur n'est PAS un simple boîtier portatif : **il est intégré à une combinaison ou un manteau militaire futuriste au style impressionnant** (silhouette spectaculaire, légèrement excessive). **Nino** le porte, fasciné par son allure. L'assistant IA peut commenter ou surestimer son élégance avec sa politesse excessive. Le système de protection conserve des **limites d'autonomie et de fonctionnement**, et n'est pas une invulnérabilité permanente.
 - **Dans l'épisode Far West**, **Raoul** doit se retrouver **par nécessité** habillé comme un cow-boy (chapeau, long manteau de poussière / duster, bottes, éventuellement foulard), par exemple pour passer inaperçu ou remplacer ses vêtements inadaptés ; intégrer une justification crédible à la scène western à venir. Il n'adopte pas ce style uniquement pour plaisanter.
 - **Le contraste à leur retour en Égypte doit devenir un gag visuel marquant** : **Raoul en cow-boy du Far West, Nino cachant son manteau de science-fiction sous une toge, et l'assistant IA déguisé en enfant**. Prévoir un dévoilement comique progressif du manteau et des capacités de l'IA ; Nino s'amuse, Raoul assume sa tenue à contrecœur.
-- **Continuité avec l'alternance obligatoire** : Japon → Égypte → futur → Égypte → Far West → Égypte. Nino conserve son manteau protecteur entre les épisodes futuriste et western ; au retour final du Far West en Égypte, leurs deux tenues sont donc visibles ensemble. Le retour intermédiaire du futur peut déjà déclencher quelques premières réactions, mais garder la meilleure scène comique pour le retour après le Western.
+- **Alternance des chapitres, sans retours intermédiaires :** Japon (explorateurs) → Égypte (groupe sur place) → Futur (explorateurs) → Égypte (groupe sur place) → Far West (explorateurs) → Égypte (retrouvailles). Le gag des tenues n'a lieu qu'à leur retour unique après le Far West.
 - Le vêtement futuriste doit être clairement lié à l'**équipement défensif servant ensuite à protéger les civils égyptiens** : vérifier la cohérence de son mode d'activation, de sa portée et de sa réserve d'énergie lorsque le manuscrit sera réécrit.
 - **Toujours pas de réécriture ni de publication Wix à cette étape :** consigner la directive puis préparer le scénario du Far West avec l'auteur avant intégration globale.
 
@@ -174,13 +174,16 @@ La vente du **téléphone de Nino et de quelques antiquités du XXIe siècle** d
 - **Le corps de l'assistant IA est recouvert / habillé pour le faire passer, de loin, pour un enfant**. La supercherie doit rester imparfaite et offrir des occasions de comédie (posture, voix trop polie, remarques absurdes, besoin de se mettre en veille la nuit). Prévoir une apparence et une taille compatibles avec un déguisement d'enfant, sans transformer magiquement l'appareil.
 - **Raoul conserve son accoutrement complet de cow-boy acquis par nécessité dans le Far West** : chapeau, bottes, manteau western. Il tranche très visiblement avec les vêtements de l'Égypte antique.
 - **Gag visuel à leur retour :** Raoul en cow-boy, Nino en habit local dissimulant maladroitement une armure futuriste, « enfant » mystérieusement guindé et parfois bavard à leurs côtés. Les autres personnages découvrent progressivement l'origine de ces tenues et de leur nouvel accompagnateur ; jouer du contraste et des remarques spontanées.
-- **Continuité :** maintenir l'alternance Japon → Égypte → futur → Égypte → Far West → Égypte ; s'assurer que les objets et habits suivent physiquement les personnages et que le bouclier, sa recharge solaire et l'assistant restent cohérents pendant la rébellion.
+- **Continuité :** alterner les points de vue, non les déplacements : durant les trois voyages successifs, la rébellion évolue en Égypte en l'absence de Nino et Raoul. Le groupe se réunit après la troisième destination ; suivre les habits, objets, charge solaire et Nio.
 - Consigne uniquement de **scénarisation et sauvegarde** pour l'instant ; ne pas modifier ni publier le manuscrit avant validation de l'aventure western et de la restructuration complète.
 
 ## Principe d'architecture — VALIDÉ
 
-Alternance narrative stricte de principe :
-JAPON -> ÉGYPTE -> FUTUR -> ÉGYPTE -> FAR WEST -> ÉGYPTE.
+**Alternance des chapitres :** JAPON (Nino/Raoul) → ÉGYPTE (autres personnages) → FUTUR (Nino/Raoul) → ÉGYPTE (autres personnages) → FAR WEST (Nino/Raoul) → ÉGYPTE (retour unique).
+
+**Voyage réel des explorateurs :** JAPON → salle des portails → FUTUR → salle des portails → FAR WEST → salle des portails → ÉGYPTE. Aucune escale en Égypte pendant les trois aventures.
+
+**Nom officiel de l'IA : Nio**, donné **par Nino** dans le Futur. Les anciens noms et l'attribution du baptême à Savio sont caducs.
 
 La place exacte et la renumérotation future des chapitres doivent être travaillées une fois les trois épisodes conçus. Ne pas publier une nouvelle structure ou déplacer les chapitres de rébellion sans contrôle des raccords (archives de Savio, impact des objets rapportés, chronologie de la rébellion, premier affrontement, emploi de la protection futuriste).
 
@@ -191,4 +194,4 @@ Branche : main
 Manuscrit : tome-1/manuscrit.md
 Site Wix Histelia relié à ce manuscrit : modifications à publier seulement après mise en récit et vérification.
 
-**Prochaine étape :** les scénarios Japon, futur et Far West sont validés. Préparer leur réécriture en chapitres alternés avec l'Égypte, vérifier la chronologie et la logistique, puis publier uniquement sur instruction explicite de l'auteur.
+**Prochaine étape :** structurer et réécrire les deux récits parallèles (explorateurs vs. Égypte), vérifier la durée totale des trois aventures, la logistique et le retour unique, puis publier uniquement sur instruction explicite de l'auteur.
