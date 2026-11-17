@@ -5738,6 +5738,94 @@ Clara ferma les yeux.
 
 ***
 
+Le premier soir, on lui avait donné de quoi manger et une place près d'une cloison, suffisamment à l'écart pour qu'elle puisse se reposer. Le capitaine avait regagné sa cabine. À mesure que la nuit tombait, les voix des marins devenaient plus fortes.
+
+Clara cherchait à retrouver son chemin sur le pont lorsqu'un homme lui barra le passage. Elle l'avait déjà remarqué : grand, la barbe en désordre, toujours prêt à rire plus fort que les autres.
+
+— On vous a laissée toute seule ?
+
+— Je sais me débrouiller, merci.
+
+Il lui adressa un sourire appuyé.
+
+— Vous ne devriez pas. Sur un bateau, on trouve parfois de la compagnie.
+
+— J'ai dit non.
+
+Elle voulut le contourner. Il se déplaça avec elle.
+
+Au début, deux marins proches continuèrent leur conversation. Clara sentit pourtant sa gorge se serrer. Elle ne connaissait ni ces hommes ni leurs règles. Elle était seule, au milieu de la mer, sans aucune possibilité de partir.
+
+— Je suis une femme mariée, dit-elle d'une voix qu'elle s'efforça de rendre ferme. Une femme respectable. Laissez-moi passer.
+
+Ce n'était pas vrai pour le mariage. Mais elle espérait que cet argument lui offrirait au moins une distance que son refus n'avait pas obtenue.
+
+Le pirate éclata de rire.
+
+— Votre mari est donc bien loin.
+
+Il tendit la main vers elle. Clara recula, heurta le bastingage et sentit la panique monter.
+
+— Ne me touchez pas !
+
+L'homme lui saisit le poignet.
+
+Elle n'attendit pas de savoir ce qu'il ferait ensuite. Elle se dégagea d'un mouvement brusque et lui donna un coup de genou entre les jambes.
+
+Le pirate se plia en deux avec un bruit étranglé.
+
+Un silence stupéfait précéda une explosion de rires. Les hommes riaient de voir le plus entreprenant d'entre eux incapable de se redresser. Certains tapaient sur les tonneaux. L'un d'eux en perdit sa chope.
+
+Clara, elle, ne riait pas.
+
+Elle gardait les mains serrées contre elle et cherchait déjà par où fuir si l'homme se relevait.
+
+— Qu'est-ce qui se passe ici ?
+
+La voix du capitaine traversa le pont.
+
+Les rires s'interrompirent peu à peu. Le blessé de cette étrange bagarre tenta de se redresser.
+
+— Elle m'a frappé, capitaine !
+
+Le capitaine regarda Clara, puis le poignet qu'elle massait.
+
+— Et qu'avez-vous fait pour mériter cela ?
+
+Personne ne répondit tout de suite. Un marin finit par raconter l'essentiel, sans parvenir à cacher son sourire.
+
+Le visage du capitaine se ferma.
+
+— Je veux que tout le monde m'entende. Cette femme est sous ma protection tant qu'elle est à bord. Aucun homme ne lui impose sa compagnie. Aucun ne la touche. Et aucun ne la suit quand elle demande qu'on la laisse tranquille.
+
+Il se tourna vers le pirate.
+
+— Quant à toi, tu garderas tes mains pour les cordages. Encore un geste de ce genre et je te laisse au prochain mouillage.
+
+— Mais, capitaine...
+
+— J'ai terminé.
+
+L'homme baissa la tête. Les autres aussi avaient cessé de rire.
+
+Le capitaine fit dégager un espace où Clara pourrait dormir loin des couchettes des marins. Il lui précisa que personne n'avait à y entrer sans sa permission.
+
+— Je ne vous demande pas de me remercier, dit-il. J'aurais dû donner cet ordre avant que vous soyez obligée de vous défendre.
+
+Clara voulut répondre avec une de ses répliques habituelles. Elle n'en trouva aucune.
+
+— Merci, finit-elle par murmurer.
+
+Le capitaine hocha la tête.
+
+— Et maintenant, reposez-vous. Demain, vous aurez sûrement d'autres reproches à faire à mon navire.
+
+Un faible sourire lui échappa.
+
+Ce soir-là, elle comprit deux choses : elle ne pouvait pas faire confiance à tous ces hommes, mais leur capitaine n'était pas tout à fait celui qu'elle avait imaginé.
+
+***
+
 Les jours suivants furent un mélange de peur, d'obstination et de mauvais sommeil.
 
 Clara découvrit la vie à bord par ses aspects les moins romantiques : les repas irréguliers, les vêtements humides, les odeurs, les tâches sans fin et la façon dont le navire transformait une petite inquiétude en énorme problème dès que le vent se levait.
@@ -5808,7 +5896,7 @@ Quelques marins rirent, soulagés.
 
 Les jours suivants, Clara changea le pansement et surveilla l'apparition de signes d'infection. Le blessé se remit progressivement. Le capitaine, qui n'avait pas compris la moitié de ses explications, avait parfaitement compris que cet étranger savait rester utile quand tout le monde paniquait.
 
-Ce fut à partir de là que les hommes cessèrent de la considérer seulement comme une passagère bruyante.
+Ce premier soin changea quelque chose dans le regard de l'équipage. Le capitaine avait imposé le respect de ses limites dès son arrivée ; désormais, les marins découvraient aussi ce qu'elle pouvait leur apporter.
 
 Certains commencèrent à lui demander conseil pour leurs blessures, leurs mains abîmées par les cordages, ou les malaises provoqués par le travail sous le soleil. Elle les aidait lorsque ses connaissances suffisaient, et disait clairement quand elles ne suffisaient pas.
 
@@ -5849,6 +5937,8 @@ Il la regarda avec un sourire.
 — Vous pourriez en faire une habitude.
 
 Le capitaine éclata de rire.
+
+Cette fois, quand Clara demanda que l'on range les provisions autrement, les marins ne se tournèrent pas tous vers leur capitaine pour savoir s'ils devaient obéir. Ils savaient qu'elle pouvait se tromper, mais aussi qu'elle savait travailler à leurs côtés. Entre sa fermeté, les soins prodigués aux blessés et son talent pour ramener de l'ordre dans la pagaille, elle avait fini par gagner une place qui ne dépendait plus seulement de la protection du capitaine.
 
 ***
 
@@ -6056,303 +6146,301 @@ Aucun des trois ne savait encore dans quel monde il venait d'entrer.
 
 ## Chapitre 18 — Autour du feu
 
-Les cinq hommes, eux, ignoraient tout du voyage de Clara vers l'île maudite. Sur la première île, ils venaient de découvrir un navire au large.
+Les cinq hommes, eux, ne savaient rien du voyage de Clara vers l'île maudite. Sur la première île, ils venaient de découvrir un navire au large.
 
-Le navire aborda l'île en fin d'après-midi.
+Le bâtiment aborda en fin d'après-midi.
 
-Les cinq amis l'observèrent depuis un couvert de végétation, assez loin pour ne pas être vus, assez près pour distinguer les silhouettes qui descendaient dans une barque.
+Depuis les broussailles, Julien regardait les hommes descendre des tonneaux et des caisses. Certains portaient des sabres. D'autres un pistolet à la ceinture. Aucun ne semblait disposé à accueillir des touristes.
 
-Nino avait insisté pour qu'ils restent cachés.
+— Des pirates, murmura Nino.
 
-— Un navire à voiles, des épées, des types qui portent des tonneaux... Ça sent les pirates.
+— Ou des livreurs de boissons très en retard, répondit Victor.
 
-Victor avait regardé le ciel.
+Raoul étudiait les hommes qui surveillaient la plage.
 
-— Ou les livreurs de boissons les plus lents de l'histoire.
+— Ils ont des sentinelles. On ne s'approche pas comme ça.
 
-Savio n'avait pas ri.
+Julien serra la barrette de Clara dans sa poche.
 
-La coupe des vêtements, le navire et le matériel laissaient envisager une époque de navigation bien postérieure au Moyen Âge. Il ne pouvait pas donner de date précise.
+— C'est peut-être le seul équipage qui l'ait croisée.
 
-Raoul observait surtout les hommes.
+— Alors attendons de savoir à qui on a affaire, répondit Savio.
 
-— Ils sont armés. Et nous ne savons rien de leurs intentions.
-
-Julien se tourna vers lui.
-
-— Ils peuvent connaître l'île. Ils peuvent avoir vu Clara.
-
-— C'est possible. Ce n'est pas une raison pour courir leur serrer la main.
-
-Julien sentit sa patience diminuer.
-
-Depuis des jours, chaque nouvelle piste se terminait par un conseil de prudence.
-
-Pourtant, cette fois encore, le conseil n'était pas absurde.
-
-Ils décidèrent d'attendre.
+Ils restèrent cachés.
 
 ***
 
-Les pirates établirent un camp près du rivage, à distance de la zone habitée plus loin dans l'île.
+Les marins dressèrent un camp près du rivage, à distance des habitations de l'île. Une partie de l'équipage répara une embarcation pendant que les autres transportaient les réserves.
 
-Ils avaient apporté des provisions, du bois et plusieurs tonneaux. Certains inspectaient leur barque, d'autres nettoyaient du matériel. L'un d'eux chanta faux pendant presque une heure.
-
-Nino, qui s'était cru capable de rester immobile, commençait à regretter d'avoir eu cette excellente idée.
+Nino commençait à souffrir de leur attente.
 
 — Je vais devenir une plante.
 
-— Tais-toi, murmura Victor.
+— Une plante silencieuse, j'espère, murmura Victor.
 
-— Une plante très discrète.
+— C'est discriminatoire envers les végétaux.
 
-— Alors fais la photosynthèse en silence.
+Ils virent un homme faire déplacer trois fois le même tonneau. À chaque changement de place, les autres protestaient.
 
-Savio surveillait les échanges de signes entre les marins. Julien cherchait un visage féminin parmi eux.
+Quand le capitaine arriva enfin près du feu, le responsable de l'inventaire lui demanda où ranger les réserves.
 
-Il n'en vit aucun.
+— Loin du sable, d'abord, répondit le capitaine. Nous avons déjà eu cette conversation.
 
-Quand le soir tomba, le capitaine rejoignit son équipage autour d'un feu.
+Un marin, dont l'avant-bras portait encore la marque d'une blessure ancienne, leva sa chope.
 
-Il était facile à reconnaître, non parce qu'il portait les vêtements les plus luxueux, mais parce que les autres s'écartaient légèrement pour lui faire place.
+— Si elle était là, elle nous l'aurait rappelé avant même de poser le pied sur la plage.
 
-Il s'assit, prit une tasse et regarda le feu longtemps avant de parler.
+— Elle nous aurait surtout demandé pourquoi le feu est si près des caisses, ajouta un autre.
 
-— Elle aurait déjà trouvé trois raisons de nous faire refaire ce camp.
+Les rires coururent autour du foyer.
 
-Un marin éclata de rire.
+Le capitaine sourit malgré lui.
 
-— Elle aurait commencé par les tonneaux.
+— Et elle aurait eu raison.
 
-— Non, dit un autre. Par ce feu. Trop près du bois.
+Julien releva la tête.
 
-— Elle aurait surtout demandé qui avait mis les provisions près du sable, reprit le premier.
+— De qui ils parlent ?
 
-Le capitaine sourit.
+Victor suivait déjà leur conversation.
 
-Julien retint son souffle.
+— Je n'ai jamais vu quelqu'un venir de nulle part et vouloir réorganiser un navire entier, poursuivit le marin blessé.
 
-— De qui ils parlent ? murmura Victor.
+— Elle a commencé par nous engueuler, dit son voisin. Ensuite elle a soigné ton bras.
 
-Personne ne répondit.
+— Et toi, elle t'a appris à laver tes mains avant de toucher aux provisions.
 
-Un marin secoua la tête.
+— Je savais me laver les mains.
 
-— Je n'ai jamais vu une femme venir de nulle part et se mettre à donner des ordres à tout un équipage aussi vite.
+— Pas d'après elle.
 
-— Elle ne donnait pas toujours des ordres, dit le capitaine.
+Les hommes éclatèrent de rire.
 
-— Non, confirma un autre. Parfois elle nous expliquait pendant une heure pourquoi notre façon de faire était mauvaise.
+Le capitaine regarda les tonneaux, le feu, puis ses marins.
 
-Les hommes rirent.
+— Elle nous a donné des soucis, cette étrangère. Mais le pont est moins bien tenu depuis son départ.
 
-Julien sentit sa poitrine se serrer.
+Julien sentit son cœur accélérer.
 
-La façon dont ils en parlaient.
+La femme qui donnait des ordres, qui soignait les blessés, qui se disputait avec ceux qu'elle aidait : cela ressemblait trop à Clara pour être une simple coïncidence.
 
-La colère amusée.
+— Je crois qu'ils parlent d'elle, souffla-t-il.
 
-Cette description impossible à confondre.
+Victor lui serra le bras.
 
-— Clara, murmura-t-il.
+— Attendons d'être sûrs.
 
-Victor lui saisit le bras.
+Ils n'eurent pas l'occasion d'en entendre davantage.
 
-Le capitaine continua, plus doucement :
+Une voix retentit derrière eux.
 
-— Elle nous a manqué après son départ. Elle a même soigné l'un de mes hommes, quand il s'est ouvert le bras. Sans elle, il aurait peut-être bien plus mal fini.
+— Ne bougez plus.
 
-Un silence suivit.
+Un marin armé venait de les surprendre dans les broussailles. Il était arrivé par l'intérieur de l'île, en suivant la ronde des sentinelles.
 
-— Elle était sacrément décidée, dit un homme.
+Raoul leva les mains aussitôt.
 
-— Et elle avait ses raisons, répondit le capitaine.
+— Nous ne cherchons pas la bagarre.
 
-Julien n'entendit presque plus la suite.
+Le garde les conduisit vers le feu, où plusieurs pirates saisirent leurs armes.
 
-*Après son départ.*
+— Cinq hommes cachés près du camp, annonça-t-il.
 
-Elle avait quitté le navire.
+Le capitaine se leva.
 
-Vivante.
+— Vous nous espionnez ?
+
+Julien sentit toutes les conversations de Rome revenir dans sa mémoire. Il n'avait aucune envie de recommencer par une arrestation.
+
+— Nous cherchons quelqu'un. Nous avons entendu vos hommes parler d'une femme.
+
+— Ça ne vous donne pas le droit de vous cacher près de mes provisions, répliqua le capitaine.
+
+Raoul acquiesça.
+
+— Il a raison. Nous aurions dû nous annoncer.
+
+Victor lui lança un regard surpris.
+
+Le capitaine scruta les cinq hommes, leurs vêtements et leurs sacs.
+
+— Vous êtes armés ?
+
+— Nous avons de quoi nous protéger, répondit Raoul. Personne ne sortira rien.
+
+L'homme hésita, puis fit signe de tenir les intrus à distance du foyer.
+
+— Parlez d'ici.
 
 ***
 
-Le groupe sortit de sa cachette lorsque le capitaine se leva pour rejoindre le rivage.
+Julien prit la parole.
 
-Julien avança le premier.
+— Ma sœur a disparu. Nous avons retrouvé sa barrette dans la grotte, de l'autre côté de l'île. Nous espérons qu'elle a rencontré votre équipage.
 
-— Excusez-nous.
+Il ouvrit la main et montra le petit objet.
 
-Un marin saisit aussitôt son arme.
+Le capitaine l'examina de loin.
 
-Raoul leva les mains.
+— Je n'ai jamais vu cette barrette. Et une pièce de métal ne prouve pas que vous êtes son frère.
 
-— Nous ne sommes pas là pour vous attaquer.
+Julien encaissa la réponse. Il savait que Clara avait perdu la barrette avant de rencontrer ces hommes. Il l'avait montrée par réflexe, comme si ce morceau d'elle pouvait suffire à tout expliquer.
 
-Le capitaine dévisagea les cinq hommes surgis de la nuit.
+— Elle s'appelle Clara, reprit-il. Elle est infirmière. Elle donne des ordres même quand personne ne lui demande son avis.
 
-— Qui êtes-vous ?
+Un des pirates émit un petit rire.
 
-Julien ouvrit sa main.
+Le capitaine, lui, ne sourit pas.
 
-La barrette de Clara brillait faiblement à la lumière du feu.
+— Cela ressemble à une personne que j'ai connue. Mais vous pourriez avoir entendu son histoire sur cette île.
 
-— Nous cherchons une femme. Elle s'appelle Clara. Vous venez de parler d'elle.
+Victor s'avança d'un demi-pas.
 
-Le capitaine fixa l'objet.
+— Je m'appelle Victor. Elle voyageait avec moi quand elle a disparu. Julien est son frère.
 
-Puis le visage de Julien.
+Le capitaine releva brusquement les yeux.
 
-— Vous êtes de sa famille ?
+— Victor ?
 
-— Son frère.
+— Oui.
 
-Victor s'avança à son tour.
+— Le compagnon qui l'a conduite à un dîner dont elle n'a jamais compris la destination ?
 
-— Je suis son compagnon.
+Victor se figea.
 
-— Et nous, dit Nino, ses mauvaises fréquentations.
+— C'est bien moi.
 
-Julien le regarda.
+— Elle avait beaucoup de choses à dire sur vous.
 
-— Ce n'est pas le moment.
+— Ça ne m'étonne pas.
 
-— Je sais. Pardon.
+Le capitaine se tourna vers Julien.
 
-Le capitaine fit signe à ses hommes de baisser leurs armes.
+— Et elle parlait souvent de son frère. D'un homme qui voudrait la retrouver, même s'il devait retourner chaque pierre sur son passage.
 
-Il considéra longuement la barrette.
+Julien essuya rapidement ses yeux.
 
-— Je me souviens de cet objet.
+— Alors vous la connaissez.
 
-Victor se rapprocha.
+— Oui. Elle a voyagé sur mon navire.
 
 — Où est-elle ?
 
-Le capitaine regarda la mer.
+Le capitaine pesa sa réponse.
 
-— Ce n'est pas une réponse facile.
+— Lorsqu'elle est partie, elle était vivante. Depuis, je n'ai plus de nouvelles.
 
-— Dites-nous seulement si elle va bien, demanda Julien.
+Les jambes de Julien semblèrent céder. Il dut s'appuyer un instant sur le bras de Savio.
 
-Le silence du capitaine dura trop longtemps.
+Ce n'était pas une certitude qu'elle allait bien aujourd'hui.
 
-— Quand elle nous a quittés, répondit-il enfin, elle était vivante, en bonne santé et aussi décidée qu'au premier jour. Depuis, je n'ai plus de nouvelles.
+Mais quelqu'un l'avait vue vivante après sa disparition.
 
-Victor ferma les yeux.
+Le capitaine fit signe aux marins d'abaisser leurs armes.
 
-Ce n'était pas ce qu'il espérait.
+— Asseyez-vous. Et ne cherchez plus à approcher mon camp par les buissons.
 
-C'était pourtant bien plus que ce qu'il avait.
+Nino regarda le feu.
+
+— Promis. En plus, c'est plein de moustiques.
 
 ***
 
-Ils s'assirent autour du feu.
+Le capitaine leur servit à boire et laissa d'abord Julien reprendre ses esprits.
 
-Les pirates racontèrent comment Clara était apparue près de la grotte, comment elle avait embarqué, puis s'était progressivement imposée dans la vie du navire.
+Autour du foyer, l'équipage parlait de Clara par petites touches. Un marin évoqua le soin apporté à son bras. Un autre se rappela comment elle avait réussi à sauver des provisions de l'humidité.
 
-Les cinq retrouvèrent dans chaque anecdote quelque chose qu'ils connaissaient.
+— Elle se faisait obéir ? demanda Nino.
 
-Julien reconnut sa manière de donner des ordres pour éviter que les autres ne commettent des erreurs.
+— Elle savait surtout vous faire comprendre quand vous étiez en train de faire une bêtise, répondit le marin.
 
-Victor reconnut sa façon de négocier sans se laisser intimider.
+— Oui, c'est elle, souffla Victor.
 
-Nino reconnut les disputes qu'elle gagnait même lorsqu'elle n'avait pas entièrement raison.
+Le capitaine les laissa échanger quelques souvenirs, puis se montra plus réservé lorsque Julien demanda où elle était partie.
 
-Savio écoutait avec une attention presque professionnelle.
+— Deux de mes hommes sont partis avec elle, dit-il. Malo et Solan. Je n'ai revu aucun des trois.
 
-Le capitaine finit par évoquer l'île maudite.
+Julien redressa la tête.
 
-— Elle cherchait un passage, dit-il. Quelque chose qui, d'après elle, pouvait la ramener vers les siens.
+— Pourquoi sont-ils partis ?
 
-Julien se redressa.
+Le capitaine regarda la mer noire.
 
-— Un portail ?
+— Elle croyait qu'un passage pouvait la ramener chez elle. Elle s'est accrochée à une histoire que je lui avais racontée. Celle d'une île que les marins évitent.
 
-Le capitaine leva les yeux.
+— L'île maudite ? demanda Savio.
 
-— Vous connaissez ce mot.
+Un des pirates se signa.
 
-— Nous en avons traversé un pour arriver ici.
+Le capitaine considéra Savio.
 
-Les pirates échangèrent des regards.
+— Vous connaissez son nom ?
 
-Le capitaine, lui, ne sembla pas aussi surpris qu'ils l'auraient cru.
+— Nous avons entendu quelques histoires. Nous cherchons surtout à comprendre où Clara aurait pu aller.
 
-— Alors vous comprendrez pourquoi une vieille histoire l'a intéressée.
+Le capitaine hésita, puis finit par dire :
 
-Il leur raconta la légende.
+— À trois jours de navigation, environ, se trouve une côte de falaises. On raconte qu'une grotte y conduit à une salle qui ne ressemble à aucune autre. Je n'y ai jamais mis les pieds. Je n'ai que des récits de marins, et ils ne concordent pas toujours.
 
-À plusieurs jours de mer se trouvait une île que les marins évitaient. On la disait maudite. Certains prétendaient qu'une grotte y abritait un passage mystérieux. D'autres racontaient qu'on ne revenait jamais des endroits où il menait.
+Julien regarda Victor.
 
-Le capitaine ne prétendit pas connaître la vérité.
+Ils connaissaient les passages impossibles. La légende avait soudain un sens pour eux.
 
-Il avait simplement entendu ces récits au fil de ses voyages.
+— Une porte ? demanda Julien.
 
-— Je lui ai parlé de cette légende, dit-il. Je lui ai dit aussi de ne pas y croire trop vite.
+— Certains le prétendent.
 
-— Et elle est partie ? demanda Savio.
+— Nous en avons déjà traversé, répondit Savio. Celle de cette île nous a conduits ici.
 
-Le capitaine acquiesça.
+Le capitaine fixa longtemps les cinq hommes.
 
-— Avec deux hommes de mon équipage.
+Pour la première fois, il parut croire que Clara avait peut-être dit la vérité sur ses origines.
 
-Julien sentit ses mains se crisper.
+— Alors vous savez aussi que je ne peux pas vous garantir ce qui se trouve de l'autre côté.
 
-— Deux pirates ?
+— Nous ne le demandons pas, dit Julien. Seulement de nous conduire à l'île.
 
-— Deux compagnons qui lui faisaient confiance. Ils ont choisi de l'accompagner malgré mes avertissements.
+***
 
-— Vous les avez laissés faire ?
+Le capitaine secoua la tête.
 
-Le capitaine affronta son regard.
+— J'ai laissé partir Malo et Solan parce qu'ils étaient libres de choisir. Ils avaient confiance en Clara. Cela ne veut pas dire que j'ai cessé de m'inquiéter pour eux.
 
-— Ils étaient libres de partir. Je leur ai dit ce que je savais. Je n'allais pas les attacher à mon navire.
+Julien sentit revenir l'impatience qu'il contenait depuis des jours.
 
-Julien se leva.
+— Mais ma sœur est peut-être là-bas !
 
-— Alors emmenez-nous là-bas.
+— Ou plus loin. Ou perdue ailleurs. Je ne vous donnerai pas un espoir que je ne peux pas justifier.
 
-Le capitaine secoua immédiatement la tête.
+Victor s'approcha.
 
-— Non.
+— Nous pouvons payer le voyage.
 
-Victor avança.
+Le capitaine eut un regard froid.
 
-— Nous pouvons vous payer.
+— Ce n'est pas seulement une question d'or. Il faudrait une traversée, des vivres, des hommes qui acceptent de s'approcher de cette côte. Et je risque d'y perdre d'autres marins sans même retrouver les deux premiers.
 
-— Vous ne comprenez pas.
+Le feu crépitait derrière eux.
 
-— Nous comprenons très bien. Notre amie est là-bas.
+Julien détourna le regard. Il était incapable de reprocher à cet homme de vouloir protéger son équipage, même si ce refus le rendait fou.
 
-— Vous ne savez pas si elle y est encore, répliqua le capitaine. Vous ne savez pas si la légende dit vrai. Je refuse de risquer mon équipage pour un endroit que j'ai juré d'éviter.
+Raoul posa une main sur son épaule.
 
-Julien resta debout, les mains tremblantes.
+— On trouvera une solution.
 
-Raoul posa doucement une main sur son épaule.
+Le capitaine se leva.
 
-Il ne parla pas.
+— Pas cette nuit. J'ai promis à mes hommes qu'aucun ne serait entraîné là-bas contre son gré.
 
-Le capitaine regarda chacun des cinq hommes.
+Il retourna vers le rivage, laissant les cinq voyageurs près du feu.
 
-— Vous avez trouvé une piste. Je le comprends. Mais une piste n'est pas une destination sûre.
+Victor suivit des yeux les marins qui déchargeaient les dernières caisses.
 
-Il se leva.
+Le capitaine n'avait pas dit qu'un voyage était impossible.
 
-— Cette île vous a déjà amené assez loin. Ne me demandez pas d'aller plus loin ce soir.
+Il avait expliqué ce qui le rendait trop risqué.
 
-Il s'éloigna vers la plage.
-
-Les pirates reprirent leurs occupations, moins bruyamment qu'avant.
-
-Victor regarda le feu.
-
-Il connaissait cette sensation.
-
-Un homme venait de lui fermer une porte.
-
-Et Victor avait passé une bonne partie de sa vie à apprendre comment convaincre les autres de la rouvrir.
+Pour Victor, c'était déjà le début d'une négociation.
 
 ---
 
@@ -6382,13 +6470,11 @@ Le capitaine ne la regarda même pas.
 
 — Je ne suis pas à vendre.
 
-— Tant mieux, dit Victor. Je n'achète pas les gens.
+— Tant mieux, dit Victor. Je n'achète pas les gens. Vous m'avez expliqué hier ce qui vous retenait. J'ai réfléchi à la façon de régler ces problèmes.
 
-Il ouvrit la bourse.
+Il ouvrit la bourse. Quelques pièces d'or brillèrent au soleil.
 
-Quelques pièces d'or brillèrent au soleil.
-
-— J'achète un voyage.
+— Le ravitaillement, le temps, les réparations, la paye des volontaires : nous prendrons ces frais en charge.
 
 Le capitaine regarda enfin.
 
@@ -6404,19 +6490,29 @@ Nino se mordit les lèvres.
 
 Julien voulut intervenir, mais Victor avait déjà sorti une deuxième bourse.
 
-Il ne s'agissait pas d'une fortune improvisée. Les cinq avaient prévu de transporter de l'or et des objets de valeur provenant de leurs précédents voyages pour faire face aux situations où leur argent du XXIe siècle serait inutile.
+Les cinq avaient prévu de transporter des pièces et des objets de valeur issus de leurs précédents voyages. Leur argent du XXIe siècle ne valait rien dans ce port improvisé, mais l'or pouvait payer du temps et des provisions.
 
-Cette fois, le capitaine comprit qu'il n'avait pas affaire à des voyageurs désespérés sans ressources.
+— Vous craignez pour vos hommes, reprit Victor. Nous aussi. Nous ne vous demandons pas de les obliger à débarquer. Vous choisirez le mouillage, vous garderez les hommes nécessaires au navire et ceux qui ne veulent pas approcher des falaises pourront rester à bord.
 
-— Vous croyez que mes hommes oublieront les histoires de cette île pour quelques pièces ?
+— La côte est dangereuse, répliqua le capitaine. Et si une tempête nous surprend ?
 
-Victor lui montra le reste.
+Raoul prit la parole.
 
-Le capitaine resta silencieux.
+— Nous accepterons vos décisions de navigation. Vous ne nous promettez pas une arrivée sans risque. Vous nous menez seulement aussi près que vous le jugerez possible.
 
-— Non, dit-il enfin. Mais ils auront du mal à refuser de quoi vivre correctement pendant un bon moment.
+— Et mes deux hommes qui ne sont pas revenus ?
 
-Il referma la bourse.
+Julien répondit :
+
+— Nous les chercherons aussi. Ils ont aidé ma sœur.
+
+Le capitaine observa leurs visages. L'offre ne rendait pas la mer plus docile, mais elle changeait la nature du risque. Il ne s'agissait plus d'envoyer son équipage chercher un trésor imaginaire : on lui demandait de transporter des voyageurs, avec des moyens suffisants et des limites explicites, vers une côte où deux de ses hommes avaient disparu.
+
+Victor poussa doucement la seconde bourse.
+
+— Vous aurez le temps de consulter ceux qui devront prendre la mer. Personne n'est forcé.
+
+Le capitaine garda le silence, puis referma la bourse.
 
 — Il me faut du temps.
 
