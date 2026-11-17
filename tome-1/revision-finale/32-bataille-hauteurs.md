@@ -216,7 +216,7 @@ Malo et Solan firent avancer les enfants et les blessés. Clara prit un garçon 
 
 Le manteau vibra.
 
-— Durée maximale restante : vingt secondes, annonça Thuggy depuis l'abri.
+— Durée maximale restante : vingt secondes, annonça Thuggy, qui suivait le groupe sous sa capuche.
 
 — PAS BESOIN DE COMPTE À REBOURS ! cria Nino.
 
