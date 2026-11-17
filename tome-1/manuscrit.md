@@ -9332,1367 +9332,1449 @@ Et l'armée du pharaon était déjà en marche.
 
 ---
 
-## Chapitre 31 — Les premières victoires
+## Chapitre 31 — Les jours qui usent les rois
 
-Le pharaon apprit la nouvelle au milieu d'un repas.
+Il y avait davantage de pierres que d'hommes sur la table.
 
-Un officier s'inclina et annonça que plusieurs villages du fleuve avaient refusé les nouvelles obligations. Des hommes avaient repoussé des soldats. Des entrepôts avaient été repris. Les représentants royaux avaient dû quitter une partie du territoire.
+Savio avait représenté le Nil par une bande de tissu bleu, les villages par de petits galets et l'armée royale par une poignée de fèves. Il en ajoutait depuis cinq minutes.
 
-Le souverain posa sa coupe.
+— Tu peux arrêter ? demanda Nino.
 
-— Ils ont refusé ?
+— Les rapports annoncent d'autres renforts.
 
-L'officier s'inclina davantage.
+Savio ajouta deux fèves.
 
-— Oui, Majesté.
+— Non, sérieusement. Arrête.
 
-Le pharaon sourit.
+Dara observait cette étrange géographie aux côtés de Julien, Clara et des représentants des communautés. Raoul ne regardait pas le nombre de fèves. Il examinait les chemins qu'elles dessinaient entre les rives et les collines.
 
-Ce n'était pas un sourire de plaisir.
+— On ne tiendra pas contre eux en terrain ouvert, dit-il.
 
-— Ce peuple ne comprend décidément pas sa place.
+— Nous avons les armes que vous avez rapportées, rappela l'un des habitants.
 
-Il se leva lentement.
+— Nous avons quelques caisses de fusils et une quantité finie de munitions. Eux ont des milliers d'hommes, des bateaux, des chars, des réserves et l'habitude de se battre ensemble.
 
-Autour de lui, les dignitaires évitèrent son regard.
+Nino ne plaisantait plus.
 
-Il considérait depuis toujours ces habitants comme inférieurs, incapables de se gouverner, utiles seulement lorsqu'ils obéissaient et travaillaient au service du royaume.
+Thuggy, posé sur un tabouret où le soleil entrait par la fenêtre, tourna la tête vers Savio.
 
-L'idée qu'ils puissent le défier lui paraissait plus insultante que dangereuse.
+— Voulez-vous examiner des confrontations historiquement asymétriques ?
 
-— Envoyez davantage d'hommes, ordonna-t-il. Je veux que cette absurdité cesse avant qu'elle ne donne des idées aux autres.
+— Oui. Mais pas pour en reproduire une au hasard.
 
-L'officier s'inclina.
+Une lumière apparut au-dessus des pierres. Des schémas anciens se succédèrent : des troupes inférieures en nombre, des passages étroits, des flottes trop nombreuses pour manœuvrer, des commandants contraints de combattre sur un terrain qu'ils n'avaient pas choisi.
 
-Il hésita pourtant avant de sortir.
+Victor regarda une armée minuscule repousser une autre beaucoup plus grande.
 
-— Majesté, les témoins parlent d'armes étranges.
+— Donc ça s'est déjà fait.
 
-Le pharaon tourna la tête.
+— Oui, répondit Thuggy. Beaucoup de tentatives comparables se sont également terminées par une défaite. Les archives célèbrent plus volontiers les survivants.
 
-— Étranges ?
+— Voilà qui est rassurant, murmura Nino.
 
-— Des objets que nos hommes n'avaient jamais vus.
+Raoul arrêta la projection.
 
-Le souverain plissa les yeux.
+— Les exemples ne nous disent pas ce que cette armée va faire. Qui connaît ses habitudes ?
 
-Puis il répondit :
+Dara posa deux doigts sur la bande bleue.
 
-— Cela ne change rien. La force appartient à celui qui commande.
-
-***
-
-Dans le village, personne ne parlait de victoire.
-
-Pas encore.
-
-Dara comptait les familles revenues de leur travail et celles qui manquaient à l'appel. Clara organisait les provisions avec Malo et Solan. Victor essayait d'obtenir de nouvelles réserves auprès de communautés qui hésitaient encore à prendre parti.
-
-Julien vérifiait les nouvelles venues des autres villages.
-
-Nino l'observait.
-
-— Tu ressembles à un chef d'entreprise qui a oublié de dormir.
-
-Julien leva les yeux.
-
-— Tu as des informations utiles ?
-
-— Oui. Tout le monde est fatigué.
-
-— Très utile.
-
-— Et Dara te cherche.
-
-Julien se redressa.
-
-— Pourquoi ?
-
-— Parce que tu as posé les cartes sur sa table et qu'elle voudrait maintenant pouvoir manger.
-
-Julien regarda les documents éparpillés.
-
-— Elle aurait pu me le dire.
-
-— Elle me l'a dit à moi. C'est sa façon de faire savoir qu'elle ne veut pas te crier dessus.
+— Nous.
 
 ***
 
-La première action de résistance avait réussi.
+Les archives royales que le vieux scribe avait permis à Savio de consulter ne renfermaient pas de carte magique. Il y avait des listes de livraisons, des comptes de greniers, des décrets et le récit partial de campagnes passées.
 
-Des habitants avaient empêché qu'on emmène de nouvelles familles sous la contrainte. Les soldats présents, peu nombreux, avaient reculé devant une mobilisation qu'ils n'avaient pas anticipée.
+Savio aurait mis des semaines à rapprocher ces documents.
 
-Les armes rapportées d'autres époques avaient renforcé la confiance des rebelles, mais le succès avait surtout dépendu de leur nombre sur place, de leur coordination et de la décision collective de ne plus obéir.
+Thuggy les classa par motifs et en proposa des comparaisons. Il signalait les passages incertains, distinguait les dates connues de celles qu'il supposait et s'excusait parfois d'avoir mal interprété un mot.
 
-Les gens du village avaient accueilli les rescapés avec des cris de joie.
+Dara corrigeait les noms des rives. Des bateliers rectifiaient l'emplacement des embarcadères. Les habitants connaissaient des chemins qui n'avaient jamais figuré dans les registres.
 
-Puis ils avaient compté ceux qui étaient blessés.
+Au bout de plusieurs heures, Savio comprit ce que racontaient ces sources réunies.
 
-La deuxième confrontation fut moins favorable.
+L'armée royale avançait avec une masse de soldats considérable, mais elle consommait chaque jour plus de vivres qu'un village n'en produisait en une saison. Les approvisionnements dépendaient de transports réguliers sur le fleuve et de grands dépôts contrôlés par les officiers du pharaon.
 
-Des soldats arrivèrent plus nombreux, mieux préparés et décidés à ne pas reculer. Plusieurs habitants durent quitter leurs maisons.
+— Une armée pareille ne vit pas seulement de courage, dit Savio. Elle doit manger.
 
-Malo revint avec une embarcation chargée de familles.
+— Et les villages aussi, répondit immédiatement Clara.
 
-— Il faut de l'eau, dit-il. Et un endroit où les installer.
+Raoul acquiesça.
 
-Clara se mit aussitôt au travail.
+— On ne touche pas aux réserves des habitants. Ce sont les convois militaires qui nous intéressent.
 
-Solan, le visage couvert de poussière, s'occupa de transporter des couvertures.
+Thuggy fit apparaître une nouvelle colonne de documents.
 
-Raoul observa les hommes qui venaient d'arriver.
+— Autre élément : la dernière campagne du souverain a dépassé la durée prévue. Plusieurs de ses officiers lui avaient recommandé une pause. Il a exigé une progression immédiate.
 
-— Ils se battent avec courage, dit-il à Julien. Mais ils ne peuvent pas tout couvrir.
+Dara leva la tête.
 
-Julien regarda le matériel rapporté du Western.
+— Il déteste attendre.
 
-— On ne peut pas en faire apparaître d'autres.
+— Il déteste surtout qu'on apprenne qu'il a dû attendre, compléta un ancien du village.
 
-— Et même si on le pouvait, il faudrait encore des gens, du temps et de la chance.
+Thuggy poursuivit, très sérieusement :
 
-Julien ne répondit pas.
+— Hypothèse comportementale : susceptibilité élevée à l'humiliation publique et préférence récurrente pour une démonstration rapide d'autorité.
 
-Il se revoyait au Moyen Âge, convaincu qu'une poignée d'objets modernes allait changer une bataille.
+Nino se tourna vers Julien.
 
-Il ne voulait plus penser de cette manière.
+— J'avais un patron comme ça. Sauf que lui, il avait une voiture de fonction plutôt qu'une armée.
 
-***
+Raoul fixa le plan.
 
-Les villages voisins commencèrent à envoyer des messages.
-
-Certains proposaient de la nourriture.
-
-D'autres demandaient s'il était vrai que des gens avaient osé repousser les soldats royaux.
-
-D'autres encore suppliaient Dara de ne pas poursuivre la rébellion, par peur des représailles.
-
-Elle lut tous les messages.
-
-Elle répondit personnellement à ceux qui demandaient de l'aide.
-
-Clara la trouva un soir devant une pile de notes.
-
-— Tu ne peux pas tout faire.
-
-Dara leva les yeux.
-
-— Je pourrais vous dire la même chose.
-
-— Moi, je suis très douée pour donner des conseils que je ne suis pas.
-
-Dara sourit.
-
-— Je l'avais remarqué.
-
-Elle posa une lettre.
-
-— Ceux-là veulent nous rejoindre.
-
-— Combien ?
-
-— Pas assez.
-
-Clara considéra la pile.
-
-— Pour l'instant.
+— Alors notre problème n'est peut-être pas de vaincre toute son armée. C'est de l'amener à vouloir nous vaincre trop vite.
 
 ***
 
-Le pharaon avait d'abord envoyé une force limitée.
+La première semaine ne ressembla à aucune bataille que Nino avait imaginée.
 
-Après les premiers revers, il mobilisa des contingents beaucoup plus importants.
+On ne voyait ni ligne de front ni charge héroïque. Des messagers passaient d'un village à l'autre. Des pêcheurs surveillaient les rives. Des familles déplaçaient leurs réserves loin des lieux menacés.
 
-Les routes se remplirent de soldats. Des messagers annoncèrent que de nouvelles troupes avaient quitté plusieurs garnisons. Les rebelles comprirent que ce qui avait commencé comme un soulèvement local risquait de devenir un affrontement avec une armée entière.
+Un matin, plusieurs barges affectées aux transports militaires furent mises hors service dans une zone où personne ne se trouvait à bord. Leurs cargaisons ne rejoignirent pas les garnisons à la date prévue.
 
-Nino posa une main sur le manteau futuriste qu'il dissimulait sous son vêtement de lin.
+Les officiers royaux accusèrent les bateliers. Les bateliers accusèrent le mauvais état des installations. Les soldats attendirent des vivres qui n'arrivèrent pas.
 
-— On pourrait peut-être utiliser le bouclier.
+Une autre nuit, un dépôt militaire brûla à l'écart des habitations. Des responsables de la résistance avaient d'abord fait vérifier qu'aucune famille ni aucun prisonnier n'y était retenu.
 
-Raoul secoua la tête.
+À l'aube, une colonne de fumée se dressait au-dessus des terres sèches.
 
-— Pas pour remplacer une défense entière. On sait qu'il tient une minute au maximum et qu'il ne peut pas être réactivé avant une heure.
+Victor l'observa de loin avec Raoul.
 
-— Je sais.
+— Nous sommes encore en train de faire la guerre avec des objets et des méthodes qui ne sont pas de cette époque.
 
-— Et même si ça fonctionnait, tu crois qu'une minute de protection pourrait arrêter tous ces soldats ?
+— Cette fois, les gens d'ici ont choisi leur combat, répondit Raoul. Et ils connaissent ce qu'ils risquent.
 
-Nino regarda les personnes qui couraient entre les habitations.
+Victor baissa les yeux.
+
+— Ça n'efface pas ce qui s'est passé au Moyen Âge.
 
 — Non.
 
-Il rabattit la toge sur son manteau.
-
-Ce n'était pas un renoncement.
-
-C'était la première fois qu'il comprenait aussi clairement qu'un gadget extraordinaire ne remplaçait pas le courage des autres.
+Raoul ne chercha pas à le consoler.
 
 ***
 
-Lorsqu'un officier du pharaon arriva avec une dernière sommation, Dara le reçut devant plusieurs représentants du peuple.
+Les opérations contre les officiers royaux avaient des conséquences plus immédiates.
 
-L'homme annonça que le souverain exigeait leur reddition immédiate.
+Un commandant particulièrement cruel, connu pour faire enlever des familles entières après les refus de réquisition, fut intercepté par les résistants et ramené prisonnier.
 
-Clara sentit la colère monter, mais elle resta en retrait.
+Dara interdit qu'on le frappe.
 
-Dara répondit :
+Certains habitants protestèrent. Ils connaissaient les visages de ceux qu'il avait fait disparaître.
 
-— Nous voulons vivre libres et décider de notre avenir.
+— On veut qu'il réponde de ce qu'il a fait, dit-elle. Pas que nous devenions ses imitateurs.
 
-L'officier la regarda avec mépris.
+Le lendemain, un second officier abandonna son poste en apprenant qu'on recherchait les responsables des violences commises dans les villages. Ses soldats se disputèrent sur l'identité de celui qui devait reprendre le commandement.
 
-— Vous n'êtes pas en position d'exiger.
+Dans plusieurs garnisons, le moral se dégrada. Les hommes parlaient moins de punir les rebelles que du prochain repas et de la date à laquelle ils pourraient rentrer.
 
-Dara ne bougea pas.
+Mais cela ne signifiait pas qu'ils étaient battus.
 
-— Alors nous ne vous demandons plus votre permission.
+Au troisième jour, une patrouille royale surprit un groupe de messagers. Deux habitants furent tués. Un troisième rentra blessé, soutenu par ceux qui avaient réussi à s'enfuir.
 
-L'homme repartit.
+Clara le soigna jusqu'à la nuit.
 
-Le silence qui suivit fut long.
+Lorsqu'elle sortit de la pièce, Julien l'attendait.
 
-Julien s'approcha.
+— Comment il va ?
 
-— Tu sais qu'ils reviendront avec beaucoup plus d'hommes.
+— Il vivra probablement.
 
-Dara le regarda.
+Elle essuya ses mains.
 
-— Oui.
+— Ce n'est pas une histoire où tout le monde revient à la fin du chapitre, Julien.
 
-— Il faut peut-être chercher un moyen d'éviter un massacre.
+Son frère ne répondit pas.
 
-— Alors cherchons. Mais pas en acceptant de redevenir des esclaves.
-
-Julien acquiesça.
-
-La rébellion avait commencé à gagner l'attention du royaume.
-
-Ce qui pouvait la sauver.
-
-Ou la détruire.
-
----
-
-## Chapitre 32 — Le pharaon perd son trône
-
-Ils entendirent les tambours avant de voir l'armée.
-
-Le bruit montait de la route, régulier, obstiné, si vaste qu'il semblait venir du paysage lui-même.
-
-Dara se tenait près de Julien.
-
-— Combien ? demanda-t-elle.
-
-Savio avait observé les rapports des messagers et les mouvements visibles au loin.
-
-Il ne voulait pas donner de chiffre qu'il ne pouvait pas vérifier.
-
-— Beaucoup plus que nous, répondit-il.
-
-Clara avait déjà rassemblé les personnes chargées des familles et des provisions. Malo et Solan préparaient avec les bateliers l'accueil de ceux qui avaient dû quitter leurs maisons.
-
-Victor avait cessé de compter les dépenses.
-
-Nino avait cessé de se demander si quelqu'un finirait par le remercier.
-
-Raoul, lui, regardait la route d'un air sombre.
-
-— On ne gagne pas en leur faisant croire qu'on est plus forts qu'eux, dit-il.
-
-Julien se tourna vers lui.
-
-— Alors comment ?
-
-— Il faut déjà éviter de les laisser décider seuls de ce qui se passe ici.
-
-Cette phrase ne constituait pas un plan.
-
-Mais Julien comprit ce qu'elle signifiait.
-
-Ils ne pouvaient plus espérer une victoire militaire simple.
+Il ne s'était jamais senti aussi loin de leur première expédition, lorsque quatre amis avaient cru pouvoir traverser le passé et en ressortir riches.
 
 ***
 
-Le pharaon avait ordonné que la rébellion soit écrasée avant de se répandre.
+Le pharaon reçut les mauvaises nouvelles les unes après les autres.
 
-À ses yeux, un peuple qu'il considérait comme inférieur devait apprendre le prix de la désobéissance. Il avait envoyé davantage de troupes, puis demandé aux gouverneurs de fournir des hommes, des vivres et des transports.
+D'abord les barges. Ensuite le dépôt. Puis la capture de l'officier qu'il avait chargé de faire plier les villages.
 
-Plusieurs l'avaient fait.
+À chaque rapport, ses conseillers lui expliquaient que la campagne restait gagnable. Il fallait regrouper les transports, revoir les délais et éviter d'épuiser inutilement les garnisons.
 
-D'autres avaient commencé à hésiter.
+Le souverain n'entendait que les retards.
 
-Les villages où les soldats réquisitionnaient la nourriture se plaignaient. Des marchands refusaient désormais de mettre leurs bateaux à disposition. Des familles de soldats demandaient pourquoi leurs fils devaient combattre des gens qui réclamaient seulement de ne plus être asservis.
+— Un roi qui attend leur donne le temps de croire qu'ils peuvent gagner.
 
-Un gouverneur avait écrit au palais pour demander une négociation.
+Son général le plus expérimenté, Méren, s'inclina.
 
-Le pharaon avait fait brûler sa lettre devant ses conseillers.
+— Majesté, ils ne cherchent peut-être pas à gagner une bataille. Ils cherchent à vous obliger à en livrer une avant que nos forces soient rassemblées.
 
-— Je ne négocie pas avec des serviteurs, avait-il déclaré.
+Le pharaon se leva.
 
-Le gouverneur apprit cet affront quelques jours plus tard.
+— Vous appelez cela une stratégie ? Ils se cachent, pillent mes réserves et enlèvent mes officiers !
 
-Et choisit de ne pas envoyer les renforts demandés.
+— Précisément. Ils souhaitent nous retirer le choix du moment.
 
-***
+Le roi descendit les marches de son siège.
 
-Sur les rives, les rebelles ne savaient rien de ces premières fissures.
+— Alors je choisirai moi-même.
 
-Ils voyaient seulement l'armée qui approchait.
+Il ordonna de préparer son char et annonça qu'il marcherait avec l'armée.
 
-Les caisses d'armes du Western avaient apporté une force réelle à la résistance. Elles ne suffisaient pas à protéger tous les villages ni à compenser le nombre des soldats.
-
-Lorsqu'une première position fut perdue, plusieurs hommes revinrent blessés.
-
-Un des représentants qui avait voté pour la résistance manquait à l'appel.
-
-Dara insista pour connaître son sort.
-
-On lui répondit qu'on l'avait vu aider d'autres personnes à quitter la zone avant de tomber.
-
-Elle resta immobile.
-
-Clara s'approcha.
-
-— Je suis désolée.
-
-Dara ne répondit pas immédiatement.
-
-— C'est pour cela que nous avons longtemps hésité, dit-elle enfin. Chaque décision a un visage.
-
-Elle regarda les personnes qui attendaient dans la cour.
-
-— Mais si nous cédons aujourd'hui, nos enfants auront à prendre la même décision demain.
-
-Clara posa une main sur son épaule.
-
-Elle ne chercha pas à prononcer un discours.
+Méren baissa les yeux. Il venait de perdre un débat qu'il avait pourtant raison de mener.
 
 ***
 
-L'armée royale avança jusqu'à une zone où plusieurs familles s'étaient rassemblées pour quitter les habitations menacées.
+Dara conduisit Raoul sur les hauteurs à l'ouest des villages.
 
-La panique gagna les chemins.
+Le plateau dominait un passage entre deux versants rocheux. En contrebas, des chemins serpentaient vers le Nil.
 
-Des soldats reçurent l'ordre de poursuivre la progression, sans tenir compte des civils qui se trouvaient encore devant eux.
+— On l'appelle la hauteur des Faucons, expliqua Dara. Les gens d'ici y conduisaient parfois leurs troupeaux quand les eaux montaient.
 
-Un officier protesta.
+Raoul observa la pierre, la pente, les chemins et les petites réserves d'eau que les habitants connaissaient.
 
-L'ordre fut répété.
+Il n'avait aucune envie de transformer cet endroit en tombeau.
 
-Il refusa de l'exécuter.
+— Il faut pouvoir évacuer ceux qui ne combattent pas.
 
-Son supérieur lui cria d'obéir.
+— Nous le ferons.
 
-L'homme regarda les familles.
+— Et une voie de repli pour ceux qui défendent les hauteurs.
 
-Puis il posa son arme.
+— Il y a un passage plus au nord. Les gardiens de troupeaux le connaissent.
 
-Un geste minuscule au milieu d'une immense armée.
+Raoul contempla longtemps le terrain.
 
-Quelques soldats hésitèrent.
+— On peut y tenir un moment. Pas indéfiniment.
 
-D'autres continuèrent d'avancer.
+Clara les avait rejoints.
 
-La confusion ne dura que quelques instants, mais elle suffit à empêcher que les ordres soient exécutés comme prévu.
+— Ça veut dire qu'il faut gagner vite ?
 
-***
+— Non. Ça veut dire qu'il faut forcer l'armée à comprendre qu'elle ne gagnera pas en nous écrasant en une journée.
 
-Nino était avec Malo et Solan près du groupe de civils.
+Dara regarda la plaine.
 
-Sous sa toge, il portait toujours son manteau militaire venu du futur.
+— Et le pharaon ?
 
-Savio et Thuggy avaient étudié les indications du vêtement. Le bouclier utilisait l'énergie solaire stockée dans ses fibres. Il pouvait protéger temporairement Nino et quelques personnes à proximité, pendant une minute au maximum. Il fallait ensuite attendre au moins une heure avant toute nouvelle impulsion, à condition que la charge le permette.
+Raoul pensa à la projection de Thuggy.
 
-Ils avaient décidé de n'y recourir qu'en dernier ressort.
-
-Nino regarda les familles qui tentaient de se replier.
-
-Raoul arriva près de lui.
-
-— On doit les faire sortir.
-
-— Je sais.
-
-— Ton manteau est chargé ?
-
-Nino consulta le petit indicateur dissimulé sous son vêtement de lin.
-
-— Une impulsion. Pas davantage.
-
-Raoul observa les civils rassemblés près du chemin.
-
-— Alors fais-les approcher. On n'aura pas une deuxième minute.
-
-Ils agirent ensemble.
-
-Nino écarta sa toge et activa le manteau. Une clarté intense se déploya en barrière translucide autour du petit groupe, juste assez large pour couvrir les familles serrées près de lui.
-
-Les soldats s'immobilisèrent, stupéfaits.
-
-Malo et Solan firent avancer les civils vers le passage sûr. Le temps se comptait en pas, en respirations et en enfants qu'il fallait aider à franchir les derniers mètres.
-
-Le signal lumineux du manteau vira à l'orange.
-
-Puis la protection disparut, avant même qu'une minute entière se soit écoulée.
-
-— C'est déjà fini ? souffla Nino.
-
-Raoul l'attrapa par le bras.
-
-— Ça leur a suffi.
-
-Ils coururent rejoindre les autres.
-
-Le bouclier restait indisponible pour au moins une heure et sa réserve devrait se recharger à la lumière.
-
-Le manteau n'avait ni arrêté l'armée ni changé l'issue de la guerre à lui seul.
-
-Il avait gagné moins d'une minute.
-
-Et cette minute avait sauvé des personnes.
+— Lui, justement, ne voudra pas l'admettre.
 
 ***
 
-La nouvelle du refus d'obéissance circula rapidement.
+Le plan fut discuté par les représentants des communautés.
 
-D'autres officiers, déjà troublés par les ordres du pharaon, demandèrent à connaître la situation avant de poursuivre. Certains avaient vu les violences subies par les habitants des territoires soumis. D'autres s'inquiétaient de voir l'armée épuiser les ressources du royaume pour réprimer une population qui ne menaçait pas directement la capitale.
+Certains voulaient éviter tout affrontement. D'autres pensaient que les fusils permettraient enfin de repousser les soldats. Une femme demanda combien de familles devraient encore fuir avant qu'on puisse parler de victoire.
 
-Dans plusieurs villes, des rassemblements réclamèrent la fin de la répression.
+Julien laissa les habitants débattre.
 
-Des dirigeants locaux refusèrent de remettre des familles au travail forcé.
+Clara, elle, ne promit pas l'impossible.
 
-Les rebelles découvrirent alors que leur courage avait provoqué plus que des combats.
+— Si nous tenons les hauteurs, nous pouvons protéger les routes de repli. Nous ne pouvons pas garantir que personne ne mourra.
 
-Il avait donné à d'autres personnes l'audace de dire non.
+Dara prit alors la parole.
 
-Ce mouvement ne se répandit pas d'un seul coup.
+— Nous avons choisi de refuser l'asservissement. Nous pouvons encore décider de la manière de nous défendre. Cette décision nous appartient.
 
-Il y eut des hésitations, des accords fragiles, des promesses rompues et de nouvelles victimes.
+Les voix furent comptées. La résistance se préparerait à tenir sur le plateau, sans exposer les familles qui pouvaient être mises à l'abri.
 
-Mais le pouvoir du pharaon cessa progressivement de paraître absolu.
+Savio et Thuggy continueraient d'étudier les renseignements. Raoul superviserait les combattants. Malo et Solan aideraient les bateliers et les groupes d'évacuation.
 
-***
-
-Le souverain réunit ses dignitaires.
-
-Il exigea davantage d'hommes et de ressources.
-
-Plusieurs gouverneurs refusèrent.
-
-Il les menaça.
-
-Ils lui répondirent que le royaume ne pouvait plus soutenir cette répression sans risquer de se déchirer.
-
-Le pharaon frappa l'accoudoir de son trône.
-
-— Vous allez céder devant ce peuple ?
-
-L'un des gouverneurs leva les yeux.
-
-— Nous refusons de perdre le royaume pour vous permettre de punir ceux que vous méprisez.
-
-Le pharaon ordonna son arrestation.
-
-Les gardes ne bougèrent pas.
-
-Un silence terrible tomba.
-
-Pour la première fois, le souverain regarda les hommes autour de lui et comprit qu'ils n'attendaient plus ses décisions avec la même crainte.
-
-Il répéta son ordre.
-
-Personne n'obéit.
-
-***
-
-Lorsque la nouvelle arriva au village, Julien crut d'abord à une rumeur.
-
-Le pharaon avait perdu le soutien d'une partie décisive de ses officiers et de ses gouverneurs. Il avait été destitué, puis placé sous garde par ceux qui ne voulaient plus poursuivre la guerre en son nom.
-
-Une autorité provisoire cherchait à stabiliser le royaume.
-
-Dara demanda à rencontrer ses représentants.
-
-Elle ne partit pas seule.
-
-Des porte-parole des communautés insurgées l'accompagnèrent.
-
-Clara, Julien, Savio, Victor, Nino et Raoul étaient présents à leurs côtés, mais ils ne prirent pas leur place.
-
-La négociation ne fut pas simple.
-
-Certains voulaient des garanties immédiates.
-
-D'autres doutaient que les promesses d'un pouvoir nouveau aient davantage de valeur que celles du pharaon déchu.
-
-Dara posa les conditions au nom des siens : fin de l'asservissement, reconnaissance de leur liberté, restitution de leurs droits et possibilité de décider eux-mêmes de leur avenir.
-
-Un représentant du palais lui demanda :
-
-— Et qu'offrez-vous en échange ?
-
-Dara le regarda.
-
-— La fin d'une guerre que nous n'avons pas cherchée, mais que nous étions prêts à poursuivre.
-
-Les discussions durèrent.
-
-Puis un accord fut obtenu sur le principe de leur souveraineté.
-
-Les détails institutionnels restaient à construire, mais la domination qu'ils avaient combattue cessait d'être la règle.
-
-***
-
-Le soir où Dara annonça la nouvelle, la foule ne réagit pas immédiatement.
-
-Les habitants semblaient attendre qu'un soldat surgisse pour leur dire qu'il s'agissait d'une erreur.
-
-Puis un homme se mit à pleurer.
-
-Une femme serra ses enfants contre elle.
-
-Des cris montèrent près du fleuve.
-
-D'autres restèrent silencieux, pensant à ceux qui n'avaient pas vécu assez longtemps pour assister à ce jour.
-
-Clara regarda Dara.
-
-— Vous avez gagné.
-
-Dara secoua la tête.
-
-— Nous avons commencé à gagner le droit de vivre autrement.
-
-Clara acquiesça.
-
-Elle comprenait.
-
-Raoul rejoignit Nino, qui contemplait son manteau futuriste. Le bouclier s'était désactivé et les réserves d'énergie solaire devaient être reconstituées avant une nouvelle utilisation.
-
-— Tu avais dit que tu voulais enfin servir à quelque chose, lui rappela-t-il.
-
-Nino leva les yeux.
-
-— Oui.
-
-— Tu as servi à quelque chose.
-
-Nino attendit un instant.
-
-— C'est tout ? Pas de remarque désagréable ?
-
-— Non.
-
-— Tu es malade ?
-
-Raoul sourit.
-
-— Profite.
-
-***
-
-Julien retrouva sa sœur au bord du fleuve.
-
-Elle regardait la foule célébrer sa liberté.
-
-— Alors, dit-il, est-ce qu'on rentre ?
-
-Clara sourit.
-
-— Tu n'as vraiment aucune patience.
-
-— J'ai traversé trois époques et une mer pour venir te chercher.
-
-— Je sais.
-
-Elle le prit dans ses bras.
-
-Puis elle recula et contempla les maisons, les bateaux, les habitants et les visages qui lui étaient devenus familiers.
-
-— On va rentrer, promit-elle. Mais avant, il faut s'assurer qu'ils ne perdent pas demain ce qu'ils ont gagné aujourd'hui.
-
-Julien regarda la foule.
-
-Il ne protesta pas.
-
-Cette fois, il avait compris pourquoi elle le demandait.
-
----
-
-## Chapitre 33 — Un pays à eux
-
-Le premier problème du nouveau pays fut de trouver une salle assez grande pour y réunir tout le monde.
-
-Le deuxième fut de décider qui aurait le droit de parler.
-
-Le troisième fut Nino.
-
-— Je peux proposer un règlement ? demanda-t-il.
-
-Dara le regarda avec une patience héroïque.
-
-— Vous n'êtes pas de notre peuple.
-
-— C'est vrai. Mais j'ai beaucoup d'expérience dans les réunions qui tournent mal.
-
-Victor lui lança un regard.
-
-— Tu es généralement la raison pour laquelle elles tournent mal.
-
-— Justement. Je connais le sujet.
-
-Clara posa une main sur l'épaule de Nino et le fit reculer gentiment.
-
-— Laisse-les travailler.
-
-— Tu vois ? dit-il. C'est la première règle que je voulais proposer.
-
-***
-
-La liberté ne s'était pas installée avec la rapidité d'un conte.
-
-Il fallut compter les provisions restantes, organiser les retours des familles déplacées et déterminer ce que deviendraient les terres, les entrepôts et les voies d'eau autrefois contrôlés au nom du pharaon.
-
-Des représentants de plusieurs communautés se réunirent pour établir leurs premières règles communes.
-
-Ce qui changeait le plus n'était pas visible sur les bâtiments.
-
-C'était le fait que les décisions se discutaient désormais entre les habitants eux-mêmes.
-
-Dara dirigeait les réunions avec une autorité tranquille. Elle laissait les désaccords s'exprimer, puis ramenait chacun à la question essentielle : comment empêcher qu'un autre homme leur retire un jour les mêmes droits ?
-
-Clara assistait aux débats.
-
-Elle parlait moins qu'auparavant.
-
-Ce qui inquiétait Victor.
-
-— Tu es malade ? lui demanda-t-il.
-
-— Pourquoi ?
-
-— Ça fait deux heures que tu n'as donné aucun ordre.
-
-Elle lui sourit.
-
-— J'ai appris une chose.
-
-— Laquelle ?
-
-— Parfois, les gens savent très bien ce qu'ils doivent faire sans moi.
-
-Victor posa une main sur son cœur.
-
-— Je ne pensais pas vivre assez longtemps pour entendre ça.
-
-***
-
-Au terme des discussions, les représentants du peuple décidèrent de reconnaître une direction commune.
-
-Ils souhaitaient une assemblée capable de prendre des décisions au nom des communautés, avec des engagements clairs contre le retour de l'asservissement.
-
-Mais ils voulaient également remercier celle qui les avait aidés à tenir ensemble.
-
-Dara demanda à Clara de se présenter.
-
-Elle s'avança, méfiante.
-
-— Si c'est encore pour me faire prononcer un discours, je vous préviens, je n'ai rien préparé.
-
-Quelques personnes rirent.
-
-Dara lui sourit.
-
-— Nous avons appris à vous connaître. Vous avez eu tort parfois. Vous avez beaucoup parlé. Vous nous avez aussi écoutés quand il le fallait.
-
-Clara regarda les habitants.
-
-— Je n'ai fait que ce que j'ai pu.
-
-— Justement, dit Dara. Nous ne voulons pas d'une personne qui se prétende au-dessus de nous. Nous voulons quelqu'un qui se souvienne de ce que nous avons décidé ensemble.
-
-Elle expliqua que les communautés avaient choisi de donner à Clara un titre de reine protectrice, reconnu par leur assemblée et limité par les règles qu'ils adoptaient eux-mêmes.
-
-Clara resta sans voix.
-
-Julien se pencha vers Victor.
-
-— C'est la première fois que je la vois incapable de répondre.
-
-Victor hocha lentement la tête.
-
-— Je vais me souvenir de cette journée.
-
-Clara finit par parler.
-
-— Je ne suis pas née ici.
-
-Dara acquiesça.
-
-— Nous le savons.
-
-— Je ne connais même pas toute votre histoire.
-
-— Vous avez commencé à l'apprendre.
-
-— Et je veux rentrer chez moi.
-
-La salle se fit silencieuse.
-
-Dara ne détourna pas les yeux.
-
-— Alors vous rentrerez un jour. Nous ne vous demandons pas de renoncer à votre vie. Nous vous demandons de garder un lien avec la nôtre.
-
-Clara regarda les personnes qui attendaient sa réponse.
-
-Elle comprit que le titre ne serait acceptable que si le peuple continuait de se gouverner lui-même.
-
-— Je ne serai jamais un nouveau pharaon, dit-elle.
-
-Dara sourit.
-
-— Nous non plus, nous n'en voulons plus.
-
-Clara accepta.
-
-Pas comme on accepte une couronne qui donne tous les droits.
-
-Comme on accepte une responsabilité confiée par des personnes capables de la reprendre.
-
-***
-
-Le soir, une célébration eut lieu près du fleuve.
-
-Malo et Solan y participèrent avec une joie que Victor jugea disproportionnée.
-
-— Vous n'avez pas l'air pressés de retrouver votre navire, remarqua-t-il.
-
-Malo regarda les embarcations sur l'eau.
-
-— Ici, il y a au moins de quoi naviguer.
-
-Solan sourit.
-
-— Et moins de capitaine pour nous gronder.
-
-Clara leur lança un regard.
-
-— Je vous entends.
-
-— Voilà, dit Malo. Exactement pareil.
-
-Le groupe éclata de rire.
-
-Julien contempla l'assemblée.
-
-Ils avaient traversé tant de lieux sans y appartenir qu'il avait du mal à comprendre ce qui se passait devant eux.
-
-Cette fois, ils avaient des alliés.
-
-Un territoire où revenir.
-
-Des personnes qui les reconnaissaient pour autre chose que leurs marchandises ou leurs armes.
-
-Savio s'approcha.
-
-— Ce lieu pourrait devenir important pour nous.
-
-Julien le regarda.
-
-— Pour rentrer ?
-
-— Pour la suite. Si on doit explorer davantage le réseau, il faudra des endroits sûrs où revenir et des gens en qui avoir confiance.
-
-Julien regarda Dara discuter avec les représentants du peuple.
-
-— À condition qu'on ne leur impose rien.
-
-— Évidemment.
-
-***
-
-Plus tard, Clara rejoignit ses proches.
-
-Elle portait encore un signe discret de la cérémonie.
-
-Nino la salua avec une exagération théâtrale.
-
-— Votre Majesté.
-
-— Tu veux une corvée ?
-
-— Le peuple est libre, maintenant.
-
-— Je vais commencer par te faire nettoyer notre table.
-
-Nino se redressa.
-
-— Vive la monarchie.
-
-Victor la prit par la main.
-
-— Tu veux toujours rentrer ?
-
-Clara le regarda.
-
-— Plus que jamais.
-
-Julien se tourna vers la mer invisible, au-delà des terres.
-
-— Alors il faut trouver le chemin.
-
-Ils savaient où se trouvait le portail égyptien.
-
-Ils savaient aussi ce qui les attendait de l'autre côté.
-
-Une île maudite.
-
-Trois jours de mer.
-
-Et une autre grotte, seule route connue vers leur siècle.
-
-Leur nouvelle alliée, Dara, leur avait promis du soutien selon les moyens du pays.
-
-Mais personne ne pouvait faire apparaître un bateau de l'autre côté du portail.
-
-La victoire leur avait rendu un horizon.
-
-Elle ne leur avait pas encore rendu la maison.
-
----
-
-## Chapitre 34 — Trois jours d'eau entre nous et chez nous
-
-Victor avait dessiné cinq flèches sur une feuille.
-
-Il les regardait comme si elles l'avaient personnellement insulté.
-
-— Je résume, dit-il.
+Victor se proposa pour la distribution des réserves et le transport du matériel.
 
 Nino leva la main.
 
-— Non, pitié.
-
-— On part d'ici, l'Égypte.
-
-Victor montra le premier cercle.
-
-— On passe par la grotte, et on arrive sur l'île maudite.
-
-Deuxième cercle.
-
-— Ensuite on doit traverser trois jours de mer pour atteindre l'autre île.
-
-Troisième cercle.
-
-— Là, on retrouve le premier portail vers la salle d'origine.
-
-Quatrième cercle.
-
-— Et enfin, le XXIe siècle.
-
-Cinquième cercle.
-
-Victor posa le crayon.
-
-— Ça aurait pu être simple.
-
-Julien observa la feuille.
-
-— Ça aurait même dû être simple.
-
-— Qu'est-ce qui nous manque ? demanda Clara.
-
-Raoul répondit :
-
-— Un bateau.
-
-Nino prit un air grave.
-
-— On en a déjà vu plusieurs.
-
-— Pas sur la bonne île, répondit Savio.
-
-***
-
-Ils étaient retournés dans la grotte de l'île maudite pour vérifier la situation.
-
-Le passage vers l'Égypte fonctionnait encore.
-
-Mais au-dehors, la côte était aussi isolée qu'ils l'avaient laissée. Ils n'avaient aucun moyen assuré de rejoindre la première île pirate.
-
-Le capitaine qui les avait conduits jusque-là ne leur avait jamais promis d'attendre indéfiniment. Le groupe ne pouvait donc pas bâtir son plan de retour sur l'hypothèse qu'il surgirait à l'horizon au bon moment.
-
-Julien contempla les falaises.
-
-— On pourrait chercher un autre navire.
-
-— Il faudrait déjà en trouver un, répondit Raoul.
-
-— Et un équipage, ajouta Malo, qui avait accompagné les six pour examiner la côte.
-
-Solan se pencha vers eux.
-
-— Trois jours de navigation, ce n'est pas une simple promenade. On ne part pas sans savoir sur quoi on monte.
-
-Victor les regarda.
-
-— Vous êtes deux marins.
-
-Malo haussa les épaules.
-
-— Deux marins ne suffisent pas à faire apparaître un bateau.
-
-Nino poussa un soupir.
-
-— C'est vraiment un problème récurrent dans ce roman.
-
-Personne ne comprit ce qu'il voulait dire.
-
-***
-
-Ils retournèrent auprès du peuple égyptien.
-
-Dara les reçut dans une pièce où se trouvaient désormais plusieurs cartes et des documents concernant les relations entre les communautés.
-
-Clara lui expliqua la difficulté du trajet.
-
-La responsable les écouta sans les interrompre.
-
-— Nous pouvons vous aider à préparer des provisions, dit-elle. Et vous laisser travailler depuis un lieu sûr. Mais nous ne pouvons pas faire traverser un grand navire par une ouverture dans une montagne.
-
-— On s'en doutait, répondit Julien.
-
-Dara le regarda.
-
-— Alors ne vous accusez pas d'être bloqués par quelque chose que personne n'a encore résolu.
-
-Savio sortit son carnet.
-
-— Il existe peut-être une autre solution.
-
-Victor se redressa aussitôt.
-
-— Voilà enfin une phrase intéressante.
-
-Savio posa les dessins des deux mécanismes sur la table.
-
-— Les trois portes que Nino et notre ami ont visitées ne conduisent pas directement chez nous. Mais elles font peut-être partie d'une structure plus grande.
-
-Nino sourit.
-
-— C'est moi qui ai visité le futur. Je tiens à le rappeler.
-
-— Tu l'as surtout financé avec ton téléphone, dit Victor.
-
-— C'est ce qu'on appelle un investissement.
-
-Savio poursuivit :
-
-— Dans les archives, j'ai trouvé des signes qui suggèrent qu'un passage peut mener à un autre dispositif. Pas seulement à un lieu. Nous pourrions avoir plusieurs chemins possibles à travers ce réseau.
-
-Julien fixa les dessins.
-
-— Tu veux chercher une route pour rentrer sans passer par la mer ?
-
-— Oui. Mais je ne veux pas vous promettre qu'on la trouvera.
-
-Clara regarda les schémas.
-
-— Et pour le savoir ?
-
-Savio tourna une page.
-
-— Il faudrait retourner dans les mondes déjà visités et y chercher les mécanismes qu'on n'a pas encore activés.
-
-Victor garda le silence.
-
-Cette idée était à la fois formidable et décourageante.
-
-Ils avaient déjà traversé plusieurs époques en espérant retrouver une seule personne.
-
-Maintenant qu'ils l'avaient retrouvée, ils envisageaient de traverser d'autres mondes pour retrouver une maison.
-
-***
-
-Plus tard, Julien retrouva Clara seule près d'une fenêtre.
-
-— Tu regrettes d'avoir accepté de devenir reine ? demanda-t-il.
-
-Elle sourit.
-
-— Je regrette surtout le jour où j'ai accepté de suivre Victor dans sa surprise.
-
-Julien s'assit.
-
-— Tu pourrais rester ici. Tu as des gens qui comptent sur toi.
-
-Elle secoua la tête.
-
-— J'ai aussi une vie chez nous.
-
-— Je sais.
-
-— Je veux pouvoir choisir. Revenir ici si je le souhaite. Repartir. Aider quand on me le demande. Pas être prisonnière d'une couronne.
-
-Julien acquiesça.
-
-Il commençait à comprendre que sa sœur avait gagné quelque chose d'important pendant leur séparation.
-
-Elle n'attendait plus qu'on décide de son avenir.
-
-— Alors on trouvera un moyen.
-
-— Tu le promets ?
-
-Julien réfléchit.
-
-— Je promets qu'on cherchera.
-
-Clara lui sourit.
-
-— C'est déjà mieux.
-
-***
-
-Le soir, les six amis se retrouvèrent autour de la table avec Malo et Solan.
-
-Savio y avait posé plusieurs feuilles couvertes de cercles et de flèches.
-
-Nino les contempla.
-
-— On dirait une carte de métro dessinée par quelqu'un qui n'a jamais vu de métro.
-
-— Ce n'est pas une carte complète, répondit Savio.
-
-— J'avais compris.
-
-— C'est un début.
-
-Victor regarda les branches qui se multipliaient.
-
-— Combien de portes pourrait-on trouver ?
-
-Savio resta silencieux.
-
-Puis il répondit :
-
-— Beaucoup plus que ce que nous avons vu.
-
-Julien observa la carte.
-
-Le chemin vers le présent n'était peut-être plus une simple traversée maritime.
-
-Il pouvait être plus long.
-
-Plus dangereux.
-
-Et, peut-être, infiniment plus vaste.
-
----
-
-## Chapitre 35 — Derrière chaque porte
-
-Savio demanda une table plus grande.
-
-Victor leva les yeux.
-
-— Encore ?
-
-— Celle-ci ne suffit pas.
-
-— Ça fait trois jours que tu dis ça.
-
-— C'est parce que je trouve de nouvelles choses à y mettre.
-
-Nino regarda les feuilles étalées.
-
-— Moi, je trouve surtout que tu as de nouvelles façons de nous empêcher de manger.
-
-Julien contempla le dessin commencé le matin.
-
-Au centre, Savio avait représenté la première salle des portails : celle qu'ils avaient découverte en cherchant de vieilles monnaies. Autour, il avait tracé les destinations déjà connues.
-
-Le Moyen Âge.
-
-Rome.
-
-La première île pirate.
-
-Puis, après les trois jours de navigation qu'aucun d'eux n'était près d'oublier, la deuxième installation sur l'île maudite.
-
-De ce second ensemble partaient les passages vers l'Égypte, le Japon féodal, le monde futuriste et le Western.
-
-À côté des noms, Savio avait dessiné les emblèmes relevés au-dessus des ouvertures. Chaque porte semblait avoir sa marque. Il avait entouré ceux de la première salle.
-
-— Si on retrouve un de ces signes ailleurs, expliqua-t-il, ce sera peut-être une branche qui rejoint notre premier réseau. Pas forcément un retour chez nous. Mais au moins une piste.
-
-Le dessin tenait déjà difficilement sur la table.
-
-— Et alors ? demanda Victor.
-
-Savio prit un autre crayon.
-
-— Ce n'est que la première partie.
-
-Nino ferma les yeux.
-
-— Je savais qu'on allait encore avoir des devoirs.
-
-***
-
-Thuggy s'approcha de la table. Ses capteurs venaient de recevoir la lumière du matin et il pouvait de nouveau travailler aux côtés de Savio.
-
-Une carte holographique apparut au-dessus du carnet, reprenant les motifs gravés sur les arches, les dessins du sanctuaire japonais et certains fragments des archives égyptiennes.
-
-— Plusieurs ressemblances de structure sont confirmées, annonça-t-il. Aucune ne démontre encore une connexion directe entre deux destinations.
-
-— C'est bien ce que j'espérais, répondit Savio. Un outil pour comparer, pas une machine qui invente des certitudes.
-
-Nino sourit.
-
-— Moi, j'espérais un robot qui fasse les devoirs à ma place.
-
-— Cette fonction reste en cours d'évaluation, indiqua Thuggy.
-
-L'intello posa trois feuilles autour du dessin.
-
-Sur la première, il écrivit : *Japon féodal.*
-
-Sur la deuxième : *Monde futuriste.*
-
-Sur la troisième : *Western.*
-
-— Vous avez visité ces trois destinations depuis la salle de l'île maudite, dit-il à Raoul et à Nino.
-
-— Oui, confirma Nino. J'ai même participé au financement de la science.
-
-— Tu as vendu ton téléphone, rappela Raoul.
-
-— La science, répéta Nino.
-
-Savio sourit.
-
-— Dans chacun de ces mondes, nous avons des raisons de penser qu'il existe un dispositif local du même type que ceux que nous connaissons.
-
-Il dessina plusieurs branches à partir de chaque destination.
-
-— Si nous parvenons à trouver et à activer ces mécanismes, ils pourront ouvrir plusieurs autres passages.
-
-Victor regarda le papier.
-
-— Donc la porte du Japon ne mène pas seulement au Japon.
-
-— Elle mène d'abord au Japon. Mais ce monde pourrait posséder d'autres portes, accessibles depuis un autre mécanisme.
-
-— Et dans le futur ?
-
-— Même chose.
-
-— Et chez les cow-boys ?
-
-Nino leva la main.
-
-— Je vote pour qu'on retourne chez les cow-boys.
+— Et moi ?
 
 Raoul le regarda.
 
-— Pourquoi ?
+— Toi, tu arrêtes de croire que ton manteau te rend invincible.
 
-— Là-bas, au moins, notre or vaut quelque chose.
+— Je n'ai jamais dit ça.
 
-Savio traça encore une ligne.
+Thuggy répondit :
 
-— Le principe est plus important que les destinations elles-mêmes. Nous avons longtemps cherché une porte qui conduirait directement chez nous. Nous n'avons pas pensé à ce qui se trouvait derrière les premières étapes.
+— Vous avez utilisé l'expression « quasiment invincible » lors de notre dernière recharge.
 
-Julien suivit le dessin.
+— Trahison, murmura Nino.
 
-— Donc le réseau n'est pas une ligne.
-
-— Non.
-
-— C'est un labyrinthe.
-
-Savio considéra les feuilles.
-
-— Peut-être. Mais un labyrinthe qu'on peut commencer à cartographier.
+Quelques habitants rirent. Cela leur fit du bien.
 
 ***
 
-Clara posa une tasse près de son frère.
+Le dernier messager arriva au coucher du soleil.
 
-Elle regarda la carte d'un air amusé.
+Il avait vu les étendards royaux et les chars qui avançaient avec la garde du souverain.
 
-— Je vous laisse seuls une journée et vous décidez d'explorer l'univers.
+Méren commandait les colonnes principales.
 
-— Nous cherchons juste à rentrer chez nous, répondit Julien.
+Le pharaon venait en personne.
 
-Elle posa une main sur son épaule.
+Dans la salle des archives, Thuggy projeta une dernière comparaison entre la campagne ancienne et les informations du jour.
 
-— Je sais.
+— L'adversaire conserve une supériorité numérique considérable. Une victoire par destruction complète est improbable.
 
-Malo et Solan étaient venus leur parler des ressources dont ils pourraient disposer pour de futurs déplacements. Ils n'avaient pas promis de les accompagner partout : les deux marins avaient leur propre vie à reconstruire et des liens nouveaux avec les habitants du fleuve.
+— Personne ne cherche ça, répondit Raoul.
 
-Dara leur avait offert un lieu où conserver une partie de leur matériel et de leurs notes, avec l'accord des représentants du pays. Ce n'était pas une base qu'ils possédaient. C'était un refuge que leurs alliés choisissaient de leur ouvrir.
+Savio fit disparaître la moitié des annotations.
 
-Victor regarda autour de lui.
+— Nous avons surtout besoin de survivre à l'affrontement et de lui montrer qu'il ne peut pas nous soumettre.
 
-— C'est quand même incroyable.
+Dara posa sa main sur la carte.
 
-— Quoi ? demanda Nino.
+— Alors nous tiendrons.
 
-— On n'avait rien, au début. On fouillait dans la terre pour trouver des pièces.
+Au loin, les premiers tambours se firent entendre.
 
-— Maintenant, on fouille dans des siècles pour trouver une sortie, répondit Savio.
+Et, pour la première fois, ce ne fut pas le bruit des hommes du pharaon qui glaça Julien.
 
-Victor acquiesça.
+Ce fut de comprendre que, cette fois, il ne pourrait pas ramener tout le monde chez soi.
 
-— Exactement.
+---
+
+
+## Chapitre 32 — La dernière colère du pharaon
+
+L'armée royale apparut au lever du jour.
+
+Depuis les hauteurs, les résistants voyaient les rangées de soldats progresser dans la poussière, les porteurs de lances et les chars qui accompagnaient la garde du pharaon.
+
+Même après les retards et la perte de ses approvisionnements, la force déployée semblait impossible à arrêter.
+
+Nino se tenait près de Raoul. Il avait rabattu une étoffe égyptienne sur son manteau futuriste.
+
+— Dis-moi qu'ils sont moins nombreux que prévu.
+
+— Ils sont moins nombreux que prévu, répondit Raoul.
+
+Nino le regarda avec espoir.
+
+— Vraiment ?
+
+— Non. Tu m'as demandé de te le dire.
+
+Thuggy, qui avait passé la matinée précédente à recharger ses réserves au soleil, projeta un schéma imparfait du terrain.
+
+— Les données disponibles ne permettent pas de comptabiliser toutes les unités. Les personnes masquées par les reliefs échappent à mon estimation.
+
+— Tu pourrais au moins inventer un chiffre rassurant, suggéra Nino.
+
+— Cela constituerait une faute méthodologique.
+
+Raoul regarda les positions égyptiennes.
+
+— Pour une fois, je suis d'accord avec lui.
 
 ***
 
-Le soir, les six se rendirent près du fleuve.
+Le pharaon avait fait installer son poste de commandement là où son étendard serait visible.
 
-Une fête avait lieu dans les rues. Les habitants célébraient leur souveraineté retrouvée, mais ils préparaient aussi leur avenir : des bateaux devaient reprendre leur activité, des familles réintégrer leurs maisons et des représentants poursuivre les négociations avec les communautés voisines.
+Il voulait que ses soldats sachent qu'il assistait lui-même à l'écrasement de la rébellion.
 
-Clara regarda Dara discuter avec plusieurs personnes.
+Méren, son général, étudiait la hauteur opposée.
 
-Elle savait qu'elle pourrait revenir ici.
+Il n'aimait ni le terrain ni le silence des rebelles.
 
-Elle savait aussi qu'elle ne pouvait pas faire de ce peuple la réponse à tous ses propres problèmes.
+— Majesté, ces gens se sont retirés vers une position où notre nombre ne peut pas s'exprimer pleinement. Nous devrions protéger les convois restants et attendre.
 
-Julien se plaça à côté d'elle.
+— Attendre quoi ?
 
-— Tu crois qu'on va réussir ?
+— Qu'ils épuisent leurs réserves. Qu'ils abandonnent cette hauteur ou acceptent des conditions.
 
-— À rentrer ?
+Le pharaon se tourna vers lui.
+
+— Vous me demandez de négocier avec des esclaves ?
+
+— Je vous demande de ne pas leur offrir la bataille qu'ils espèrent.
+
+Le souverain contempla ses chars, les soldats alignés, les insignes de ses officiers.
+
+— Regardez combien ils sont. Je veux qu'ils se souviennent de ce jour.
+
+Méren se tut.
+
+Il fit néanmoins transmettre des ordres prudents aux premiers rangs.
+
+***
+
+Le premier choc ne ressembla pas à une charge triomphale.
+
+Les soldats royaux progressèrent avec difficulté sur les pentes et découvrirent que la plupart des résistants connaissaient chaque détour du terrain.
+
+Les fusils rapportés du Western firent entendre des détonations inconnues. Des combattants égyptiens crièrent de surprise. Certains reculèrent, puis les officiers réussirent à les reformer.
+
+Ce n'était pas la panique générale que Victor avait imaginée.
+
+Méren comprit vite que les armes étrangères étaient peu nombreuses.
+
+Il changea la disposition de ses hommes et chercha un autre moyen d'obliger les résistants à quitter les hauteurs.
+
+Raoul observa la manœuvre.
+
+— Il a compris.
+
+Julien lui répondit :
+
+— Compris quoi ?
+
+— Qu'on ne peut pas tirer indéfiniment. Et qu'on est trop peu pour surveiller toutes les approches.
+
+Une position fut perdue avant midi.
+
+Des défenseurs revinrent blessés. Dara fit dégager un chemin pour les recevoir. Clara demanda qu'on éloigne les familles encore présentes dans les habitations basses.
+
+— Il faut reculer, dit Julien.
+
+Raoul l'observa.
+
+— Sur une partie du terrain, oui. Sur le reste, pas encore.
+
+Il n'était pas question de transformer chaque pierre en tombeau.
+
+***
+
+Savio avait installé sa table de travail sous un abri, hors du tumulte.
+
+Thuggy comparait des observations rapportées par les habitants avec les plans fragmentaires des archives royales. Un ancien bras du fleuve figurait sur un document militaire plusieurs fois recopié.
+
+— Ce détour devrait ralentir les forces venant du sud, annonça le robot.
+
+Un batelier secoua immédiatement la tête.
+
+— Ce bras est à sec depuis longtemps. Le sol y est dur. On y passe à pied.
+
+Thuggy immobilisa sa projection.
+
+— Ma source est antérieure à cette modification du paysage.
+
+— C'est donc une mauvaise source pour aujourd'hui, répliqua Savio.
+
+— Correction admise.
+
+Le batelier leur indiqua les passages qu'il avait empruntés la semaine précédente. La carte lumineuse changea.
+
+Savio sentit une sueur froide lui couler dans le dos.
+
+Le général royal pouvait approcher plus vite qu'ils ne l'avaient cru.
+
+Il courut prévenir Raoul.
+
+***
+
+La contre-offensive prit les résistants de vitesse.
+
+La nouvelle du passage découvert circula parmi les défenseurs. Certains crurent qu'ils allaient être encerclés. Les fusils se turent par endroits, faute de munitions suffisantes pour continuer au même rythme.
+
+Victor arriva près de Julien avec des provisions.
+
+— Nous avons perdu deux réserves sur le flanc.
+
+— Combien de blessés ?
+
+— Trop.
+
+Clara, qui aidait déjà les personnes évacuées, vit des enfants quitter la dernière maison du chemin.
+
+Un vieil homme resta derrière pour récupérer une jarre d'eau. Elle alla le chercher, malgré les protestations de Dara.
+
+Le bruit des combats se rapprochait.
+
+Sur la hauteur, Raoul comprit que Méren avait réussi à modifier le cours de la bataille. S'ils restaient tous au même endroit, la supériorité royale finirait par les submerger.
+
+Il envoya des messagers pour organiser le repli des civils.
+
+C'était à cet instant précis que le pharaon décida de gagner immédiatement.
+
+***
+
+Depuis son char, le souverain avait aperçu des hommes qui redescendaient du plateau.
+
+— Ils fuient, dit-il.
+
+Méren ne partageait pas son enthousiasme.
+
+— Ils dégagent leurs blessés et déplacent leurs familles. Leurs combattants tiennent encore. Si nous avançons trop vite, nous perdrons la cohésion de nos colonnes.
+
+Le pharaon descendit du char et se tourna vers les officiers réunis.
+
+— Voilà des jours que vous m'expliquez pourquoi mes soldats devraient s'arrêter. Je vois devant moi une bande d'insurgés qui recule.
+
+— Leur recul peut être calculé.
+
+— Et votre prudence, général, est devenue une insulte.
+
+Méren serra les dents.
+
+— Majesté, laissez-moi conduire la suite.
+
+Le pharaon fit signe à sa garde personnelle.
+
+— Je conduirai moi-même les hommes qui ont encore le courage d'avancer.
+
+Les officiers échangèrent des regards alarmés.
+
+Quelques-uns tentèrent d'organiser une progression ordonnée. D'autres suivirent immédiatement les étendards royaux pour ne pas sembler désobéir.
+
+Les unités n'avancèrent plus au même rythme.
+
+La bataille, jusque-là difficile mais maîtrisée par Méren, commença à se défaire.
+
+***
+
+Nino et Solan avaient rejoint Malo au bas du chemin d'évacuation.
+
+Un groupe de familles était encore bloqué devant un passage découvert. Des soldats descendaient vers eux, entraînés par la progression confuse de la garde royale.
+
+— Ils n'auront pas le temps ! cria Solan.
+
+Nino tira l'étoffe qui cachait son manteau.
+
+Il se souvenait de l'avertissement de Raoul, de l'autonomie limitée du dispositif et de l'unique minute de protection qu'ils avaient économisée pour un danger immédiat.
+
+L'indicateur signalait une charge suffisante.
+
+Raoul arriva près de lui.
+
+— Tu peux le faire ?
+
+— Une fois.
+
+— Alors ne reste pas seul.
+
+Nino s'avança avec les familles serrées autour de lui et activa le manteau.
+
+Une lumière translucide jaillit de ses coutures. Elle forma une protection rapprochée qui accompagna leurs premiers pas.
+
+Les soldats s'immobilisèrent, incapables de comprendre ce phénomène.
+
+Malo et Solan firent avancer les enfants et les blessés. Clara prit un garçon par la main. Dara aidait une femme âgée à franchir les derniers mètres.
+
+Le manteau vibra.
+
+— Durée maximale restante : vingt secondes, annonça Thuggy, qui suivait le groupe sous sa capuche.
+
+— PAS BESOIN DE COMPTE À REBOURS ! cria Nino.
+
+La barrière faiblit.
+
+Ils atteignirent enfin le couvert des rochers.
+
+La lumière s'éteignit, sans possibilité de réactivation avant au moins une heure et une nouvelle charge suffisante.
+
+Nino resta un instant immobile.
+
+Il avait eu peur du début à la fin.
+
+Raoul posa une main sur son épaule.
+
+— Ils sont passés.
+
+— Je sais, murmura Nino.
+
+Il n'ajouta aucune plaisanterie.
+
+***
+
+Sur le plateau, le mouvement précipité des troupes royales avait créé une situation que Méren redoutait.
+
+La garde du souverain avait progressé plus loin que les unités capables de la soutenir. Sur le relief difficile, les messagers mettaient du temps à retrouver les officiers. Certains soldats croyaient que le roi avait déjà gagné. D'autres apprenaient que les routes de ravitaillement demeuraient perturbées.
+
+Les résistants ne possédaient ni la force ni les ressources pour poursuivre toute l'armée.
+
+Mais ils voyaient maintenant le pharaon lui-même, à proximité de la zone où les deux forces se disputaient le passage.
+
+Dara rejoignit Raoul.
+
+— C'est lui ?
+
+Raoul suivit son regard.
+
+Sous les insignes royaux, un homme hurlait des ordres que son entourage n'arrivait plus à transmettre correctement.
 
 — Oui.
 
-Clara prit le temps de réfléchir.
+Julien regarda Clara, puis les blessés que l'on emmenait.
 
-— Je n'en sais rien. Mais je préfère qu'on cherche ensemble plutôt que de te laisser décider tout seul.
+— Il faut arrêter ça avant qu'il n'y en ait davantage.
 
-Il sourit.
+Dara acquiesça.
 
-— J'ai compris le message.
+Elle ne demanda pas aux habitants de charger pour mourir autour d'un symbole.
 
-Un peu plus loin, Victor essayait de négocier un objet dont il n'avait pas besoin.
+Les défenseurs encore capables de tenir empêchèrent simplement la garde de reprendre librement le passage. Au-dessus d'eux, les soldats royaux hésitaient. En contrebas, la route menant aux réserves était encombrée.
 
-Nino lui expliquait qu'il valait mieux garder l'or pour des époques où il avait encore une valeur.
+Un officier de Méren apparut sous un drapeau de parlement.
 
-Raoul observait la scène avec une expression qui ressemblait de plus en plus à de l'amusement.
+— Le général demande l'arrêt des combats. Il veut mettre les blessés à l'abri.
 
-Savio s'était assis sur une pierre.
+Dara accepta de faire cesser le feu dans son secteur.
 
-Il dessinait encore.
+Le pharaon, lui, refusa.
 
 ***
 
-Dans son carnet, il nota ce qu'ils savaient réellement.
+— Vous n'avez aucun droit de parler en mon nom ! cria-t-il à l'officier.
 
-Ils avaient trouvé plusieurs installations.
+Ses gardes s'écartèrent, surpris par sa colère.
 
-Certaines permettaient d'ouvrir plusieurs passages.
+— Ils vont se rendre. Ils sont épuisés !
 
-Les trois mondes récemment reconnus possédaient eux aussi des mécanismes qu'ils n'avaient pas encore activés.
+Méren arriva peu après, accompagné d'hommes encore fidèles à la discipline de l'armée.
 
-La première salle restait le seul passage dont ils savaient qu'il menait à leur époque.
+— Majesté, le combat nous coûte davantage qu'il ne peut nous rapporter aujourd'hui. Les troupes sont dispersées. Les réserves ne nous rejoindront pas avant plusieurs jours.
 
-Mais leur route jusqu'à elle passait toujours par une traversée de trois jours entre deux îles d'un monde pirate. Ils avaient suivi un capitaine sans apprendre la carte de la mer ni ses repères : ils n'auraient pas su refaire seuls ce trajet.
+— Alors prenez leurs réserves !
 
-Tout le reste demandait à être découvert.
+— Elles ont été déplacées. Nous sommes sur un terrain qui favorise leurs défenseurs. Poursuivre cette offensive serait une erreur.
 
-Il traça trois nouveaux cercles.
+Le pharaon tira sa lame cérémonielle.
 
-Puis, autour de chacun, plusieurs branches vides.
+— Vous me refusez la victoire ?
 
-Nino vint s'asseoir à côté de lui.
+Méren le regarda longtemps.
 
-— Tu crois qu'il y en a combien, des portes ?
+— Je refuse de sacrifier les hommes pour une colère.
 
-Savio regarda les lignes.
+Un silence terrible suivit.
 
-— Je ne sais pas.
+Le souverain ordonna aux gardes d'arrêter son général.
 
-— Dix ?
+Aucun ne bougea.
 
-— Peut-être davantage.
+Dara, Julien, Clara et Raoul observaient la scène à quelques pas, au milieu des hommes qui avaient tenu la hauteur.
 
-— Cent ?
+Le pharaon reconnut Clara.
 
-— C'est possible.
+— Toi. L'étrangère.
 
-Nino resta silencieux un moment.
+Elle soutint son regard.
 
-— Et si aucune ne mène chez nous ?
+— Vous auriez pu arrêter cette guerre.
 
-Savio baissa les yeux vers son carnet.
+— Ces gens m'appartiennent.
 
-Il avait passé sa vie à croire que connaître l'histoire permettait de comprendre le monde.
+Dara s'avança.
 
-Depuis la découverte du souterrain, il avait appris le contraire : il fallait aussi accepter ce qu'on ignorait.
+— Non. C'est précisément ce que nous sommes venus vous dire.
 
-— Alors on devra chercher autrement.
+Le pharaon fit un geste vers les gardes.
 
-Nino acquiesça.
+— Saisissez-les !
 
-— Ça me va.
+Méren leva la main.
+
+Les soldats restèrent immobiles.
+
+Puis le général dit :
+
+— Majesté, remettez votre arme.
+
+Le souverain recula, stupéfait.
+
+Il avait amené son armée entière pour punir une poignée de résistants. Sur ce plateau, il venait de découvrir que son autorité ne suffisait plus à faire obéir les derniers hommes qui l'entouraient.
+
+Deux officiers s'approchèrent.
+
+Le pharaon se débattit, puis lâcha son arme.
+
+Il fut placé sous garde, vivant.
+
+***
+
+La guerre ne s'arrêta pas dans tout le royaume au même instant.
+
+Méren ne pouvait pas engager seul les gouverneurs absents, et Dara n'avait aucune intention de prétendre parler au nom de toutes les communautés.
+
+Mais, sur le plateau, un accord immédiat fut obtenu : cessation des combats, soins aux blessés des deux camps, retrait des unités royales des villages et transfert du pharaon prisonnier sous la responsabilité conjointe des commandants qui avaient refusé ses ordres.
+
+Des messagers furent envoyés aux autorités du royaume pour ouvrir des négociations.
+
+Les résistants avaient tenu.
+
+L'armée venue les écraser avait été contrainte de s'arrêter.
+
+Et le souverain avait perdu sa liberté devant les hommes qu'il avait méprisés.
+
+Le soir, les habitants descendirent des hauteurs.
+
+On ne cria pas victoire tout de suite.
+
+Il fallut d'abord chercher les absents.
+
+Dara prononça leurs noms, un par un. Clara resta auprès des blessés. Julien et Victor aidèrent les familles à retrouver ceux qui étaient revenus.
+
+Raoul contempla les derniers étendards royaux qui disparaissaient vers la plaine.
+
+Nino le rejoignit.
+
+— Tu crois que c'est fini ?
+
+— Je crois qu'on leur a donné une raison de négocier. Maintenant, il faut qu'ils tiennent parole.
+
+Thuggy s'approcha en silence.
+
+— Selon mes archives, un succès militaire peut précéder une paix très imparfaite.
+
+Nino le regarda.
+
+— Tu pourrais, pour une fois, annoncer simplement une bonne nouvelle ?
+
+Le robot réfléchit.
+
+— Vous êtes tous les trois vivants.
+
+Raoul sourit faiblement.
+
+— C'en est une.
+
+***
+
+Plus tard, Clara retrouva Dara près d'une tente où des familles avaient allumé des lampes.
+
+Le peuple avait remporté une bataille qu'aucun général royal n'avait cru nécessaire de livrer.
+
+Mais le lendemain, il faudrait obtenir par la parole ce qu'ils venaient de défendre sur les hauteurs.
+
+Dara observa les flammes.
+
+— Tu as vu son visage quand ses propres hommes n'ont pas bougé ?
+
+— Oui.
+
+— Il était persuadé que nous allions avoir peur de lui jusqu'au bout.
+
+Clara regarda le plateau assombri.
+
+— Moi, j'ai eu peur.
+
+Dara lui prit la main.
+
+— Moi aussi.
+
+Au loin, le fleuve continuait de couler.
+
+Le pharaon était prisonnier.
+
+Pour la première fois, l'avenir de ces villages ne dépendait plus entièrement de sa volonté.
+
+---
+
+
+## Chapitre 33 — Une couronne sans maître
+
+Le premier matin de paix, Nino demanda s'il pouvait enfin dormir.
+
+Personne ne lui répondit.
+
+Le deuxième matin, il posa la même question.
+
+Dara lui tendit une liste de provisions à distribuer.
+
+— Je commence à regretter l'époque où nous étions en guerre, déclara-t-il.
+
+Clara lui lança un regard.
+
+— Répète ça devant ceux qui enterrent leurs proches.
+
+Nino se tut.
+
+Il prit la liste.
+
+***
+
+Les négociations occupèrent plusieurs journées.
+
+Le général Méren avait ramené ses hommes à distance des villages, sans désarmer les habitants qui venaient de résister à l'offensive. Les gouverneurs reçurent la nouvelle de la capture du pharaon avec incrédulité.
+
+Certains exigeaient sa libération immédiate. D'autres rappelaient qu'il avait envoyé l'armée dans une campagne coûteuse, rejeté les avertissements et menacé ses propres officiers.
+
+Le royaume devait décider de son avenir. Les communautés insurgées, elles, réclamaient surtout de pouvoir décider du leur.
+
+Dara se présenta avec plusieurs représentants des villages. Clara l'accompagnait, mais ne parlait pas à sa place.
+
+Un dignitaire demanda ce que les rebelles proposaient en échange de leur liberté.
+
+Dara posa les deux mains sur la table.
+
+— Nous ne proposons pas d'acheter ce qui n'aurait jamais dû nous être retiré.
+
+Méren, assis face à elle, n'intervint pas.
+
+— Nous demandons la fin de l'asservissement, la reconnaissance de nos terres et la possibilité d'élire nos propres représentants. Vous voulez que la guerre cesse. Nous aussi.
+
+Les discussions furent difficiles. Les anciens maîtres refusaient d'abord de perdre leurs privilèges. Les habitants ne croyaient plus aux promesses prononcées dans les palais.
+
+Mais le pharaon était captif, plusieurs garnisons refusaient une nouvelle campagne et le royaume avait besoin de rouvrir ses routes commerciales.
+
+Un accord finit par reconnaître l'autonomie des communautés, sous des garanties acceptées par les autorités qui cherchaient à remplacer le souverain.
+
+Il ne réparait pas les morts ni les années perdues.
+
+Il rendait possible quelque chose qu'aucun des habitants n'avait connu : décider sans demander la permission du pharaon.
+
+***
+
+Le souverain déchu demanda à voir Clara.
+
+Dara accepta qu'une délégation le rencontre, à condition qu'aucun prisonnier ni aucun habitant ne soit exposé inutilement.
+
+Le pharaon était retenu dans une résidence gardée. Il portait encore des vêtements précieux, mais aucun serviteur ne se précipitait plus lorsqu'il levait la main.
+
+Il observa Clara avec une expression mêlée de rancœur et de fascination.
+
+— Une étrangère, dit-il. Tout cela à cause d'une étrangère.
+
+Dara répondit avant elle.
+
+— Non. À cause de ceux que vous avez condamnés à servir.
+
+Le pharaon ignora sa voix.
+
+— Et maintenant, qu'espères-tu ? Prendre ma couronne ?
+
+Clara sentit la colère lui monter au visage. Elle pensa aux blessés, à ceux qu'on avait ramenés du plateau et aux familles qui cherchaient encore un disparu.
+
+— Ce que je veux, répondit-elle, c'est que vous ne puissiez plus décider de leur vie pour satisfaire votre orgueil.
+
+Il eut un rire sans joie.
+
+— Un peuple a toujours besoin d'un maître.
+
+Dara le regarda.
+
+— Alors vous ne comprenez toujours pas pourquoi vous avez perdu.
+
+Elle tourna les talons.
+
+Clara la suivit.
+
+Cette fois, elles ne regardèrent pas en arrière.
+
+***
+
+La liberté exigeait désormais des choses beaucoup moins spectaculaires qu'une bataille.
+
+Il fallait rouvrir les greniers, rendre les terres confisquées, organiser la sécurité des chemins et choisir qui aurait le droit de parler au nom des communautés.
+
+Dara dirigeait les réunions sans prétendre qu'une victoire suffisait à faire disparaître les désaccords.
+
+Victor aida à inventorier ce qu'ils avaient acheté, consommé et perdu. Il posa un moment les yeux sur une ligne consacrée aux armes.
+
+Julien le remarqua.
+
+— Tu repenses au Moyen Âge ?
+
+Victor acquiesça.
+
+— Là-bas, j'ai cru qu'on pouvait devenir riche sans se demander ce qu'on vendait réellement.
+
+— Et ici ?
+
+Victor regarda les habitants qui reconstruisaient une porte endommagée.
+
+— Ici, j'ai compris qu'une victoire n'a pas la même valeur selon celui qui doit vivre avec après.
+
+Il rangea le registre sans chercher à transformer cette phrase en excuse.
+
+***
+
+Au terme des premières assemblées, Dara demanda à Clara de se présenter devant les représentants.
+
+— Si c'est encore un discours, prévint Clara, je n'en ai préparé aucun.
+
+Quelques habitants rirent.
+
+Dara lui répondit :
+
+— Vous avez parlé suffisamment pour dix personnes depuis votre arrivée.
+
+Nino se pencha vers Raoul.
+
+— Ça, je peux confirmer.
+
+— Moi aussi, murmura Victor.
+
+Dara poursuivit plus sérieusement.
+
+— Vous avez eu tort, parfois. Vous ne connaissiez ni nos usages ni notre histoire. Mais vous avez appris à écouter. Et lorsque nous avons eu besoin de vous, vous êtes restée.
+
+Elle expliqua que les communautés voulaient confier à Clara le titre de reine protectrice.
+
+Ce titre ne lui donnerait pas les terres ni le pouvoir de commander seule. L'assemblée garderait l'autorité sur les décisions. La fonction de Clara représenterait leur alliance, leur reconnaissance et l'engagement de rester un peuple libre.
+
+Clara resta immobile.
+
+Julien se pencha vers Victor.
+
+— Tu l'as déjà vue sans réponse ?
+
+— Jamais. Je voudrais qu'on marque ce jour sur un calendrier.
+
+Clara leva enfin les yeux.
+
+— Je ne suis pas de votre époque. Je veux revoir ma maison.
+
+— Nous le savons, dit Dara.
+
+— Et je ne veux pas devenir une prisonnière de cette couronne.
+
+— Alors elle ne sera pas une prison. Vous pourrez partir. Vous pourrez revenir. Ce que nous voulons, c'est un lien, pas une nouvelle chaîne.
+
+Clara observa les visages assemblés.
+
+— Dans ce cas, j'accepte. Mais si un jour je me prends pour un pharaon, vous me le rappellerez.
+
+Dara sourit.
+
+— Nous n'attendrons pas un jour entier.
+
+La salle éclata de rire.
+
+***
+
+La fête fut organisée au bord du fleuve.
+
+Il y eut de la musique, des plats préparés par les familles et des danses auxquelles Nino participa avec une confiance très supérieure à ses capacités.
+
+Malo et Solan avaient trouvé des bateliers prêts à leur apprendre des chants dont Victor n'aurait jamais osé demander la traduction.
+
+Raoul avait conservé son chapeau de cow-boy. Une petite fille lui demanda s'il était roi, lui aussi.
+
+— Non.
+
+— Alors pourquoi portes-tu une couronne bizarre ?
+
+Nino, qui passait derrière eux, répondit avant lui :
+
+— Parce que dans son pays, tous les rois montent à cheval.
+
+Raoul soupira.
+
+— Ça va me suivre jusqu'à la fin de ma vie.
+
+Thuggy prit la parole sous son capuchon.
+
+— Selon les sources historiques disponibles, cette affirmation est inexacte.
+
+— Tu vois, même lui le sait, dit Raoul.
+
+Nino prit l'air offensé.
+
+— Vous êtes vraiment incapables d'apprécier une bonne légende.
+
+***
+
+Plus tard, Julien retrouva Clara près de l'eau.
+
+Elle tenait le petit signe qu'on lui avait remis pendant la cérémonie.
+
+— Tu regrettes ? demanda-t-il.
+
+— D'être venue ici ?
+
+— D'avoir accepté.
+
+Clara contempla les maisons, les lampes et les enfants qui couraient le long de la rive.
+
+— Non. Mais je ne veux pas que leur vie s'arrête parce que je partirai un jour.
+
+— Dara ne les laissera pas s'arrêter.
+
+— Je sais.
+
+Julien s'assit à côté d'elle.
+
+— Quand tu as disparu, je pensais seulement à te retrouver. J'étais prêt à entraîner tout le monde derrière moi sans leur demander ce qu'ils voulaient.
+
+— C'est très toi.
+
+— Merci.
+
+Elle posa sa tête contre son épaule.
+
+— Tu m'as retrouvée. Maintenant, il faut qu'on trouve notre chemin.
+
+Derrière eux, Nino criait qu'il avait été injustement disqualifié d'un concours de danse.
+
+Clara sourit.
+
+— Et si possible, avant qu'il ne fonde une dynastie ici.
+
+***
+
+Savio les rejoignit peu après.
+
+Il avait laissé Thuggy à l'intérieur, en mode veille, pour économiser son énergie.
+
+— Nous avons des alliés, dit-il. Un endroit sûr où garder nos notes. Et plusieurs portes que nous n'avons pas encore explorées complètement.
+
+Julien regarda le fleuve.
+
+— Mais toujours aucun chemin direct vers chez nous.
+
+— Pas encore.
+
+Au loin, la fête continuait.
+
+Le peuple avait gagné le droit de construire son avenir.
+
+Les six voyageurs devaient maintenant retrouver le leur.
+
+---
+
+
+## Chapitre 34 — Trois jours d'eau entre nous et chez nous
+
+Victor traça cinq cercles sur une feuille.
+
+Il y écrivit : ÉGYPTE, ÎLE MAUDITE, PREMIÈRE ÎLE PIRATE, PREMIÈRE SALLE, MAISON.
+
+Puis il relia les cercles par des flèches.
+
+Nino regarda le dessin.
+
+— C'est plus compliqué que le réseau de transports de notre ville.
+
+— Pour l'instant, expliqua Victor, nous savons revenir de l'Égypte jusqu'à l'île maudite. Ensuite, il faut traverser trois jours de mer pour atteindre la première île pirate. Là, nous pourrions retrouver la salle qui mène à notre époque.
+
+— Tu as dit « il faut », remarqua Raoul. Tu n'as pas dit « on peut ».
+
+— C'est le problème.
+
+— Quel problème ? demanda Nino.
+
+Raoul fixa son compagnon.
+
+— Le bateau.
+
+— Ah oui. Le détail.
+
+***
+
+Ils retournèrent reconnaître la côte de l'île maudite.
+
+Le passage souterrain fonctionnait encore. L'air marin, les falaises et les vagues étaient restés les mêmes.
+
+Mais le navire pirate qui les avait amenés jusque-là n'était plus présent.
+
+Malo observa la mer.
+
+— Trois jours de navigation avec un capitaine qui connaissait la route. Ça ne veut pas dire que nous saurions la refaire seuls.
+
+Solan acquiesça.
+
+— Même avec un bateau, il nous manquerait les repères, les courants et les endroits sûrs où approcher.
+
+— Et sans bateau, ajouta Nino, ça devient quand même nettement plus difficile.
+
+Julien contempla l'eau. Ils étaient si près de leur chemin d'origine et si loin de pouvoir l'emprunter.
+
+Clara se tenait près de lui.
+
+— Nous avons déjà traversé trop de mondes pour nous jeter dans la mer en espérant reconnaître une île.
+
+Il hocha la tête.
+
+Ils rentrèrent en Égypte avec davantage de questions que de réponses.
+
+***
+
+Dans la salle où Savio travaillait, Thuggy avait projeté les copies des inscriptions.
+
+Il distinguait les emblèmes des ouvertures qu'ils avaient franchies, les marques de la première salle et les motifs japonais reproduits par Raoul.
+
+— Je vous propose de ne plus considérer les portes seulement comme des destinations, expliqua Savio. Elles pourraient appartenir à plusieurs installations reliées entre elles.
+
+Victor se pencha.
+
+— Tu veux dire qu'on peut peut-être rentrer sans prendre ce bateau ?
+
+— Peut-être. Mais il faudrait trouver et vérifier une autre succession de passages.
+
+Julien observa les marques qui se répétaient d'un dessin à l'autre.
+
+— Et Thuggy peut calculer où elles mènent ?
+
+— Non, répondit le robot. Je ne possède pas de carte complète de ce réseau. Je peux comparer les signes, enregistrer les relevés et signaler des hypothèses.
+
+— Pour une intelligence supérieure, tu dis souvent que tu ne sais pas, remarqua Nino.
+
+— C'est l'un des comportements qui distinguent une estimation fiable d'une invention.
+
+Savio sourit.
+
+— Voilà pourquoi je l'apprécie.
+
+Ils avaient au moins une règle : ne plus franchir un passage sans conserver un repère pour le retour, et ne pas confondre un symbole ressemblant avec une liaison vérifiée.
+
+***
+
+Ils auraient pu commencer par le Japon.
+
+Raoul y avait rencontré une famille accueillante, et Savio avait envie de revoir les inscriptions de la statue.
+
+Ils auraient pu retourner au Far West, où leur or valait de nouveau quelque chose.
+
+Mais Nino ne cessait de parler de la ville futuriste.
+
+— Vous n'imaginez pas ce qu'ils possèdent. Des véhicules qui volent, des machines qui font les courses et des objets qui ressemblent à des jouets mais peuvent vous sauver la vie.
+
+— Tu as aussi dit qu'il y avait des gens qui ne pouvaient pas acheter de nourriture, rappela Clara.
+
+Nino baissa la tête.
+
+— Oui. Ce n'est pas un monde parfait.
+
+Raoul ajouta :
+
+— Mais il peut nous fournir de meilleurs équipements pour des endroits qu'on ne connaît pas. Des vêtements, des réserves, des instruments. Pas seulement des armes.
+
+Victor sembla retrouver une étincelle dans les yeux.
+
+— Et il y a des collectionneurs qui paient pour des objets de notre époque ?
+
+— Pour certains, oui, répondit Nino.
+
+Savio réfléchit.
+
+— Des objets fabriqués ici, en Égypte, pourraient également les intéresser. Ils seraient authentiques, mais pas usés par des millénaires.
+
+Dara, qui les avait rejoints, posa immédiatement une limite.
+
+— Vous n'emporterez rien qui appartienne aux familles ou à nos lieux sacrés sans leur accord.
+
+— Bien sûr, répondit Savio. Nous pouvons proposer d'acheter ou d'échanger des objets fabriqués pour nous. Avec des artisans volontaires.
+
+— Alors ce sera à eux de décider.
+
+Julien regarda les autres.
+
+— Le futur d'abord, donc ? Pour s'équiper correctement, comprendre ce monde et poursuivre la recherche ?
+
+Personne ne protesta.
+
+Thuggy leva une main.
+
+— Observation complémentaire : votre expérience préalable de cette destination repose sur deux personnes et un trajet très limité.
+
+— Merci, dit Raoul. C'est précisément pour ça que tu viendras avec nous.
+
+***
+
+Plus tard, Clara retrouva Julien dans une pièce éclairée par les dernières lueurs du jour.
+
+— Tu es déçu de ne pas rentrer tout de suite ?
+
+Il prit le temps de répondre.
+
+— Oui. J'ai cru qu'une fois retrouvée, il ne resterait qu'à prendre la bonne porte.
+
+— Et moi, j'ai cru qu'en la traversant, on pouvait tomber sur un dîner romantique.
+
+Julien éclata de rire.
+
+— Mauvais choix de restaurant.
+
+Elle sourit, puis redevint sérieuse.
+
+— Je veux rentrer. Mais je veux y arriver sans perdre quelqu'un en chemin. Et je veux pouvoir revoir Dara un jour.
+
+Julien la regarda.
+
+— Tu es vraiment devenue leur reine.
+
+— Non. Ils m'ont confié quelque chose. Ce n'est pas la même chose.
+
+Elle lui tendit un carnet.
+
+— Alors cette fois, on préparera le voyage ensemble. Plus de départ improvisé, plus de surprise à une seule personne.
+
+Julien prit le carnet.
+
+— Promis.
+
+***
+
+Au soir, les six se retrouvèrent autour de la table.
+
+Malo et Solan les écoutaient depuis l'entrée, ravis qu'aucun d'eux ne propose immédiatement un nouveau voyage en mer.
+
+Raoul exposa les risques.
+
+Clara rappela que chacun devait être libre de participer.
+
+Victor évoqua les échanges possibles.
+
+Savio parla d'instruments capables d'améliorer leurs relevés.
+
+Nino expliqua, pour la troisième fois, qu'ils n'avaient encore rien vu de la ville futuriste.
+
+Thuggy proposa de préparer une liste de matériel.
+
+— Nous ferons ça demain, répondit Julien.
+
+Nino se redressa.
+
+— Demain ? Pourquoi pas maintenant ?
+
+— Parce que tu as commencé ta liste par « chaussures qui marchent toutes seules ».
+
+— Et tu verras que j'avais raison.
+
+Savio baissa les yeux vers les symboles du carnet.
+
+Ils ne rentreraient peut-être pas par la route qu'ils connaissaient.
+
+Mais pour la première fois depuis longtemps, cette incertitude ressemblait moins à une condamnation qu'à un choix.
+
+---
+
+
+## Chapitre 35 — La prochaine porte
+
+Savio n'avait pas demandé une table plus grande.
+
+Il en avait demandé une deuxième.
+
+Victor s'appuya contre le mur.
+
+— Je savais que le retour à la maison finirait par nécessiter des travaux.
+
+— Nous essayons de ne plus confondre les passages, répondit Savio.
+
+Sur la première table reposait la carte des mondes visités.
+
+Le Moyen Âge. Rome. La première île pirate. Trois jours de mer. L'île maudite et sa seconde salle. Puis l'Égypte, le Japon, le futur et le Far West.
+
+Sur l'autre, Savio avait disposé les carnets de signes et les copies des fragments qu'il avait étudiés dans les archives égyptiennes.
+
+Thuggy observa le tout.
+
+— Votre organisation documentaire a progressé de manière satisfaisante. Vous utilisez désormais deux surfaces de travail au lieu de huit piles instables.
+
+— Il se moque de moi ? demanda Savio.
+
+— Je crois qu'il t'admire, dit Nino.
+
+— Je signale seulement une amélioration mesurable.
+
+Raoul attrapa un carnet avant qu'il tombe.
+
+— Voilà une autre amélioration mesurable.
+
+***
+
+Savio entreprit de vérifier les signes notés au début de leur aventure.
+
+Il retrouva la première page, celle qu'il avait couverte de dessins dans le souterrain où les amis avaient découvert le mécanisme initial.
+
+Une marque figurait au-dessus de l'ouverture qui les avait conduits pour la première fois au Moyen Âge.
+
+Plusieurs autres étaient gravées près du socle.
+
+— Tu les avais relevées dès le début ? demanda Clara.
+
+— Oui. Je ne savais pas ce qu'elles signifiaient.
+
+Thuggy projeta les tracés japonais, copiés par Raoul lorsque lui et Nino avaient visité le sanctuaire de Masanori.
+
+Une courbe, une petite interruption dans la ligne, trois points presque effacés.
+
+Savio se figea.
+
+— Attends.
+
+Il posa le dessin de la première salle à côté de celui de la statue japonaise.
+
+Les formes se ressemblaient.
+
+Mais un détail était plus troublant encore : l'interruption et les trois points se trouvaient au même endroit.
+
+— Ce n'est pas forcément la même inscription, prévint Savio.
+
+— Concordance graphique élevée sur les portions conservées, répondit Thuggy. Mais provenance, fonction et relation entre les deux structures inconnues.
+
+Nino se pencha.
+
+— Vous êtes en train de nous dire qu'on a vu, au Japon, un symbole qui ressemble à celui de la porte de chez nous ?
+
+— Oui, répondit Savio.
+
+Julien sentit son cœur accélérer.
+
+— Alors c'est un raccourci ?
+
+— Je n'en sais rien. Ça peut indiquer une connexion, une origine commune ou une simple reprise d'un signe. Il faudra vérifier.
+
+Il regarda ses compagnons.
+
+— Mais cette fois, nous avons une piste précise. Pas seulement l'espoir de tomber sur la bonne arche.
+
+***
+
+L'idée de retourner au Japon traversa aussitôt la table.
+
+Raoul reconnut qu'ils y avaient laissé un allié, mais rappela qu'ils ne savaient pas où se trouvait un éventuel autre mécanisme.
+
+Victor demanda combien de temps leur prendrait une nouvelle exploration sans équipement adapté.
+
+Clara voulait qu'ils évitent surtout de se retrouver une fois de plus séparés.
+
+Nino ouvrit la bouche.
+
+Julien leva une main.
+
+— Je sais. Tu vas dire « le futur ».
+
+— Je trouve injuste qu'on m'enlève mes meilleures répliques.
+
+Il leur rappela qu'il connaissait déjà un passage, une partie de la ville et un marchand d'antiquités. Le téléphone qu'il avait vendu constituait une preuve de l'intérêt de certains collectionneurs pour leur époque.
+
+— Et Ilan ? demanda Clara.
+
+Nino sourit moins largement.
+
+— J'aimerais savoir comment va sa famille.
+
+Raoul acquiesça.
+
+— Nous pouvons retourner là-bas. Mais avec une préparation sérieuse. Le premier voyage nous a surtout appris combien de choses nous ignorons.
+
+Savio regarda les deux carnets.
+
+— Si nous voulons reconnaître des signatures à travers plusieurs mondes, nous aurons besoin de matériel fiable. Et de temps pour apprendre à nous en servir.
+
+— Nous ne devons pas non plus compter uniquement sur la technologie du futur, ajouta Clara.
+
+— Confirmé, dit Thuggy. Plusieurs de mes systèmes sont obsolètes.
+
+Nino tapota doucement le dessus de sa tête.
+
+— Toi, tu restes le meilleur achat de ma vie.
+
+— Cette affirmation est difficile à vérifier sans votre historique financier.
+
+Victor éclata de rire.
+
+— Lui, au moins, connaît Nino.
+
+***
+
+Ils quittèrent les tables lorsque le soleil commença à descendre.
+
+Près du fleuve, les habitants reprenaient peu à peu leurs habitudes. Un bateau revenait chargé de marchandises. Des enfants se disputaient autour d'un jeu. Des femmes riaient en préparant le repas.
+
+Le souvenir de la guerre n'avait pas disparu. Sur certains visages, il ne disparaîtrait jamais entièrement.
+
+Mais les gardes royaux qui venaient autrefois prendre les provisions ne commandaient plus ici.
+
+Dara s'avança vers Clara.
+
+— Alors, vous pensez repartir ?
+
+— Pas aujourd'hui. Bientôt, peut-être.
+
+— Votre place sera toujours gardée parmi nous, tant que nos représentants le voudront et que vous souhaiterez revenir.
+
+Clara la prit dans ses bras.
+
+— Je reviendrai.
+
+Dara sourit.
+
+— Je vous demanderai alors de vous reposer au moins une journée avant de donner des ordres.
+
+— Je ne promets rien.
+
+***
+
+Raoul avait posé son chapeau sur ses genoux.
+
+Il regardait ses compagnons discuter et se souvenait du premier jour où il les avait suivis. À cette époque, il imaginait qu'ils transportaient simplement quelques marchandises de grande valeur.
+
+Il n'avait pas prévu les gladiateurs, les pirates, les samouraïs, les chevaux du Far West, ni le petit robot qui se tenait près de Nino.
+
+— À quoi tu penses ? lui demanda Julien.
+
+— Que je suis devenu beaucoup plus mauvais pour prévoir mes semaines.
+
+Nino se pencha vers lui.
+
+— Mais nettement meilleur pour choisir tes vêtements.
+
+Raoul regarda son chapeau.
+
+— Celui-là, je le garde.
+
+Victor observait les derniers rayons sur le fleuve.
+
+— Vous vous souvenez de notre première idée ? On voulait seulement trouver quelques pièces avec un détecteur de métaux.
+
+— Et faire fortune, précisa Nino.
+
+— Oui. Maintenant, chaque pièce que nous retrouvons pourrait venir d'un autre siècle.
+
+Savio caressa la couverture de son carnet.
+
+— Ce n'est pas seulement ce qu'on transporte qui compte. C'est ce qu'on apprend de ces mondes et de ceux qui y vivent.
+
+— N'en fais pas trop, prévint Nino. On reste quand même les Marchands du Temps.
+
+***
+
+Le lendemain, ils commenceraient l'inventaire.
+
+Ils garderaient les objets nécessaires à leur sécurité. Ils chercheraient, avec l'accord des artisans égyptiens, des pièces qu'ils pourraient proposer légalement aux collectionneurs de la ville futuriste.
+
+Ensuite, Raoul et Nino guideraient les six amis vers une destination que les autres n'avaient encore vue qu'à travers leurs récits.
+
+Mais ce soir-là, ils ne préparaient rien.
+
+Clara était assise près de Victor.
+
+Julien regardait sa sœur avec le soulagement tranquille d'un homme qui n'avait plus besoin de courir après elle.
+
+Thuggy rechargeait ses réserves aux dernières lueurs du soleil avant de passer en veille.
+
+Et Savio, qui avait enfin accepté de refermer son carnet, contemplait la marque tracée sur sa couverture : un petit cercle interrompu, trois points, une énigme venue du premier jour.
+
+— Tu crois vraiment qu'on peut retrouver notre époque ? lui demanda Nino.
+
+Savio réfléchit.
+
+— Nous savons maintenant qu'il existe plusieurs chemins. Nous apprenons à distinguer ce que nous avons vu de ce que nous imaginons.
+
+— C'est une manière savante de dire oui ?
+
+— C'est une manière honnête de dire que nous allons essayer.
+
+Nino leva les yeux vers les étoiles.
+
+— Ça me suffit.
 
 Puis il ajouta :
 
-— Mais avant, on peut essayer d'en trouver une qui mène à une bonne pizzeria ?
+— Et la prochaine fois que vous visiterez le futur, je vous préviens : c'est moi qui choisis le restaurant.
 
-Savio éclata de rire.
+— Il faudra d'abord que le restaurant accepte notre argent, répondit Raoul.
 
-***
+— Voilà pourquoi je compte m'enrichir avant.
 
-Ils se retrouvèrent tous les six autour du carnet.
+Les autres éclatèrent de rire.
 
-Julien examina les trois destinations.
+Julien les regarda tous les cinq.
 
-Victor réfléchit à ce qu'ils auraient besoin d'emporter.
+Il avait retrouvé sa sœur, mais pas sa vie d'avant. À la place, il avait découvert qu'une famille pouvait grandir au fil des voyages, et qu'une porte inconnue n'était plus nécessairement une catastrophe.
 
-Raoul parla des risques.
+Il posa la main sur le carnet de Savio.
 
-Clara rappela qu'ils devraient d'abord décider qui souhaitait venir et pour combien de temps.
+— Demain, on s'organise. Après, on part ensemble.
 
-Nino proposa de rédiger un règlement.
+Derrière les collines, sur l'île que les marins disaient maudite, une arche donnait toujours sur une ville de tours lumineuses et de machines impossibles.
 
-Julien lui demanda de commencer par une seule règle.
+Pour deux d'entre eux, c'était déjà un souvenir.
 
-Nino prit un air très sérieux.
+Pour les quatre autres, ce serait la première fois.
 
-— Ne jamais entrer quelque part sans savoir comment en ressortir.
+Et cette fois, personne ne partirait seul.
 
-Un silence suivit.
-
-Puis Savio acquiesça.
-
-— C'est la meilleure règle qu'on ait eue depuis le début.
-
-Nino ouvrit de grands yeux.
-
-— Vous êtes tous malades aujourd'hui.
-
-Julien regarda chacun de ses amis, puis sa sœur.
-
-Il n'avait pas retrouvé sa vie d'avant.
-
-Il avait retrouvé sa famille, gagné un nouvel ami, découvert des alliés dans une autre époque et appris que certaines décisions ne se prennent jamais seul.
-
-Il referma doucement le carnet.
-
-— Alors on commencera par là.
-
-La nuit tombait sur le fleuve.
-
-Derrière les montagnes, quelque part sur une île que les marins disaient maudite, les portails attendaient.
-
-Trois chemins étaient déjà connus.
-
-Et derrière chacun se cachaient d'autres portes.
-
-**FIN DU TOME 1 — PREMIER JET**
+**FIN DU TOME 1**
 
 ---
 
