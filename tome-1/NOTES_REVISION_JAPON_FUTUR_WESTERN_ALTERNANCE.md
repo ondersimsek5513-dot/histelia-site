@@ -1,3 +1,15 @@
+> **ÉTAT ÉDITORIAL ACTUEL — 17 NOVEMBRE 2026**
+>
+> Le manuscrit maître compte **35 chapitres** et la version révisée est publiée sur le lecteur Histelia. Les chapitres **31 à 35 ont été réécrits** après la consultation des ébauches du tome 2 conservées dans le dépôt privé `histelia` (branche `creation/les-marchands-du-temps`).
+>
+> **31** — guerre d'usure et pression sur la logistique royale ; **32** — bataille asymétrique des hauteurs et pharaon capturé vivant après ses décisions précipitées ; **33** — accord politique, souveraineté des communautés et Clara reine protectrice ; **34** — impossibilité de rejoindre directement le XXIe siècle par la traversée pirate et choix du futur comme prochaine expédition ; **35** — concordance partielle des signatures (sans décryptage des monuments), préparation des six à une visite collective du futur **qui n'a pas encore commencé**.
+>
+> **Raccord tome 2 :** la première expédition des six vers le futur commencera au tome 2, avec Nino et Raoul comme guides ; Thuggy a **déjà été acquis au tome 1**, et Nino a déjà vendu son téléphone. Les mystères des monuments-relais sont à développer au tome 2 et le monde des créateurs demeure réservé au **dernier tome**.
+>
+> **Références vivantes :** [manuscrit maître](https://github.com/ondersimsek5513-dot/histelia-site/blob/main/tome-1/manuscrit.md) · [lecture publique](https://headless-omtyimykitx-ondersimsek5513-140f.wix-site-host.com/).
+>
+> Les consignes plus anciennes figurant dans ce document sont des archives du processus éditorial. En cas de contradiction, suivre le manuscrit maître et le présent état actualisé.
+
 # HISTELIA — CONSIGNES VALIDÉES : JAPON, FUTUR, FAR WEST ET ALTERNANCE
 
 Date : 17 novembre 2026
