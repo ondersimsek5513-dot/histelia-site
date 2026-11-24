@@ -153,6 +153,44 @@ Il n'avait pas encore essayé le tir à l'arc, mais il pouvait apprendre. Il ét
 
 Même sans classe définie, il aurait pu leur demander. Le problème était de prononcer la première phrase.
 
+Un peu plus loin, un garçon à la cape rouge avait étalé quatre fiches d'inscription sur une table.
+
+— Épéiste, annonça-t-il en posant un doigt sur la sienne. Je mène les offensives. Toi, tu prends les coups.
+
+Il s'adressait à une recrue aux épaules larges, qui portait un bouclier rond.
+
+— Gardien, confirma celui-ci avec un sourire. Ça me va.
+
+Une jeune fille au fermoir argenté posa sa fiche à côté des deux autres.
+
+— Mage. Mais je ne compte pas passer mes journées à éliminer des créatures du premier couloir.
+
+— Tant mieux. On n'est pas là pour traîner.
+
+Le dernier, qui portait une écharpe claire, indiqua sa classe de soigneur. Le garçon à la cape rouge hocha la tête, satisfait.
+
+— Quatre. On a tout ce qu'il faut.
+
+Zeki regarda les fiches. Il aurait aimé pouvoir poser la sienne sur la table avec la même assurance.
+
+Le gardien remarqua son regard, puis son attestation encore dépliée.
+
+— Indéterminée ? Ça existe, ça ?
+
+— Apparemment, répondit la mage.
+
+Le soigneur eut un petit rire.
+
+— Pratique pour savoir à quoi tu sers.
+
+Le garçon à la cape rouge ramassa les quatre fiches.
+
+— Allez. On a des choses à préparer.
+
+Ils partirent ensemble. Zeki replia son attestation. Il ne leur avait rien demandé.
+
+Il aurait pourtant aimé savoir ce que cela faisait d'entendre quelqu'un dire : *On a tout ce qu'il faut.*
+
 À une table, trois recrues discutaient de leurs rôles respectifs. L'une dessinait un plan sur un coin de papier. À une autre, deux amis d'enfance s'étaient visiblement inscrits ensemble et cherchaient un troisième compagnon.
 
 Zeki inspira.
@@ -481,7 +519,27 @@ L'archer réfléchit.
 
 — Pour savoir.
 
-Zeki lui souhaita une bonne journée. Il rejoignit le comptoir, avec l'impression d'avoir obtenu une réponse et aucune information utile.
+Zeki lui souhaita une bonne journée, avec l'impression d'avoir obtenu une réponse et aucune information utile.
+
+À la table voisine, il reconnut les quatre recrues qu'il avait vues se réunir la veille.
+
+Le garçon à la cape rouge examinait les résultats de leur première sortie. Son bouclier, posé près du gardien, portait une rayure toute fraîche. La mage et le soigneur discutaient déjà des créatures qu'ils comptaient affronter ensuite.
+
+— Demain, on dépasse les premières zones, déclara le chef.
+
+En passant près de leur table, Zeki aperçut plusieurs trophées. Le gardien le reconnut.
+
+— Ah, l'indéterminé ! Tu as fini par trouver quelqu'un ?
+
+Zeki secoua la tête.
+
+— Toujours pas ? fit le soigneur.
+
+— Laisse, dit la mage. Il a peut-être besoin de plus de temps.
+
+Son ton indiquait qu'elle ne parlait pas d'une qualité.
+
+Zeki ne répondit rien. Le groupe reprit sa conversation. Il se dirigea vers le comptoir.
 
 L'employée le reconnut aussitôt.
 
@@ -1226,3 +1284,425 @@ Il prit une feuille vierge et trempa sa plume dans l'encrier.
 Zeki tira sa chaise un peu plus près du bureau.
 
 Pour la première fois depuis son inscription, quelqu'un lui demandait de raconter son expédition en entier.
+
+## Tome 1 — Chapitre 5 : Le prix de la prudence
+
+Au bout de quelques jours, l'employée de la Guilde n'eut plus besoin de demander son nom à Zeki.
+
+— Les Squelettes, aujourd'hui ?
+
+— Et les lapins.
+
+Elle sortit les deux fiches correspondantes avant même qu'il ait posé son sac sur le comptoir.
+
+— Tu as terminé les contrats ?
+
+Zeki acquiesça.
+
+Elle vérifia les trophées, compta les pièces et raya deux lignes de son registre.
+
+Il avait découvert que la Guilde proposait des contrats portant sur un certain nombre de créatures. Les remplir lui rapportait une prime en plus de la valeur des ressources récoltées. Depuis, il choisissait ses missions avant de partir et ne rentrait, sauf imprévu, qu'après avoir atteint le nombre demandé.
+
+Il ouvrit son carnet. À côté des croquis de monstres, les colonnes de chiffres occupaient désormais une place considérable.
+
+Ses premières expéditions lui avaient appris trois choses : les Arbres-marcheurs ne couraient pas, les Lapins cornus couraient beaucoup trop vite, et une grenade magique coûtait une fortune.
+
+La dernière leçon était de loin celle qu'il retenait le mieux.
+
+— Tu ne t'ennuies pas, à force de retourner aux mêmes endroits ? demanda l'employée.
+
+— Non. Je gagne de l'argent.
+
+— C'est une réponse qui se défend.
+
+Elle lui tendit sa récompense.
+
+— Et tu reviens moins souvent avec quelque chose de cassé. Continue comme ça.
+
+En s'éloignant du comptoir, Zeki aperçut le groupe de quatre recrues qu'il avait vu se former le jour de son inscription.
+
+Le garçon à la cape rouge avait changé d'épée. Le gardien portait une protection neuve sur l'épaule, et le fermoir argenté de la mage n'était plus le seul objet brillant de son équipement : une petite gemme ornait désormais l'extrémité de son bâton.
+
+Ils parlaient d'une créature que Zeki n'avait encore jamais rencontrée.
+
+— Ton sort a touché juste au bon moment, disait le gardien.
+
+— Parce que tu l'as retenue suffisamment longtemps, répondit la mage.
+
+Leur chef déroula une carte sur la table.
+
+— La prochaine fois, on essaie de passer ici.
+
+Zeki ralentit malgré lui. Il aurait aimé entendre la suite.
+
+Le soigneur le remarqua.
+
+— Alors, l'indéterminé ? Tu as enfin quitté les premières galeries ?
+
+— Pas encore.
+
+— Tu en es où ?
+
+— Aux Lapins cornus.
+
+Le gardien éclata de rire.
+
+— Toujours ?
+
+Le chef leva les yeux de sa carte.
+
+— Tu sais, les premières zones sont faites pour apprendre les bases. Si tu veux devenir un véritable aventurier, il faudra bien que tu en sortes un jour.
+
+— Oui, répondit Zeki.
+
+Il n'avait rien trouvé d'autre à dire.
+
+Les quatre reprirent leur discussion. Zeki regarda sa petite épée, puis la leur. À voir leur équipement et la facilité avec laquelle ils parlaient de leurs combats, ils semblaient exercer ce métier depuis bien plus longtemps que lui.
+
+Pourtant, ils avaient commencé le même jour.
+
+Sur le chemin des Archives, il sortit son carnet et consulta ses dernières notes.
+
+Le matin même, après un combat contre un Squelette, le système lui avait annoncé une nouvelle montée de niveau. Sa fronde lui paraissait plus facile à manier. Il récupérait aussi plus rapidement après les efforts.
+
+Il progressait.
+
+Simplement, cela ne se voyait pas beaucoup.
+
+***
+
+— Tu as laissé cinq Squelettes derrière toi ? demanda Edrin.
+
+— Et trois lapins.
+
+— Par manque de temps ?
+
+— Ils étaient trop nombreux.
+
+L'érudit examina le croquis que Zeki venait de tracer.
+
+— Pourtant, tu connais leurs points faibles.
+
+— Oui, mais ils ne les présentent pas tous en même temps.
+
+Edrin eut un sourire.
+
+Zeki avait essayé d'attirer les créatures séparément. Cela fonctionnait dans certains passages, mais il y avait des endroits où les monstres se tenaient trop près les uns des autres. Chaque fois, il renonçait.
+
+Il repensa aux trois Squelettes de sa première expédition. Sans sa grenade, il n'était pas certain qu'il aurait pu sortir du donjon.
+
+— Il me faudrait quelque chose pour retenir les autres pendant que j'en combats un.
+
+— Un gardien, suggéra Edrin.
+
+Zeki le regarda.
+
+— Quelque chose que je puisse acheter.
+
+— Ah. Ça réduit un peu les possibilités.
+
+L'érudit repoussa le carnet vers lui.
+
+— Va voir les marchands. Les aventuriers ne sont pas les seuls à devoir retenir des créatures qui ne souhaitent pas être retenues.
+
+***
+
+La boutique où Zeki entra sentait le cuir neuf, la cire et quelque chose qui ressemblait vaguement à du poisson.
+
+Un homme était occupé à démêler une corde derrière son comptoir.
+
+— Je peux t'aider ?
+
+Zeki regarda les épées accrochées au mur.
+
+— Je cherche quelque chose pour combattre plusieurs monstres à la fois.
+
+Le marchand désigna une vitrine contenant des grenades magiques.
+
+— Quelque chose de moins cher, précisa Zeki.
+
+L'homme posa sa corde.
+
+— Quels monstres ?
+
+— Des Squelettes, surtout. Des lapins, éventuellement.
+
+— Tu veux les tuer ou les empêcher de bouger ?
+
+Zeki réfléchit.
+
+— Les empêcher de bouger, ça suffirait.
+
+Le marchand disparut derrière une étagère et revint avec un filet plié.
+
+— Les chasseurs utilisent ça pour leurs prises. Il y en a de plus solides, mais celui-ci devrait convenir à de petites créatures.
+
+Zeki déplia une partie du filet. Il s'attendait à quelque chose de beaucoup plus lourd.
+
+— Et pour des Squelettes ?
+
+— Je n'ai jamais essayé de pêcher un Squelette.
+
+L'homme examina les mailles.
+
+— Il faudra te méfier de leurs armes. Ce n'est pas une armure.
+
+Le prix était raisonnable. Pas assez bas pour que Zeki puisse se permettre de perdre le filet à chaque sortie, mais suffisamment pour envisager de le rentabiliser.
+
+Il allait refermer sa bourse lorsqu'il remarqua de petites sphères grises rangées à côté des grenades.
+
+— Et ça ?
+
+— Des fumigènes. Une brume magique, le temps de se dégager d'une mauvaise situation.
+
+— Ça explose ?
+
+— Non. Et ça ne tue rien non plus.
+
+Le marchand lui annonça un prix nettement inférieur à celui de sa grenade perdue.
+
+Zeki en prit un. Il n'était pas certain que la fumée puisse arrêter un Squelette, mais il préférait disposer d'un moyen de fuite plutôt que d'en être réduit à courir en espérant ne pas être rattrapé.
+
+Il repéra ensuite une petite pierre creuse, de la taille d'un œuf.
+
+— Une pierre d'écho, expliqua le marchand. Elle peut restituer un son qu'on lui a fait entendre. Les chasseurs s'en servent pour imiter certains appels.
+
+— Elle peut reproduire une voix humaine ?
+
+— Oui.
+
+Zeki imagina quelqu'un appeler depuis une galerie vide.
+
+— Et combien de fois ?
+
+Le marchand lui montra une petite inscription sur le côté de la pierre et lui indiqua le prix.
+
+Zeki reposa l'objet.
+
+Il avait beaucoup aimé la première partie de l'explication.
+
+Un peu moins la dernière.
+
+Il s'attarda encore devant une corde enchantée capable de se rétracter, puis devant un assortiment de petits appâts destinés à la chasse. Il demanda finalement un miroir de poche, qu'il avait aperçu parmi les accessoires de voyage.
+
+Le marchand observa les achats étalés sur le comptoir.
+
+— Un filet, un fumigène et un miroir. Tu pars chasser quoi, exactement ?
+
+— Des Squelettes.
+
+L'homme parut attendre un complément d'explication.
+
+Zeki n'en avait pas.
+
+— Eh bien, dit le marchand en lui tendant ses affaires, j'espère que tu me raconteras comment ça s'est passé.
+
+***
+
+Le filet se révéla beaucoup plus facile à déplier dans une boutique que dans un donjon.
+
+Zeki venait de le découvrir à ses dépens.
+
+Deux Squelettes avaient surgi d'une galerie. Il avait voulu les retenir ensemble, mais le filet s'était accroché à son propre équipement. Lorsqu'il parvint enfin à le dégager, l'un des monstres avait déjà levé son arme.
+
+Il abandonna sa tentative et recula précipitamment.
+
+Ce fut sa fronde, et non son nouvel achat, qui lui permit d'échapper à la situation. Il réussit à endommager la jambe d'une créature et profita de ce répit pour quitter le passage.
+
+De retour dans une zone sûre, il inspecta le filet.
+
+Une maille s'était déchirée.
+
+— Déjà ?
+
+Il le regarda avec le même mécontentement qu'il avait éprouvé devant sa première torche consumée.
+
+L'idée restait bonne. Le problème était qu'il avait voulu utiliser le filet comme une arme, au milieu d'un combat qu'il maîtrisait mal.
+
+Il lui fallait trouver une situation où cet accessoire aurait le temps de remplir sa fonction.
+
+Plus tard, dans la zone des Squelettes, il observa trois créatures dispersées entre plusieurs piliers. L'une d'elles se trouvait à l'écart des autres.
+
+Cette fois, Zeki ne se précipita pas. Il attendit de pouvoir utiliser son filet sans se faire atteindre.
+
+Il attira leur attention depuis l'autre côté d'un pilier. Les deux plus proches se dirigèrent vers lui, presque côte à côte. Il déploya le filet dans leur direction et recula aussitôt. Une épée traversa les mailles, mais le bras qui la tenait resta pris dans le tissu. Le second Squelette tenta de passer devant son compagnon et l'entraîna dans sa chute.
+
+Le troisième, qui arrivait par le côté, continua d'avancer vers Zeki.
+
+Zeki sentit son cœur accélérer.
+
+Il avait obtenu ce qu'il cherchait.
+
+Un adversaire.
+
+Derrière celui-ci, les deux autres s'agitaient. Le filet n'allait pas les retenir longtemps.
+
+Il sortit sa fronde. Le premier projectile atteignit une articulation et déséquilibra son adversaire. Zeki termina le combat avec son épée, puis se retira au moment où l'un des deux autres parvenait à se libérer.
+
+Il restait un Squelette empêtré et un second qui avançait vers lui.
+
+Il connaissait la suite. Il neutralisa le deuxième avant que le dernier réussisse à se relever. Celui-ci avait perdu son arme, mais continuait à essayer de l'atteindre, le filet traînant derrière lui.
+
+Zeki resta hors de portée jusqu'à ce qu'une ouverture se présente.
+
+Quelques instants plus tard, les trois créatures étaient vaincues.
+
+**Squelette vaincu.**
+
+Les dernières inscriptions bleues s'effacèrent.
+
+Zeki s'assit contre un pilier et souffla longuement.
+
+Il avait combattu trois monstres sans avoir recours à une grenade.
+
+Il récupéra son filet. Celui-ci avait souffert, mais il était encore utilisable.
+
+En ouvrant son carnet, il s'aperçut qu'il souriait.
+
+*Le filet ne doit pas forcément retenir tous les monstres. Il suffit qu'il en retarde certains.*
+
+Il ajouta une estimation du coût de la réparation.
+
+Puis il leva les yeux vers les trois tas d'ossements.
+
+Pour la première fois, une rencontre avec plusieurs Squelettes venait de lui rapporter de l'argent au lieu de lui en faire perdre.
+
+***
+
+Il aurait pu s'arrêter là.
+
+Ses contrats étaient presque terminés et il avait récolté suffisamment de ressources pour couvrir ses dépenses.
+
+Mais le chemin qui suivait le territoire des Lapins cornus l'intriguait depuis plusieurs jours. Chaque fois qu'il arrivait à cet endroit, il faisait demi-tour.
+
+Aujourd'hui, il décida de regarder un peu plus loin.
+
+Les galeries se resserrèrent. Les traces de passage se firent moins nombreuses sur les dalles. Il atteignit une bifurcation.
+
+Le passage de droite s'enfonçait dans le donjon. Celui de gauche, plus court, semblait tourner derrière une paroi.
+
+Zeki s'approcha du second. Il sortit son nouveau miroir et examina l'angle.
+
+Aucun monstre.
+
+Satisfait de son achat, il rangea le miroir et avança.
+
+Un déclic retentit sous son pied.
+
+Quelque chose siffla.
+
+Une douleur vive lui traversa le haut du bras. Il trébucha, heurta le mur et tomba à genoux.
+
+Les flèches continuèrent à frapper la pierre autour de lui.
+
+Zeki se protégea derrière son bouclier et recula comme il put jusqu'à la bifurcation. Il resta plaqué contre la paroi, sans oser respirer trop fort.
+
+Le bruit finit par cesser.
+
+Il baissa les yeux.
+
+Une déchirure barrait sa manche. Un filet de sang coulait sur son bras. La blessure était superficielle, mais une flèche passée un peu plus près aurait pu l'empêcher de repartir.
+
+Pendant un long moment, il ne pensa à rien d'autre.
+
+Il avait regardé si le passage contenait des monstres. Il n'avait pas pensé que le passage lui-même pouvait être dangereux.
+
+Une fois ses mains suffisamment calmes, il protégea sa blessure avec un morceau de tissu propre. Puis il examina le couloir depuis l'entrée, sans y remettre les pieds.
+
+Les flèches étaient plantées dans la pierre. Grâce au miroir, il distingua aussi le fond du passage : un mur plein. Le couloir ne tournait pas, comme il l'avait cru. C'était une impasse.
+
+Il contempla l'une d'elles.
+
+Elle aurait pu le tuer.
+
+Elle aurait également pu tuer autre chose.
+
+Zeki resta immobile.
+
+Il pensa aux Lapins cornus. Aux appâts aperçus chez le marchand. Aux heures qu'il passait à répéter les mêmes combats.
+
+Si le piège pouvait se déclencher à nouveau, et si une créature pouvait l'activer à sa place…
+
+Il sortit son carnet.
+
+*Vérifier si le piège se recharge. Vérifier s'il réagit aux monstres.*
+
+Il ne savait même pas si le système lui attribuerait l'expérience d'une créature tuée de cette manière.
+
+Il faudrait essayer.
+
+Mais pas aujourd'hui.
+
+En dépliant sa carte pour retrouver le chemin du retour, il remarqua une particularité qu'il n'avait jamais vue.
+
+Au-delà du huitième territoire figurait une salle au trésor. Pour l'atteindre, il fallait suivre le long parcours dessiné par les cartographes de la Guilde.
+
+Zeki suivit ce parcours du doigt.
+
+Puis il revint à la bifurcation.
+
+La salle au trésor et le petit passage où il avait failli mourir se trouvaient de part et d'autre de la même paroi.
+
+Il vérifia les distances indiquées sur la carte.
+
+Il regarda le mur.
+
+Puis la carte.
+
+À nouveau le mur.
+
+Il avait passé plusieurs jours à chercher comment vaincre les monstres qui lui barraient le chemin.
+
+Il venait de découvrir que, pour certaines choses, il n'était peut-être même pas obligé de prendre le chemin.
+
+***
+
+Après avoir fait vérifier sa blessure à la Guilde, Zeki retourna à la boutique.
+
+— Déjà de retour ? demanda le marchand.
+
+Zeki posa son filet abîmé sur le comptoir.
+
+— Vous aviez raison. Les armes des Squelettes posent quelques problèmes.
+
+— Et tu as réussi à en attraper ?
+
+— Deux. J'en ai vaincu trois.
+
+Le marchand examina le filet, puis leva les yeux vers lui.
+
+— Avec ça ?
+
+— Entre autres.
+
+L'homme eut un sourire et lui indiqua que le filet pouvait être réparé sans être remplacé.
+
+— Et le fumigène ?
+
+— Pas encore utilisé.
+
+— Tant mieux. Garde-le pour le jour où tu en auras vraiment besoin.
+
+Zeki sortit sa bourse.
+
+— Je voudrais aussi autre chose.
+
+— Des appâts ? Une pierre d'écho ?
+
+— Pas pour l'instant.
+
+— Une arme ?
+
+— Non.
+
+— Qu'est-ce qu'il te faut, alors ?
+
+— Une pioche.
+
+Le marchand le regarda longuement.
+
+— Tu as changé de métier ?
+
+Zeki hésita.
+
+— Non. Enfin… je ne crois pas.
