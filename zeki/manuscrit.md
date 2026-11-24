@@ -1706,3 +1706,431 @@ Le marchand le regarda longuement.
 Zeki hésita.
 
 — Non. Enfin… je ne crois pas.
+
+## Tome 1 — Chapitre 6 : Le chemin que personne n'avait emprunté
+
+Le marchand posa une pioche sur le comptoir.
+
+— Tu es certain de ne pas vouloir une meilleure épée ?
+
+— La mienne fonctionne encore.
+
+— Je vois.
+
+Il posa ensuite le filet de Zeki à côté de la pioche. Les mailles déchirées avaient été remplacées.
+
+— J'ai fait renforcer la partie abîmée. Ça ne résistera toujours pas à un coup d'épée bien placé, mais tu devrais pouvoir t'en servir encore un moment.
+
+Zeki examina la réparation et paya les deux articles.
+
+Il avait laissé passer une journée avant de revenir chercher son matériel. Son bras ne lui faisait presque plus mal. Il s'était également rendu aux Archives pour vérifier quelque chose au sujet des Lapins cornus.
+
+— Vous vendez de la viande pour attirer les monstres ?
+
+Le marchand releva lentement la tête.
+
+— Les lapins, cette fois ?
+
+— Oui.
+
+— Je commence à comprendre pourquoi tu t'intéressais à mes appâts.
+
+Edrin lui avait montré un rapport de chasse dans lequel des Lapins cornus avaient dévoré les restes d'une créature morte. Zeki avait relu le passage deux fois. Il trouvait de moins en moins de points communs entre ces monstres et les lapins qu'il connaissait.
+
+Le marchand lui présenta quelques morceaux de viande séchée réservés aux chasseurs. À côté, de petits sachets contenaient des essences odorantes.
+
+— Certains animaux réagissent davantage à l'odeur qu'à la quantité de nourriture. Ceux-là sont enchantés. Une seule goutte suffit à diffuser leur parfum.
+
+Zeki examina un sachet.
+
+— Ça fonctionne sur plusieurs espèces ?
+
+— Ça dépend de l'essence. Et parfois, ce que tu attires n'est pas ce que tu voulais attirer.
+
+Il choisit la viande ordinaire. Il n'avait aucune raison de payer davantage avant de savoir si son idée fonctionnait.
+
+Le marchand lui montra encore un petit cristal lumineux. Les mineurs, expliqua-t-il, s'en servaient pour travailler dans l'obscurité sans avoir à tenir une torche. Zeki en apprécia immédiatement l'intérêt. Il apprécia moins le prix.
+
+Il se contenta d'acheter des torches de rechange.
+
+— Il y a autre chose que je voulais te montrer.
+
+Le marchand sortit de dessous le comptoir un rouleau de toile épaisse.
+
+— Pour transporter les choses encombrantes. Ça ne les rend pas moins lourdes, mais tu éviteras de déchirer ton sac avec des outils pointus. Je me suis dit que ça pourrait t'intéresser, vu ce que tu emportes dans le donjon.
+
+Zeki acheta la toile après avoir vérifié ce qu'il lui restait dans sa bourse.
+
+Il repartit avec son filet réparé, ses appâts, sa pioche et quelques fournitures.
+
+Il n'avait plus beaucoup d'économies.
+
+Mais, pour la première fois, le marchand avait pensé à un article pour lui avant même qu'il ne le demande.
+
+***
+
+Devant le passage aux flèches, Zeki ressentit exactement la même inquiétude que lors de sa précédente visite.
+
+Il avait espéré que le fait de connaître l'existence du piège rendrait l'endroit moins effrayant.
+
+Ce n'était pas le cas.
+
+Il resta à l'abri de la paroi et sortit son miroir.
+
+Les flèches qu'il avait vues plantées dans les pierres avaient disparu. Il ne restait que quelques marques sur les murs. De petites inscriptions pâles brillaient à présent sur les dalles du passage.
+
+Il n'avait rien remarqué de semblable la première fois.
+
+*Le piège se reconstitue ?*
+
+Il nota cette observation.
+
+Il examina ensuite les inscriptions et le fond de l'impasse. Le mur était bien là. Il aurait largement préféré commencer par la pioche, mais il n'avait pas l'intention de travailler avec un mécanisme capable de lui envoyer des flèches dans le dos.
+
+Il fallait d'abord comprendre ce qui se passait dans ce couloir.
+
+Zeki revint vers la zone des lapins avec ses appâts.
+
+Sa première tentative ne produisit rien de particulièrement intéressant.
+
+Un Lapin cornu s'approcha de la viande, la renifla et l'emporta dans une direction qui n'avait aucun rapport avec le passage piégé.
+
+Zeki regarda disparaître son investissement.
+
+— Tu pourrais au moins me laisser quelque chose…
+
+Il n'eut pas davantage de succès avec le morceau suivant. Le lapin qui l'avait aperçu préféra s'intéresser à lui.
+
+Il dut se réfugier derrière une paroi et combattre la créature selon sa méthode habituelle.
+
+Il avait voulu économiser du temps et venait de passer une bonne partie de la matinée à nourrir des monstres.
+
+Il décida de recommencer près du passage lui-même. Il déposa le reste de sa viande dans la partie visible de l'impasse, là où une créature curieuse pourrait la remarquer. Puis il se mit en retrait.
+
+L'attente lui parut interminable.
+
+Il entendit enfin le frottement de petites griffes contre les dalles.
+
+Un Lapin cornu avançait, le museau près du sol. Zeki se fit aussi discret que possible.
+
+La créature s'engagea dans le passage.
+
+Un déclic.
+
+Des sifflements.
+
+Puis le silence.
+
+Zeki sursauta malgré lui. Il attendit quelques instants avant de risquer un coup d'œil dans son miroir.
+
+Le lapin ne bougeait plus.
+
+Une inscription bleue apparut devant ses yeux.
+
+**Lapin cornu vaincu.**
+
+**Expérience acquise.**
+
+Il relut les mots.
+
+Puis il regarda ses mains.
+
+Il n'avait pas sorti son épée.
+
+Il n'avait pas lancé de pierre.
+
+Il n'avait même pas utilisé son bouclier.
+
+— Ah.
+
+Un sourire lui échappa.
+
+— Ça compte.
+
+Il s'attendait presque à voir apparaître une seconde inscription lui expliquant qu'il avait mal compris la première.
+
+Rien ne vint.
+
+Zeki ouvrit son carnet et inscrivit soigneusement le prix des appâts utilisés. Le premier lui avait été volé. Le deuxième avait provoqué un combat ordinaire. Le dernier venait de lui rapporter de l'expérience sans qu'il ait eu à combattre.
+
+Ce n'était pas encore une méthode particulièrement rentable.
+
+Mais il savait maintenant qu'elle pouvait le devenir.
+
+***
+
+Les inscriptions du sol s'étaient éteintes après le déclenchement du piège.
+
+Zeki demeura longtemps à l'écart pour les observer.
+
+Lorsqu'une faible lueur réapparut sur les pierres, il comprit que le mécanisme se réarmait par magie. Cela prenait du temps. Le donjon ne remplaçait manifestement pas ses flèches avec la rapidité qu'il aurait souhaitée.
+
+Il attendit encore. Une autre créature passa au loin sans s'intéresser à l'impasse.
+
+Il commençait à comprendre les limites de sa découverte. Il lui faudrait des appâts, des monstres à proximité et suffisamment de patience. Il n'était pas certain non plus que toutes les créatures soient vulnérables aux flèches du donjon.
+
+Il nota ces réserves.
+
+Puis il s'intéressa à son second objectif.
+
+Le mur.
+
+Les pierres de l'impasse ne formaient pas une paroi parfaitement régulière. Certaines semblaient plus anciennes que d'autres. La carte consultée aux Archives représentait une séparation relativement mince entre les deux salles, mais Zeki ignorait si le cartographe avait réellement mesuré son épaisseur.
+
+Il ne pouvait pas demander au donjon de lui confirmer l'information.
+
+Il allait devoir s'en rendre compte par lui-même.
+
+Il observa de nouveau les runes du piège. Après plusieurs vérifications, il repéra une partie du passage que leur lueur ne couvrait pas. Il n'osa s'y aventurer qu'après avoir observé une nouvelle décharge du mécanisme, provoquée par une créature qui errait près du passage.
+
+Il récupéra le trophée du lapin, atteignit le fond de l'impasse et posa ses affaires à l'écart des inscriptions. De là, il pouvait travailler sans toucher les dalles enchantées.
+
+Il sortit sa pioche.
+
+Le premier coup résonna dans le couloir.
+
+Un minuscule fragment de pierre tomba.
+
+Zeki contempla le résultat.
+
+Puis il regarda la surface entière du mur.
+
+— Bon.
+
+Il frappa une deuxième fois.
+
+***
+
+Il existait une différence considérable entre avoir une idée et être la personne chargée de la mettre en œuvre.
+
+Zeki en prit pleinement conscience au bout d'une heure.
+
+Ses bras lui faisaient mal. La poussière lui piquait les yeux. La manche qui protégeait sa blessure le gênait à chaque mouvement.
+
+Il avait déjà dégagé plusieurs pierres, mais rien ne lui prouvait que le mur ne continuait pas sur une distance considérable.
+
+Par moments, il s'interrompait pour écouter les galeries. Chaque coup de pioche lui semblait faire suffisamment de bruit pour informer l'ensemble du premier étage de sa présence.
+
+Il rangea un instant son outil et but une gorgée d'eau.
+
+Un cliquetis résonna au-delà de la bifurcation.
+
+Il se figea.
+
+Des Squelettes.
+
+Deux silhouettes apparurent à l'entrée de l'impasse. Une troisième se tenait derrière elles.
+
+Zeki regarda sa pioche, puis son filet, encore plié dans ses affaires.
+
+Il n'avait aucune envie de combattre ici. Il avait les bras fatigués et le passage lui laissait peu de liberté.
+
+Une lueur apparut sur les dalles.
+
+Les Squelettes avancèrent.
+
+Le piège se déclencha.
+
+Le premier fut traversé par plusieurs flèches. Le deuxième perdit son arme et trébucha sur les restes du premier. Le troisième, à l'entrée du passage, demeura hors de portée de la volée.
+
+Zeki sentit une brève satisfaction.
+
+Elle disparut lorsque les deux créatures encore debout se tournèrent vers lui.
+
+Aucune notification ne lui attribua la mort du premier Squelette.
+
+Il n'avait pas attiré celui-là. Le système semblait faire une différence entre une victoire provoquée et un accident auquel il n'avait fait qu'assister.
+
+Il aurait aimé noter ce détail.
+
+Il avait autre chose à faire.
+
+Il attrapa le fumigène acheté chez le marchand.
+
+La petite sphère libéra une brume épaisse, qui envahit le passage. Les silhouettes disparurent.
+
+Zeki entendit leurs armes heurter les parois.
+
+Il recula instinctivement, puis s'arrêta.
+
+Il ne voyait plus rien non plus.
+
+— Évidemment…
+
+Il connaissait heureusement la disposition du passage. Il se guida à tâtons vers l'endroit où il avait laissé ses affaires, récupéra sa pioche et son sac. Lorsque les bruits s'éloignèrent de lui, il rejoignit la bifurcation en longeant la paroi.
+
+Il ne s'arrêta qu'une fois revenu dans une galerie familière.
+
+Il posa ses affaires et reprit son souffle.
+
+Le fumigène avait rempli sa fonction. Il n'avait pas neutralisé les monstres, mais lui avait donné assez de répit pour s'éloigner.
+
+Il ouvrit son carnet.
+
+*Très utile pour fuir.*
+
+Puis, en lettres plus appuyées :
+
+*À condition de savoir où aller.*
+
+Il lui faudrait trouver une manière de se repérer dans la brume. Il pensa au cristal lumineux du marchand, puis secoua la tête. De la lumière dans un nuage ne lui indiquerait probablement pas le bon chemin.
+
+Il referma son carnet.
+
+Pour l'instant, il se contenterait de ne jamais utiliser de fumigène dans une galerie qu'il ne connaissait pas.
+
+***
+
+Zeki faillit rentrer.
+
+Il avait perdu un consommable, son bras le lançait et il ne savait toujours pas si son entreprise avait un sens.
+
+Il pensa aux quelques pièces qu'il lui restait.
+
+Puis il pensa à la distance parcourue par les quatre aventuriers qui avaient commencé le même jour que lui.
+
+Pour atteindre la salle au trésor, il lui aurait fallu affronter cinq espèces supplémentaires. Cinq problèmes qu'il ne savait pas encore résoudre.
+
+Le mur, lui, semblait au moins pouvoir céder à force de travail.
+
+Il décida de se reposer, puis de reprendre.
+
+Lorsqu'il revint à l'impasse, les Squelettes avaient quitté le passage. Il prit le temps de s'assurer qu'il pouvait de nouveau s'y aventurer, puis rejoignit ses pierres à moitié dégagées.
+
+Les heures suivantes furent peu glorieuses.
+
+Il dut s'arrêter à plusieurs reprises. Il changea de position, se massa les doigts et jura contre une pierre particulièrement résistante.
+
+Enfin, un fragment céda et disparut de l'autre côté.
+
+Zeki leva sa pioche.
+
+Il attendit le bruit du fragment tombant au sol.
+
+Il l'entendit.
+
+Il approcha son miroir de la petite ouverture. Derrière, une lueur douce éclairait un espace vide.
+
+Son cœur se mit à battre plus vite.
+
+Il reprit son travail avec une énergie dont il ne se serait pas cru capable quelques instants plus tôt.
+
+L'ouverture grandit.
+
+Il dégagea suffisamment de pierres pour pouvoir passer les épaules. Il s'arrêta, vérifia qu'il ne risquait pas de faire s'effondrer les dernières parties instables, puis se glissa de l'autre côté.
+
+Son sac resta coincé.
+
+Il dut ressortir pour le faire passer séparément.
+
+Lorsqu'il se redressa enfin, il se trouvait dans une salle aux murs réguliers. De petits cristaux éclairaient les dalles. À l'autre extrémité, une porte donnait sur une galerie qu'il n'avait jamais visitée.
+
+Au centre se trouvait un coffre.
+
+Zeki resta immobile.
+
+Il avait passé des heures à regarder une paroi et à se demander si son idée était complètement stupide.
+
+Le coffre était là.
+
+Il s'en approcha lentement, vérifia les environs et souleva le couvercle avec précaution.
+
+À l'intérieur reposait une grande épée.
+
+La garde était ouvragée. La lame, d'un métal sombre parcouru de fines lignes argentées, reflétait la lumière des cristaux d'une manière inhabituelle.
+
+Quand il la saisit, une inscription apparut.
+
+**Grande épée.**
+
+**Rareté : Rare.**
+
+Zeki eut un large sourire.
+
+Il la souleva.
+
+Son sourire se transforma en grimace.
+
+Il essaya de tenir l'arme devant lui. Le poids de la lame l'entraîna vers l'avant. Il la reposa, reprit son souffle, puis tenta un mouvement lent.
+
+L'extrémité frôla le sol.
+
+Il regarda sa petite épée, à sa ceinture.
+
+Elle n'avait aucune ligne argentée. Sa garde était banale. Elle ne brillait pas dans l'obscurité et n'aurait probablement impressionné aucun des quatre aventuriers.
+
+En revanche, il pouvait la soulever.
+
+Il s'assit au bord du coffre.
+
+Il venait de trouver le meilleur objet de sa courte carrière d'aventurier.
+
+Et il ne voulait pas s'en servir.
+
+***
+
+Le retour fut plus compliqué que l'aller.
+
+La grande épée dépassait de la toile dans laquelle Zeki l'avait enveloppée. Il dut faire passer ses affaires à travers la brèche, puis les rassembler une seconde fois.
+
+Il pensa avec gratitude au marchand qui lui avait proposé cette toile.
+
+Il aurait apprécié qu'il lui propose également quelque chose pour soulager son dos.
+
+Près des premières galeries, quatre silhouettes arrivèrent en sens inverse.
+
+Il reconnut immédiatement la cape rouge.
+
+— Tiens, dit le gardien. Tu es toujours là ?
+
+Zeki s'écarta pour les laisser passer.
+
+La mage remarqua la poussière qui couvrait ses vêtements.
+
+— Qu'est-ce que tu as fait ?
+
+Le soigneur aperçut la pioche.
+
+— Ne me dis pas que tu t'es mis à creuser.
+
+Le gardien éclata de rire.
+
+— Au moins, les cailloux ne risquent pas de l'attaquer.
+
+Le chef regarda la pioche, puis le sac encombrant de Zeki.
+
+— Chacun finit par trouver sa vocation, apparemment.
+
+Ils repartirent vers les zones profondes. Zeki les suivit un instant des yeux.
+
+Il aurait pu leur montrer ce qu'il transportait.
+
+Il y songea réellement.
+
+Il imagina leurs expressions devant l'inscription qui attestait la rareté de l'épée. Il aurait aimé, ne serait-ce qu'une fois, entendre ces quatre-là lui dire qu'il avait accompli quelque chose de bien.
+
+Il regarda le chemin derrière eux.
+
+S'il leur montrait l'épée, ils lui demanderaient sûrement où il l'avait trouvée.
+
+Et il n'avait pas encore décidé ce qu'il voulait faire de sa découverte.
+
+Il remit la toile sur son épaule.
+
+La reconnaissance pouvait attendre.
+
+***
+
+Sur le chemin de la Guilde, Zeki repensa aux objets qu'il avait vus dans la boutique.
+
+La pierre d'écho. La corde enchantée. Les cristaux lumineux. Les accessoires de chasse. Les potions qu'il n'avait jusque-là même pas osé regarder de trop près.
+
+Il pensa aussi au fumigène qui lui avait permis de fuir, et à son filet, dont les mailles avaient retenu deux Squelettes le temps nécessaire.
+
+Aucun de ces objets ne pouvait se comparer à la puissance de la grande épée qu'il portait.
+
+Mais chacun lui avait offert une possibilité qu'il n'avait pas auparavant.
+
+Il se demanda combien de possibilités différentes valait cette épée.
+
+Pour la première fois depuis qu'il était devenu aventurier, il avait hâte d'entrer chez le marchand sans avoir à commencer par demander ce qu'il y avait de moins cher.
