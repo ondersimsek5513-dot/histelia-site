@@ -6460,3 +6460,711 @@ Mira se redressa.
 — D'accord. Mais d'abord, il faut que vous compreniez pourquoi Zeki a acheté une pioche.
 
 Autour de la table, les dernières conversations s'interrompirent.
+
+## Tome 1 — Chapitre 14 : Le boss qui ne pouvait pas l'atteindre
+
+Zeki n'avait encore jamais vu une salle aussi vaste.
+
+D'immenses piliers soutenaient une voûte dont les reliefs se perdaient dans l'obscurité. Au centre, une silhouette était assise sur un bloc de pierre.
+
+Elle se leva lorsque les quatre aventuriers franchirent le seuil.
+
+Zeki retint son souffle.
+
+Le monstre devait mesurer près de cinq mètres. Une épaisse armure naturelle, semblable à du métal noir, recouvrait son corps. Un unique œil orangé brillait au milieu de son visage.
+
+Il se saisit d'un marteau dont la tête était presque aussi imposante que le bouclier du gardien.
+
+Une inscription bleue apparut.
+
+**Gardien du premier étage : Cyclope de fer.**
+
+Le chef de l'équipe dégaina son épée.
+
+— On fait comme prévu.
+
+Ses trois compagnons se dispersèrent.
+
+Zeki s'installa derrière un pilier, près de l'entrée. De là, il pouvait observer une grande partie de la salle sans être immédiatement remarqué.
+
+Il avait toujours trouvé les quatre aventuriers désagréables.
+
+Il ne tarda pas à constater qu'ils savaient parfaitement se battre.
+
+Le gardien intercepta le premier assaut. La force du choc le fit reculer, mais il demeura debout. La mage projeta une gerbe de lumière qui éclata contre le flanc du monstre.
+
+Le chef profita de l'ouverture.
+
+Sa lame arracha plusieurs fragments de métal à la cuirasse naturelle du Cyclope.
+
+Le soigneur intervint au moment où le gardien commençait à faiblir.
+
+Zeki regarda les mouvements des quatre aventuriers.
+
+Ils avaient l'habitude de travailler ensemble. Lorsque l'un d'eux se retrouvait en difficulté, les autres réagissaient presque immédiatement.
+
+Il songea à ses propres affrontements.
+
+Avec sa petite épée et son ancien bouclier, il n'aurait probablement pas survécu à la première attaque.
+
+Le Cyclope poussa un rugissement.
+
+Il venait de recevoir une nouvelle attaque de la mage. Une partie de sa protection s'était fissurée.
+
+Le chef de l'équipe cria quelque chose à ses compagnons et reprit l'offensive.
+
+Zeki se pencha légèrement pour mieux voir.
+
+Pour la première fois depuis son entrée, il osa détourner les yeux du monstre.
+
+Il examina les murs.
+
+***
+
+— Une pioche, répéta l'aventurier plus âgé.
+
+Mira acquiesça.
+
+— Oui.
+
+— Dans un donjon ?
+
+— C'est ce que je lui ai demandé.
+
+Lina étala un morceau de papier sur la table. Elle dessina grossièrement deux galeries voisines, puis indiqua l'emplacement de la salle du trésor.
+
+— La route normale passe par ici. Lui, il est passé par là.
+
+Elle traça une courte ligne entre les deux espaces.
+
+Un homme se pencha en avant.
+
+— Attends. Vous parlez du passage dans le mur, près de l'ancien piège à flèches ?
+
+— Exactement.
+
+— C'est lui qui l'a ouvert ?
+
+Mira sourit.
+
+— Et il est reparti avec le contenu du coffre.
+
+Plusieurs aventuriers se regardèrent.
+
+L'un d'eux se mit à rire.
+
+— Ça fait des semaines qu'on passe par ce trou !
+
+— Moi aussi, ajouta une femme. On m'avait dit que c'était une ancienne galerie qui s'était effondrée.
+
+— Non. C'était Zeki.
+
+Un silence amusé suivit cette déclaration.
+
+Le jeune archer à l'arc vert examina le dessin.
+
+— Il savait donc où se trouvait la salle avant d'avoir battu les monstres qui la protégeaient ?
+
+— Il avait étudié la carte, répondit Lina. Il s'est rendu compte que les deux endroits étaient voisins.
+
+L'aventurier plus âgé se frotta le menton.
+
+— Et personne n'avait pensé à traverser ce mur ?
+
+— Apparemment.
+
+Le coéquipier des deux femmes regarda le dessin.
+
+— J'aurais aimé voir la tête du premier groupe qui a atteint le coffre après lui.
+
+Mira éclata de rire.
+
+— Moi aussi.
+
+***
+
+Le combat tournait mal.
+
+Le Cyclope ne protégeait plus son flanc fissuré. Il semblait désormais davantage préoccupé par la mage, dont les attaques lui avaient causé des dégâts importants.
+
+Le gardien se plaça sur son chemin.
+
+Le marteau s'abattit.
+
+Son bouclier résista encore une fois, mais l'homme tomba à genoux.
+
+Le chef détourna l'attention du monstre pendant que le soigneur aidait son compagnon à se relever.
+
+La mage tenta une nouvelle attaque.
+
+Le Cyclope frappa un pilier voisin. Une pluie de petits fragments s'abattit autour d'elle.
+
+Elle dut interrompre son sort.
+
+Zeki leva les yeux.
+
+Au-dessus d'une partie de la paroi, un ancien renfoncement formait une corniche profonde. Elle se trouvait au-delà de la portée du marteau, sous une avancée de pierre qui la protégeait des débris venant de la voûte.
+
+Il consulta rapidement sa carte.
+
+Puis il regarda le grappin qu'il avait emporté.
+
+Le Cyclope tenta de poursuivre la mage, mais se heurta au gardien.
+
+Zeki observa encore.
+
+Les attaques du monstre étaient redoutables au sol. Sa portée était considérable, mais il n'avait jusque-là montré aucune aptitude lui permettant d'atteindre les hauteurs de la salle.
+
+Il ne lâchait pas son marteau.
+
+Il ne grimpait pas.
+
+Et chaque fois qu'une attaque venait d'une position un peu surélevée, il essayait simplement de s'en approcher.
+
+Le chef donna finalement l'ordre de se replier.
+
+La décision parut difficile à accepter pour ses compagnons, mais personne ne la contesta.
+
+Le gardien couvrit leur retraite. La mage lança une dernière attaque qui obligea le Cyclope à reculer.
+
+Ils regagnèrent l'entrée.
+
+Zeki se fit aussi discret que possible.
+
+— Encore un peu et on l'avait, lança le gardien d'une voix essoufflée.
+
+— On revient mieux préparés, répondit le chef.
+
+Ils passèrent non loin de la cachette de Zeki sans le remarquer.
+
+Le garçon attendit que leurs voix se soient éloignées.
+
+Puis il reporta son attention sur la corniche.
+
+Le Cyclope regagna lentement le centre de la salle. Une lueur rougeâtre parcourut les fissures de son armure, qui commencèrent à se refermer.
+
+Zeki grimaça.
+
+Le gardien récupérait après le combat.
+
+Il ne pourrait pas simplement profiter des blessures infligées par les quatre aventuriers.
+
+Il lui faudrait vaincre le monstre lui-même.
+
+Il regarda encore la hauteur.
+
+— Bon.
+
+Il sortit son grappin.
+
+***
+
+Quelques jours auparavant, lors d'une de ses expéditions chez les Araignées spectrales, Zeki avait découvert une propriété inattendue de ces créatures.
+
+L'une d'elles avait projeté une substance translucide sur son filet.
+
+Il avait essayé de le récupérer.
+
+Le filet n'avait pas bougé.
+
+Il avait tiré un peu plus fort.
+
+Une partie de la toile s'était déchirée, tandis que le liquide durci restait attaché à la roche.
+
+Cette découverte lui avait coûté une nouvelle réparation.
+
+Elle lui avait également donné une idée.
+
+De retour en ville, il avait montré la matière à l'alchimiste. Celle-ci lui avait expliqué que les sécrétions spectrales possédaient des propriétés adhésives particulièrement intéressantes.
+
+Les Gélatines d'ambre fournissaient elles aussi des matières utilisées dans certains enchantements de liaison.
+
+Avec son aide, Zeki avait pu obtenir quelques capsules alchimiques enchantées capables de libérer une substance collante lorsqu'elles se brisaient.
+
+Il avait surnommé sa création la bombe collante.
+
+Les premiers essais dans l'atelier avaient été assez convaincants.
+
+Il avait notamment fallu l'aide de l'alchimiste pour décoller un tabouret qu'il avait malencontreusement fixé au sol.
+
+Elle lui avait demandé de poursuivre ses expériences ailleurs.
+
+Zeki avait promis.
+
+Il avait ensuite préparé quelques projectiles adhésifs et conservé un petit stock de capsules pour les prochaines expéditions.
+
+À présent, devant la salle du Cyclope, il se félicitait d'avoir emporté ces objets.
+
+Il ignorait encore s'ils seraient réellement utiles.
+
+Mais il avait très envie de le découvrir.
+
+***
+
+La corniche était plus large qu'elle ne lui avait paru depuis le sol.
+
+Zeki s'y installa avec précaution après avoir utilisé son grappin. Le support était solide, et une partie du renfoncement lui permettait de rester caché lorsqu'il ne tirait pas.
+
+Il vérifia sa possibilité de retour.
+
+Puis il sortit son arbalète.
+
+Il avait préparé des carreaux portant différents enchantements alchimiques. Certains ralentissaient les créatures, d'autres entretenaient une faible perte de vitalité magique après l'impact. L'alchimiste l'avait averti que les effets variaient beaucoup selon la résistance de la cible.
+
+Il attendit.
+
+Le Cyclope avait retrouvé son aspect initial.
+
+Zeki visa une partie de son corps moins protégée et prit son temps.
+
+**Tir patient : actif.**
+
+Il tira.
+
+Le projectile atteignit le monstre.
+
+Le Cyclope releva brusquement la tête.
+
+Zeki consulta ses informations.
+
+**Dégâts infligés en solitaire : +40 %.**
+
+Le monstre se mit à marcher dans sa direction.
+
+Il leva son marteau.
+
+Zeki se replia dans le renfoncement.
+
+Le choc résonna dans la salle.
+
+Il attendit quelques instants avant de regarder de nouveau.
+
+Le marteau n'avait pas atteint la corniche.
+
+Une seconde tentative n'eut pas davantage de succès.
+
+Le Cyclope s'éloigna de quelques pas, chercha une autre position, puis frappa de nouveau.
+
+Toujours rien.
+
+Zeki sentit un sourire lui venir.
+
+Il tira un autre carreau.
+
+Le monstre rugit.
+
+Le garçon attendit que sa préparation soit complète avant de recommencer.
+
+Le Cyclope s'agita davantage.
+
+Zeki resta en hauteur.
+
+Il venait peut-être de trouver le combat le plus injuste de sa courte carrière d'aventurier.
+
+***
+
+À la Guilde, l'hôtesse remarqua enfin le rassemblement.
+
+— Il s'est passé quelque chose ?
+
+— Vous connaissez Zeki ? demanda quelqu'un.
+
+Elle parut surprise.
+
+— Bien sûr.
+
+— Il paraît qu'il a ouvert le passage vers la salle du trésor.
+
+Elle regarda Lina et Mira.
+
+— C'est bien de lui que vous parlez depuis tout à l'heure ?
+
+— Oui.
+
+L'hôtesse sourit légèrement.
+
+Elle se souvenait encore du garçon qui s'était présenté au comptoir pour demander s'il pouvait entrer seul dans le donjon.
+
+— Au début, il me rapportait des ressources d'Arbres-marcheurs et de Squelettes. Il comptait chaque dépense.
+
+— Et maintenant il fait se battre des Minotaures ? demanda l'archer à l'arc vert.
+
+Mira leva un doigt.
+
+— Des Minotaures, je ne sais pas. Nous ne sommes pas encore allées jusque-là avec lui.
+
+Elle tenait à distinguer ce qu'elle avait réellement vu de ce que les autres commençaient à imaginer.
+
+— Mais des loups, des tortues, des Gardes d'argile, oui.
+
+Lina ajouta :
+
+— Et ses compétences ne sont pas toutes faites pour attaquer. Certaines lui permettent surtout de ne pas avoir à combattre.
+
+Un épéiste secoua la tête.
+
+— Je ne comprends pas comment on peut progresser en évitant autant les combats.
+
+— C'est justement ce que nous sommes en train d'essayer de vous expliquer, répondit Mira.
+
+Près du comptoir, un homme attendait depuis un moment que la conversation se calme.
+
+C'était le marchand.
+
+Il venait déposer une commande de matières premières auprès de la Guilde.
+
+— Vous parlez de mon fournisseur ?
+
+L'hôtesse se tourna vers lui.
+
+— De Zeki.
+
+— Ah. Alors oui, de mon fournisseur.
+
+Il posa ses documents.
+
+— Ce garçon est en train de me faire découvrir des marchés auxquels je ne m'intéressais même pas auparavant.
+
+Plusieurs personnes se tournèrent vers lui.
+
+Le marchand comprit qu'il n'était pas près de repartir.
+
+***
+
+Au début, Zeki avait pris soin de compter chacun de ses tirs.
+
+Le Cyclope était extrêmement résistant. Même avec ses nouvelles compétences, la plupart de ses projectiles ne lui infligeaient que des dégâts modestes.
+
+Le poison magique fonctionnait cependant.
+
+L'effet était faible, mais persistant tant que l'enchantement agissait. Le monstre ne récupérait pas sa vitalité comme il l'avait fait après le départ de l'équipe rivale.
+
+Zeki poursuivit ses tirs avec patience.
+
+Au bout d'un moment, il commença à trouver les rugissements un peu fatigants.
+
+Il sortit son grelot enchanté.
+
+Il le déposa plus loin sur la corniche.
+
+Le Cyclope tourna la tête vers le bruit.
+
+Zeki profita de l'occasion pour tirer.
+
+Le monstre frappa de nouveau la paroi.
+
+Le grelot continua de sonner.
+
+Zeki le récupéra.
+
+Il regarda ensuite sa pierre d'écho.
+
+Une idée lui vint.
+
+— Raté !
+
+Il enregistra le mot.
+
+La voix retentit quelques instants plus tard.
+
+Le Cyclope leva la tête.
+
+Zeki observa sa réaction.
+
+Il attendit la fin du bruit avant de recommencer.
+
+— Encore raté !
+
+La créature poussa un rugissement particulièrement sonore.
+
+Zeki eut beaucoup de mal à garder son sérieux.
+
+Il ne savait pas si le monstre comprenait ses paroles. En revanche, il semblait détester cette voix qu'il ne parvenait pas à atteindre.
+
+Le garçon reprit son arbalète.
+
+Le Cyclope frappa une nouvelle fois.
+
+— Raté ! annonça la pierre.
+
+Zeki éclata de rire.
+
+***
+
+Le premier essai de bombe collante sur le gardien produisit un résultat inattendu.
+
+La capsule enchantée éclata près du marteau que le monstre venait d'abaisser.
+
+Lorsque le Cyclope voulut le soulever, une épaisse matière ambrée retenait une partie de l'arme contre le sol.
+
+Le monstre tira.
+
+L'arme ne bougea pas immédiatement.
+
+Il tira plus fort.
+
+La colle céda avec un bruit étrange.
+
+Un morceau de dalle se détacha et resta fixé au marteau.
+
+Zeki regarda le résultat avec fascination.
+
+— Oh.
+
+Le Cyclope contempla son arme.
+
+Il la secoua vigoureusement.
+
+Le morceau de pierre resta accroché.
+
+Il rugit.
+
+— Raté ! répéta la pierre d'écho.
+
+Le Cyclope frappa le sol de toutes ses forces.
+
+Zeki s'assit derrière le rebord de la corniche, les épaules secouées par un fou rire.
+
+Il avait voulu savoir si ses capsules pouvaient gêner un adversaire aussi puissant.
+
+Il venait également de découvrir qu'elles pouvaient lui faire perdre son calme.
+
+Lors d'un essai suivant, la substance gêna brièvement l'un des appuis du Cyclope. La créature arracha son pied au sol et se retrouva avec quelques débris attachés à sa protection.
+
+Une autre capsule ne produisit presque aucun résultat.
+
+Il n'était pas question d'immobiliser durablement un monstre aussi fort.
+
+Mais Zeki comprit que quelques instants de gêne pouvaient rendre ses interventions beaucoup plus faciles.
+
+Il nota les différences.
+
+Puis il sortit un projectile adhésif.
+
+Le Cyclope leva son marteau.
+
+Zeki attendit.
+
+Peu après, une nouvelle tache ambrée ornait une plaque métallique de son épaule. Un petit fragment de tissu provenant du vieux mannequin s'y retrouva attaché à la suite d'une autre diversion.
+
+Le garçon regarda le monstre.
+
+Il avait désormais une dalle sous son marteau et un morceau de vêtement sur l'épaule.
+
+Il semblait encore plus furieux qu'auparavant.
+
+Zeki réfléchit.
+
+— Il faudrait que je demande à l'alchimiste si on peut faire plusieurs couleurs.
+
+Puis il reprit ses tirs.
+
+***
+
+Le combat dura longtemps.
+
+Zeki s'interrompit pour boire, reposer ses bras et examiner l'état de son arbalète.
+
+Il avait découvert que les carreaux ordinaires étaient parfois presque inutiles contre les plaques métalliques du Cyclope. Il les réservait donc aux ouvertures qu'il pouvait atteindre.
+
+Ses préparations enchantées produisaient des résultats plus intéressants, mais il ne disposait pas d'une quantité infinie de projectiles.
+
+Il cessa progressivement d'utiliser ses capsules collantes pour le seul plaisir de voir le monstre s'agiter.
+
+Il lui en restait peu.
+
+Il devait terminer le combat.
+
+À un moment, le Cyclope s'immobilisa, son unique œil fixé sur la corniche.
+
+Zeki ne bougea pas.
+
+Le monstre attendit.
+
+Le garçon attendit aussi.
+
+Puis Zeki ressentit la faim.
+
+Il sortit un morceau de pain et quelques provisions de son sac magique.
+
+Le Cyclope leva lentement son marteau.
+
+Zeki mordit dans son pain.
+
+Le monstre poussa un rugissement.
+
+Le garçon mâcha tranquillement.
+
+Il aurait bien aimé que Lina et Mira assistent à cette scène.
+
+Il imagina l'expression de Mira en découvrant qu'il avait réussi à prendre son repas au milieu d'un combat contre le gardien de l'étage.
+
+Il sourit.
+
+Puis il rangea le reste de ses provisions.
+
+Il ne voulait pas gaspiller ses munitions, et il commençait à fatiguer.
+
+Le Cyclope, lui, avait beaucoup changé depuis le début de l'affrontement.
+
+Sa protection naturelle présentait de nombreuses fissures. Ses mouvements devenaient moins réguliers. Il s'appuyait parfois sur son marteau avant de reprendre ses tentatives.
+
+Zeki sentit son amusement laisser place à une concentration plus intense.
+
+Il avait encore assez de projectiles.
+
+Il continua.
+
+Un tir.
+
+Une attente.
+
+Un autre tir.
+
+Le monstre essaya encore de l'atteindre.
+
+Zeki demeura hors de portée.
+
+Enfin, le Cyclope lâcha son marteau.
+
+Il vacilla, tomba à genoux et s'effondra.
+
+Le silence qui suivit parut presque irréel.
+
+Zeki garda son arbalète levée.
+
+Une inscription bleue apparut.
+
+**Gardien du premier étage vaincu.**
+
+Puis une deuxième.
+
+**Niveau supérieur atteint.**
+
+Deux autres notifications de progression suivirent.
+
+Zeki regarda les informations, puis le Cyclope immobile.
+
+Il n'avait pas rêvé.
+
+Une dernière inscription se manifesta.
+
+**Exploit accompli : Victoire solitaire contre un gardien d'étage.**
+
+**Récompense spéciale obtenue.**
+
+Le garçon resta assis un long moment.
+
+Puis il se mit à rire.
+
+Cette fois, il n'y avait plus aucun monstre pour l'entendre.
+
+***
+
+Il attendit d'être certain que le combat était terminé avant de redescendre.
+
+Une matière lumineuse se détacha progressivement du corps du gardien. Elle laissa derrière elle plusieurs fragments métalliques, un cristal orangé et un objet ressemblant à un bracelet gravé.
+
+À proximité du monstre apparut également un petit coffre de récompense.
+
+Zeki l'ouvrit.
+
+Il y trouva plusieurs pièces et un objet enveloppé d'une lumière bleue, dont il ne connaissait pas encore les propriétés.
+
+Il décida de faire examiner les deux objets à la surface.
+
+Il récupéra aussi le cristal orangé.
+
+Il avait entendu dire que les gardiens d'étage laissaient une preuve particulière de leur défaite, nécessaire à la reconnaissance de l'exploit par la Guilde.
+
+Il ne voulait surtout pas oublier de l'emporter.
+
+Avant de quitter la salle, il regarda une dernière fois la corniche.
+
+Il dessina son emplacement sur la carte.
+
+Puis il nota ses dépenses.
+
+Les résultats de cette expédition lui paraissaient très prometteurs.
+
+Il referma son carnet.
+
+— La prochaine fois, j'emporte davantage de colle.
+
+***
+
+Les quatre aventuriers à la cape rouge étaient revenus à la Guilde.
+
+Le soigneur accompagnait le gardien, dont l'épaule avait été éprouvée par les chocs. La mage s'était assise à l'écart et examinait les dégâts subis par son équipement.
+
+Le chef discutait avec un employé des moyens de préparer une nouvelle tentative.
+
+Le rassemblement autour de Lina et Mira avait changé de forme. Quelques personnes étaient parties ; d'autres avaient pris leur place. Les récits circulaient désormais de table en table.
+
+Lina aperçut les quatre aventuriers.
+
+— Ils viennent d'essayer le gardien, je crois.
+
+Mira suivit son regard.
+
+— Ça n'a pas l'air de s'être très bien passé.
+
+Le jeune archer à l'arc vert s'approcha du comptoir pour prendre connaissance des contrats disponibles.
+
+Le marchand, qui avait finalement terminé ses explications, se préparait à repartir.
+
+Puis la porte de la Guilde s'ouvrit.
+
+Zeki entra.
+
+Il avait de la poussière sur ses vêtements et paraissait fatigué. Son sac magique pendait à son côté.
+
+Lina leva la main.
+
+Il lui adressa un sourire.
+
+Il ne remarqua pas immédiatement les regards qui se tournaient vers lui.
+
+Mira s'apprêtait à lui faire signe de venir les rejoindre lorsqu'il prit la direction du comptoir.
+
+L'hôtesse le reconnut.
+
+— Bonjour, Zeki. Tu as terminé tes contrats ?
+
+— Pas aujourd'hui.
+
+Il hésita un instant.
+
+— J'aurais une question.
+
+— Je t'écoute.
+
+— Comment fait-on pour accéder au deuxième étage ?
+
+Le chef à la cape rouge leva la tête.
+
+L'hôtesse lui expliqua calmement la procédure.
+
+— Il faut d'abord vaincre le gardien du premier étage et nous présenter la preuve correspondante. Ensuite, nous pourrons enregistrer ton accès.
+
+— Ah, d'accord.
+
+Zeki ouvrit son sac.
+
+Il en sortit le cristal orangé et le posa sur le comptoir.
+
+— C'est bien ça ?
+
+L'hôtesse regarda le cristal.
+
+Le marchand s'immobilisa.
+
+Le jeune archer baissa sa fiche de contrat.
+
+Lina ouvrit la bouche.
+
+Mira regarda le cristal, puis Zeki.
+
+À quelques pas d'eux, le gardien au bouclier rond se leva lentement.
+
+Plus personne ne parlait.
