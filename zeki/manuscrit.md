@@ -5172,3 +5172,679 @@ Zeki regarda les hauteurs.
 Quelques jours plus tôt, il avait découvert à quel point il était avantageux de se trouver là où les monstres ne pouvaient pas l'atteindre.
 
 Apparemment, il n'était pas le seul à avoir eu cette idée.
+
+## Tome 1 — Chapitre 12 : L'art de tricher
+
+La flèche de Lina se brisa contre le plafond.
+
+— Je commence à détester cet endroit.
+
+Zeki partageait son sentiment.
+
+Les créatures qui tournoyaient au-dessus de leurs têtes ressemblaient à de grandes chauves-souris. De petits cristaux translucides recouvraient une partie de leur corps et brillaient chaque fois qu'elles passaient dans la lumière.
+
+Elles changeaient de direction avec une facilité déconcertante.
+
+Mira évita une nouvelle attaque.
+
+— Ça serait bien si l'une d'elles acceptait de rester par terre.
+
+Zeki fit apparaître son double. Une créature traversa l'image sans même ralentir.
+
+Il ne fut pas particulièrement surpris. Depuis leur arrivée, il avait remarqué les petits cris que les monstres émettaient en plein vol. Ils semblaient capables de circuler aussi facilement dans l'obscurité que dans les galeries éclairées.
+
+Il sortit sa pierre d'écho.
+
+Quelques instants plus tard, un bruit de pas retentit dans un passage voisin.
+
+Une chauve-souris tourna brusquement la tête.
+
+Elle ne se dirigea pas immédiatement vers le bruit. Elle ralentit seulement, comme si elle cherchait à déterminer ce qu'elle venait d'entendre.
+
+Lina décocha une flèche.
+
+La créature tomba.
+
+— Enfin !
+
+Zeki sourit.
+
+Il aurait aimé que les autres se montrent aussi faciles à distraire. Malheureusement, deux chauves-souris se mirent à tournoyer davantage au lieu de s'intéresser au bruit.
+
+Ils durent changer de galerie.
+
+Lina proposa de gagner un espace où la voûte était moins haute. Mira partit reconnaître les environs pendant que Zeki rangeait son matériel.
+
+Ils reprirent l'affrontement dans de meilleures conditions.
+
+Cette fois, Lina put attendre le passage d'une créature, tandis que Mira s'occupait de celles qui descendaient suffisamment près du sol. Le lance-filet amélioré permit même à Zeki d'en retenir une pendant un bref instant.
+
+Ils ne remportèrent pas une victoire parfaite. Lina perdit plusieurs flèches et Zeki dut réparer une maille de son filet.
+
+Mais ils avaient franchi un obstacle qui, quelques semaines auparavant, lui aurait probablement demandé plusieurs jours de réflexion.
+
+**Chauves-souris de cristal vaincues.**
+
+Zeki rangea quelques fragments cristallins dans son sac.
+
+— On continue ? demanda Lina.
+
+Il consulta son carnet.
+
+Autrefois, il aurait répondu qu'il devait retourner voir Edrin, examiner ses dépenses et préparer une nouvelle expédition.
+
+Il regarda la galerie devant eux.
+
+— Oui.
+
+***
+
+Ils ne rencontrèrent pas immédiatement la septième espèce.
+
+Avant d'aller plus loin, ils regagnèrent la surface pour remettre leurs trophées et renouveler leurs provisions.
+
+Le marchand s'intéressa aux petits cristaux.
+
+Il en approcha un de son oreille et le tapota légèrement.
+
+Un son clair s'en échappa, puis se prolongea plus longtemps que Zeki ne l'aurait attendu.
+
+— Les enchanteurs aiment bien cette matière, expliqua-t-il. Je connais un artisan qui devrait pouvoir m'en dire davantage.
+
+Il lui proposa de conserver les fragments les plus intacts et de lui vendre les autres.
+
+Puis il lui montra un lot de petites fioles résistantes qu'il avait obtenu auprès d'un fournisseur.
+
+— J'ai pensé à toi en les voyant.
+
+Zeki en examina une.
+
+Le prix était raisonnable. Il en acheta quelques-unes pour remplacer les récipients abîmés pendant ses précédentes sorties.
+
+Le marchand prit également note des nouvelles ressources qu'il pourrait être amené à rapporter.
+
+— À cette vitesse, dit-il, je vais devoir me renseigner sur les espèces que tu n'as pas encore rencontrées.
+
+— Ce serait utile.
+
+— Je me doute.
+
+Zeki passa ensuite chez Edrin pour lui parler des créatures volantes. Ils discutèrent de leurs perceptions, de leurs déplacements et des réactions observées.
+
+L'érudit lui rappela qu'un rapport sur un monstre n'avait pas besoin d'être complet pour être utile.
+
+— Tu peux continuer à l'étudier plus tard. N'oublie pas que tu es aussi là pour découvrir ce que tu ne connais pas encore.
+
+Zeki prit congé de lui.
+
+Il lui restait du temps avant la prochaine expédition commune.
+
+Il décida de retourner seul chez les tortues.
+
+***
+
+Sa carapace avait subi plusieurs réparations depuis qu'il l'avait fait modifier par le forgeron.
+
+Il commençait à connaître les mouvements qu'il pouvait effectuer sans provoquer la méfiance des créatures. Il avait également appris à reconnaître les endroits où le déguisement devenait trop encombrant.
+
+Ce jour-là, il traversa une galerie qu'il connaissait particulièrement bien.
+
+Une tortue passa près de lui.
+
+Il s'arrêta, attendit, puis reprit son déplacement lorsqu'elle se fut éloignée.
+
+Une deuxième créature le croisa.
+
+Puis une troisième.
+
+Il atteignit la partie opposée de la galerie sans incident.
+
+Il venait de réaliser une nouvelle reconnaissance sans combattre.
+
+Zeki retira sa carapace et s'apprêta à noter ses observations lorsqu'une inscription bleue apparut.
+
+**Nouvelle compétence acquise : Métamorphose temporaire — Niveau 1.**
+
+Il resta immobile.
+
+**Permet de prendre temporairement la forme d'une créature dont l'apparence et le comportement ont été suffisamment assimilés.**
+
+Il relut l'inscription.
+
+Puis il contempla sa carapace.
+
+— Non…
+
+Il rangea le costume dans son sac et rejoignit un endroit tranquille, à l'écart des monstres.
+
+Il activa la compétence.
+
+Une sensation étrange parcourut son corps.
+
+Le sol sembla se rapprocher.
+
+Lorsqu'il essaya de regarder ses mains, il ne les trouva plus.
+
+À leur place se trouvaient deux pattes épaisses.
+
+Zeki tenta de se retourner.
+
+Une large carapace recouvrait son dos.
+
+Il ouvrit la bouche.
+
+Aucun mot n'en sortit.
+
+Il fit quelques pas.
+
+Cette fois, il n'avait pas à soutenir le poids du costume. Il n'avait pas non plus besoin de se demander comment placer ses jambes pour ressembler à une tortue.
+
+Il en était une.
+
+Il essaya de se déplacer plus rapidement.
+
+Ce n'était pas particulièrement concluant.
+
+Il tenta ensuite de rentrer sa tête sous sa carapace et se retrouva momentanément désorienté.
+
+Lorsque la compétence prit fin, il récupéra son apparence humaine et s'assit par terre.
+
+Il éclata de rire.
+
+Il lui avait fallu plusieurs semaines pour apprendre à gagner quelques pièces en risquant sa vie. Il avait dépensé une partie de ses économies pour faire modifier une carapace. Il s'était retrouvé coincé dans un passage étroit et avait dû abandonner son costume devant une tortue furieuse.
+
+Et maintenant, il pouvait devenir lui-même une tortue.
+
+— C'est complètement injuste.
+
+Il regarda la notification.
+
+Son sourire s'élargit.
+
+— Mais je ne vais certainement pas m'en plaindre.
+
+***
+
+Mira refusa d'abord de le croire.
+
+— Tu te changes en quoi ?
+
+— En tortue.
+
+— Avec ta carapace ?
+
+— Sans.
+
+Elle regarda Lina.
+
+L'archère haussa les épaules.
+
+— Montre-nous.
+
+Ils choisirent un endroit dégagé.
+
+Zeki déposa ses affaires, activa sa compétence et disparut dans une lumière bleutée.
+
+Une Tortue cuirassée se trouvait à sa place.
+
+Mira fit un bond en arrière.
+
+Lina resta bouche bée.
+
+La tortue leva une patte.
+
+Mira se pencha vers elle.
+
+— Zeki ?
+
+La créature hocha maladroitement la tête.
+
+Lina porta une main à sa bouche pour retenir un rire.
+
+Lorsque le garçon reprit son apparence, les deux aventurières se précipitèrent vers lui.
+
+— Depuis quand tu sais faire ça ? demanda Mira.
+
+— Depuis hier.
+
+— Et tu peux devenir n'importe quel monstre ?
+
+— Non. Pour l'instant, le système ne me propose que la tortue.
+
+— Tu peux utiliser ses capacités ?
+
+— Je ne sais pas encore. Mais je n'ai pas accès à mes affaires quand je suis transformé, et je ne peux même pas parler.
+
+Lina réfléchit.
+
+— Tu peux quand même entrer dans un endroit rempli de tortues sans passer pour un aventurier.
+
+— C'est ce que je voudrais vérifier.
+
+Mira se tourna vers les créatures qui occupaient le passage voisin.
+
+— Je veux voir.
+
+Ils procédèrent à une courte reconnaissance.
+
+Les deux femmes observèrent Zeki avancer parmi les tortues. Une créature vint l'examiner, mais ne manifesta aucune hostilité.
+
+Il put atteindre un renfoncement que le trio aurait normalement dû contourner.
+
+Quand il revint, il était rayonnant.
+
+Mira secoua la tête.
+
+— J'ai passé des mois à apprendre à me dissimuler. Toi, tu portes une carapace ridicule pendant quelque temps et tu obtiens ça.
+
+Zeki sourit.
+
+— Tu m'as quand même beaucoup aidé.
+
+Elle le regarda un instant.
+
+— Oui. Mais ça, je ne t'ai certainement pas appris à le faire.
+
+Lina avait sorti sa propre carte.
+
+— Tu te rends compte de ce que ça pourrait représenter plus tard ? Si tu apprends à imiter d'autres créatures…
+
+Zeki acquiesça avec empressement.
+
+— Je pourrais aller dans des endroits où personne ne voudrait entrer !
+
+Il se mit à expliquer toutes les possibilités auxquelles il pensait.
+
+Mira le laissa parler.
+
+Elle ne l'avait jamais vu aussi enthousiaste.
+
+***
+
+La septième espèce leur posa un problème très différent.
+
+Des amas de matière translucide rampaient lentement sur le sol et le long des parois.
+
+Zeki reconnut les Gélatines d'ambre grâce aux descriptions sommaires qu'il avait consultées aux archives.
+
+Le premier coup porté par Mira ne produisit presque aucun résultat. La créature absorba une partie du mouvement de sa lame et reprit sa progression.
+
+— Je n'aime pas ça, déclara-t-elle en reculant.
+
+Lina essaya ses flèches. Certaines s'enfoncèrent dans la masse sans interrompre ses mouvements.
+
+Zeki observa le monstre.
+
+Il remarqua une petite zone plus sombre qui se déplaçait à l'intérieur de la matière translucide.
+
+Ils vérifièrent ensemble que cette partie réagissait différemment aux attaques.
+
+Une fois la faiblesse identifiée, ils purent adapter leurs interventions. Lina se révéla particulièrement efficace lorsque le noyau devenait visible. Mira, elle, préféra protéger les deux tireurs contre les créatures qui s'approchaient.
+
+Zeki essaya également un de ses carreaux enchantés.
+
+L'effet de ralentissement fut presque imperceptible.
+
+Il nota l'échec sans insister.
+
+Toutes les méthodes qu'il avait développées ne devaient pas fonctionner sur tous les monstres.
+
+Ils poursuivirent néanmoins leur exploration et ramenèrent plusieurs noyaux translucides, dont le marchand leur confirma ensuite l'intérêt pour certaines préparations artisanales.
+
+Pour Zeki, le principal changement était ailleurs.
+
+Il ne se sentait plus obligé de trouver immédiatement la méthode la moins coûteuse ou la plus originale pour vaincre une créature. Lina et Mira lui permettaient de découvrir rapidement ce qui fonctionnait, tandis qu'il pouvait réserver ses expériences personnelles aux situations qui l'intéressaient le plus.
+
+Au cours des jours suivants, ils continuèrent à accomplir des contrats et à explorer.
+
+Ils gagnèrent tous les trois de l'expérience.
+
+Zeki vit son niveau progresser et constata qu'il supportait mieux les longues expéditions. Lina lui fit remarquer que ses tirs étaient devenus plus assurés.
+
+Mira, quant à elle, commença à noter certaines observations dans un petit carnet.
+
+— Ne dis rien, prévint-elle lorsqu'elle aperçut son regard.
+
+Il ne dit rien.
+
+Mais il sourit.
+
+***
+
+La huitième espèce ressemblait à des soldats de pierre.
+
+Les Gardes d'argile avançaient avec des mouvements saccadés et portaient des plaques épaisses sur leurs épaules. Ils n'étaient pas particulièrement rapides, mais leurs attaques obligeaient les aventuriers à rester vigilants.
+
+Zeki se heurta rapidement à la difficulté de les ralentir.
+
+Leurs corps pesants résistaient au filet. Les préparations alchimiques qu'il utilisait contre les loups ne produisaient aucun effet notable.
+
+Lina s'occupa d'un garde pendant que Mira étudiait les intervalles entre ses mouvements.
+
+Zeki, de son côté, remarqua que les créatures réagissaient fortement lorsqu'un autre monstre pénétrait dans leur secteur.
+
+Il leur proposa une expérience.
+
+Mira devina immédiatement ce qu'il avait en tête.
+
+— Encore une bagarre entre monstres ?
+
+— Si ça marche.
+
+Ils observèrent une rencontre entre un Garde d'argile et une Gélatine d'ambre qui s'était aventurée au-delà de son territoire habituel.
+
+Le garde frappa la masse translucide.
+
+Celle-ci réagit en se refermant autour d'une partie de son corps.
+
+Zeki suivit l'affrontement avec intérêt.
+
+Les deux créatures finirent par se séparer sans qu'aucune soit vaincue.
+
+— Bon, dit Lina. Au moins, on sait qu'elles ne s'apprécient pas.
+
+Ils poursuivirent leurs essais au fil de plusieurs sorties. Zeki provoqua d'autres rencontres entre espèces, sans obtenir systématiquement de résultat. Il continua également à utiliser son double et les accessoires de diversion qu'il possédait déjà.
+
+À deux reprises, une victoire indirecte lui rapporta de l'expérience.
+
+Une autre fois, il ne reçut rien.
+
+Il conserva soigneusement ces différences pour en discuter avec Edrin.
+
+***
+
+Leur progression les conduisit finalement devant une grande galerie bordée de piliers.
+
+Zeki s'arrêta.
+
+Il reconnut l'endroit sur sa carte.
+
+Derrière l'une des parois se trouvait la salle du trésor à laquelle il avait accédé plusieurs semaines auparavant, avec sa pioche.
+
+Mira examina le dessin.
+
+— Attends. Tu es déjà venu ici ?
+
+— Dans la salle d'à côté.
+
+— Comment ?
+
+Zeki lui expliqua.
+
+Mira regarda la paroi.
+
+Puis elle regarda Zeki.
+
+— Tu as creusé un mur du donjon pour aller chercher un trésor ?
+
+— Oui.
+
+Lina éclata de rire.
+
+— Et tu ne nous avais jamais raconté ça ?
+
+— Vous ne me l'aviez jamais demandé.
+
+Ils découvrirent l'accès normal à la salle. Le passage avait été fréquenté par d'autres aventuriers et le coffre était vide.
+
+Zeki ne fut pas déçu.
+
+Il avait déjà profité de l'endroit.
+
+Il montra à ses compagnes la brèche qu'il avait ouverte.
+
+Mira passa la tête par l'ouverture.
+
+— Tu es vraiment un cas particulier.
+
+— C'était plus court.
+
+Elle se redressa.
+
+— Je commence à comprendre.
+
+***
+
+La nouvelle compétence apparut au cours de leur dernière série de contrats.
+
+Ils avaient rencontré un groupe de Gardes d'argile près d'une galerie où circulaient encore des Gélatines d'ambre.
+
+Zeki venait de provoquer un affrontement entre deux créatures. Lina et Mira s'occupaient de celles qui menaçaient directement le groupe.
+
+Lorsque l'un des monstres s'effondra, une notification bleue apparut.
+
+**Expérience acquise.**
+
+Puis une deuxième.
+
+**Nouvelle compétence acquise : Marionnettiste — Niveau 1.**
+
+Zeki écarquilla les yeux.
+
+**Permet d'influencer temporairement le comportement d'une créature et de modifier sa cible.**
+
+Il resta silencieux.
+
+Lina l'appela.
+
+— Zeki ?
+
+Il regarda un Garde d'argile.
+
+Puis une autre créature.
+
+Il sentit qu'il pouvait essayer d'exercer une influence sur le premier.
+
+Il activa la compétence.
+
+Le garde s'arrêta.
+
+Durant un bref instant, il demeura parfaitement immobile.
+
+Puis il se détourna de Zeki.
+
+Il avança vers la Gélatine d'ambre.
+
+Et l'attaqua.
+
+Mira, qui s'apprêtait à intervenir, abaissa sa lame.
+
+— Qu'est-ce que…
+
+Zeki regardait la scène avec une expression qu'elles ne lui connaissaient pas.
+
+— Ça marche !
+
+Il venait presque de crier.
+
+Le garde poursuivit son affrontement pendant un court moment. Puis la sensation d'influence disparut.
+
+La créature se désintéressa progressivement de sa nouvelle cible.
+
+Zeki tenta aussitôt d'utiliser le pouvoir sur un deuxième garde.
+
+Cette fois, il n'obtint aucune réponse.
+
+Il consulta la notification.
+
+La compétence n'était pas encore disponible.
+
+— D'accord, murmura-t-il. D'accord…
+
+Il se mit à rire.
+
+Lina s'approcha de lui.
+
+— Qu'est-ce que tu viens de faire ?
+
+Il lui lut la description.
+
+Mira regarda les deux monstres.
+
+— Tu peux décider de qui ils attaquent ?
+
+— Pendant un moment, apparemment.
+
+— Sans les attirer ? Sans tes accessoires ?
+
+Zeki acquiesça.
+
+Elle demeura silencieuse quelques secondes.
+
+— C'est une plaisanterie.
+
+— Je sais !
+
+Lina n'avait jamais entendu Zeki répondre avec autant d'enthousiasme.
+
+Il parlait déjà de toutes les situations où il pourrait se servir de la compétence.
+
+Il faudrait encore vérifier quels monstres résistaient à son influence, à quelle distance il pouvait intervenir et combien de temps l'effet durait.
+
+Mais il venait d'obtenir quelque chose dont il n'aurait jamais osé rêver lors de son inscription.
+
+Il pouvait créer un adversaire qui combattrait à sa place.
+
+***
+
+Ils se donnèrent encore quelques sorties pour examiner les deux pouvoirs.
+
+Lors d'un retour vers le territoire des tortues, Zeki réussit à prendre l'apparence de l'une d'elles et à traverser une partie de la galerie sans éveiller de soupçons.
+
+Il reprit ensuite sa forme humaine à l'écart des créatures.
+
+Marionnettiste lui permit plus tard de détourner brièvement l'attention d'un loup vers une tortue qui occupait le passage.
+
+Le monstre hésita, puis se rua vers sa nouvelle cible.
+
+Lina et Mira profitèrent de l'ouverture pour poursuivre leur contrat sans avoir à affronter simultanément les deux créatures.
+
+Tout ne se déroula pas aussi bien lors de leurs essais suivants.
+
+Un loup sembla résister presque immédiatement à l'influence. Une tortue, incitée à s'intéresser à un autre monstre, refusa de quitter son emplacement.
+
+Zeki ne pouvait pas encore imposer à une créature n'importe quel comportement.
+
+Mais cela ne diminuait guère son enthousiasme.
+
+Il venait de passer des jours à tenter d'obtenir certains de ces résultats à l'aide d'objets, de détours et d'attentes interminables.
+
+Désormais, une partie de ce travail pouvait être accomplie par ses propres compétences.
+
+Mira le regarda ranger son carnet.
+
+— Tu sais ce qui est le plus inquiétant ?
+
+— Quoi ?
+
+— Ce n'est même pas ce que tu sais faire maintenant.
+
+Elle désigna son sac.
+
+— C'est ce que tu vas inventer avec tout ça.
+
+Zeki se mit à sourire.
+
+***
+
+La dernière nouvelle leur parvint à la Guilde.
+
+Le coéquipier de Lina et Mira avait suffisamment récupéré pour reprendre progressivement les expéditions.
+
+Lina annonça la nouvelle à Zeki en lui tendant la récompense de leur dernier contrat.
+
+— On va recommencer à travailler avec lui demain.
+
+— Ah.
+
+Zeki prit les pièces.
+
+— Tant mieux. Il va mieux, alors ?
+
+— Oui. Il faudra encore faire attention, mais il peut reprendre.
+
+Mira resta un instant à observer le garçon.
+
+— Tu sais, c'était vraiment intéressant de combattre avec toi.
+
+— Pour moi aussi.
+
+Il ne savait pas quoi ajouter.
+
+Lina lui montra les quelques annotations qu'elle avait copiées dans son carnet.
+
+— Je crois que je vais modifier ma manière de préparer certaines expéditions. Je ne pensais pas qu'on pouvait obtenir autant de résultats en prenant le temps d'observer.
+
+Mira acquiesça.
+
+— Et moi, je vais arrêter de croire que les compétences de ma classe sont les seules qui me concernent.
+
+Zeki sourit timidement.
+
+— Vous m'avez beaucoup appris aussi.
+
+— On ne disparaît pas, précisa Lina. On pourra toujours se revoir.
+
+Mira lui donna une tape sur l'épaule.
+
+— La prochaine fois, je veux voir ce que tu auras encore débloqué.
+
+Zeki acquiesça.
+
+Ils se quittèrent devant la Guilde.
+
+Il resta un moment à les regarder s'éloigner.
+
+Il aurait pu leur demander de rester. Il aurait pu leur proposer de l'intégrer à leur équipe lorsque leur compagnon serait de nouveau présent.
+
+Mais cette idée ne lui vint pas vraiment.
+
+Il avait apprécié leur présence. Il avait appris des choses qu'il n'aurait probablement pas découvertes seul.
+
+Il avait même découvert qu'il aimait partager certaines de ses réussites.
+
+Il lui restait cependant tellement d'expériences à réaliser, tellement de questions auxquelles il voulait répondre, qu'il ressentait déjà une certaine impatience à l'idée de repartir à son rythme.
+
+Il salua une dernière fois les deux aventurières.
+
+Puis il se dirigea vers les archives.
+
+Edrin leva les yeux lorsqu'il le vit arriver.
+
+— Alors ?
+
+Zeki posa son carnet sur la table.
+
+— J'ai deux nouvelles compétences.
+
+L'érudit tendit la main vers les notes.
+
+— Lesquelles ?
+
+Le garçon sourit.
+
+— Vous n'allez pas me croire.
+
+***
+
+Le lendemain, Zeki se présenta seul devant l'entrée du donjon.
+
+Une inscription familière lui apparut.
+
+**Dégâts infligés en solitaire : +5 %.**
+
+Il regarda les groupes qui s'apprêtaient à descendre.
+
+Autrefois, leur présence lui rappelait ce qui lui manquait.
+
+Cette fois, il vérifia simplement son sac.
+
+Il avait une arbalète, des accessoires enchantés, des préparations alchimiques, six classes débutantes et trois compétences dont deux venaient de bouleverser ses possibilités.
+
+Il lui restait encore deux espèces à découvrir avant le gardien du premier étage.
+
+Et surtout, il avait une quantité considérable de nouvelles idées.
+
+Il descendit les marches.
+
+Il n'avait jamais été aussi heureux de partir seul.
