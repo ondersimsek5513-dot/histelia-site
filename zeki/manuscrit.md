@@ -2134,3 +2134,529 @@ Mais chacun lui avait offert une possibilité qu'il n'avait pas auparavant.
 Il se demanda combien de possibilités différentes valait cette épée.
 
 Pour la première fois depuis qu'il était devenu aventurier, il avait hâte d'entrer chez le marchand sans avoir à commencer par demander ce qu'il y avait de moins cher.
+
+## Tome 1 — Chapitre 7 : Une épée contre cent possibilités
+
+— Pose-la doucement.
+
+Le marchand avait cessé de compter ses pièces.
+
+Zeki déposa son paquet sur le comptoir et écarta la toile. L'homme contempla la grande épée, puis passa un doigt le long des fines lignes argentées qui parcouraient la lame.
+
+— Où as-tu trouvé ça ?
+
+— Dans le donjon.
+
+— Je m'en doute. Quelle créature gardait le coffre ?
+
+— Aucune.
+
+Le marchand se pencha pour examiner la garde.
+
+— Une équipe était passée avant toi ?
+
+— Non.
+
+— Alors comment es-tu arrivé jusque-là ?
+
+Zeki désigna la pioche qu'il avait laissée près de la porte.
+
+Le marchand regarda l'outil. Il regarda l'épée. Puis il regarda de nouveau l'outil.
+
+— Tu as creusé ?
+
+— Oui.
+
+Un silence s'installa dans la boutique.
+
+— C'est avec ma pioche que tu as trouvé cette épée ?
+
+— Techniquement, c'est la mienne maintenant.
+
+Le marchand ouvrit la bouche, la referma et se mit à rire.
+
+Il appela un apprenti qui rangeait des caisses dans l'arrière-boutique et lui demanda d'aller chercher une loupe d'expertise. Puis il examina l'arme sous la lumière de la vitrine.
+
+— Ce n'est pas une épée de fabrication ordinaire. Tu pourrais la conserver pendant longtemps.
+
+— Elle est trop lourde.
+
+— Tu deviendras plus fort.
+
+— Peut-être. Mais je ne suis pas certain de vouloir me battre avec.
+
+Le marchand lui jeta un regard curieux.
+
+— Qu'est-ce que tu voudrais à la place ?
+
+Zeki sortit son carnet.
+
+Il avait consacré une page entière à cette question.
+
+L'homme se rapprocha pour lire.
+
+— Ah, dit-il simplement.
+
+Il fallut un certain temps pour parvenir à un accord. Le marchand expliqua qu'il lui faudrait trouver un acheteur capable de payer le prix d'une arme rare. Il ne pouvait donc pas proposer à Zeki l'intégralité de sa valeur de revente.
+
+Zeki demanda combien il obtiendrait s'il attendait cet acheteur. Puis combien il pourrait obtenir immédiatement.
+
+Le marchand lui donna les deux estimations.
+
+Pour la première fois de sa vie, Zeki dut réfléchir à ce qu'il pourrait gagner en laissant passer une occasion de dépenser son argent.
+
+Il choisit finalement la vente immédiate. Il ne voulait pas attendre plusieurs semaines avant d'améliorer ses chances de survie.
+
+Le marchand apporta une petite cassette, vérifia une dernière fois l'arme et déposa la somme convenue devant lui.
+
+Zeki regarda les pièces.
+
+Il n'avait encore jamais possédé autant d'argent.
+
+Il en prit une, la retourna entre ses doigts et la reposa.
+
+Pendant quelques instants, il oublia complètement ce qu'il était venu acheter.
+
+— Alors ? demanda le marchand. Par quoi commençons-nous ?
+
+Zeki tourna la page de son carnet.
+
+— Vous avez toujours la pierre d'écho ?
+
+***
+
+Le marchand avait toujours la pierre d'écho.
+
+Il la posa devant Zeki, prononça quelques mots à proximité de l'objet et lui fit une démonstration. Une lueur traversa la pierre. Quelques instants plus tard, la voix de l'homme en sortit, légèrement déformée.
+
+— Bienvenue dans ma boutique.
+
+Zeki examina l'objet sous toutes ses faces.
+
+— On peut la faire parler sans être juste à côté ?
+
+— Certains modèles le permettent. Celui-ci peut restituer le son après un court délai.
+
+Zeki imagina une créature tourner la tête vers un bruit au moment où il souhaitait passer derrière elle.
+
+Puis il imagina autre chose.
+
+— Est-ce qu'elle peut imiter le cri d'un monstre ?
+
+— Elle ne fait que reproduire ce qu'elle entend. Si tu peux lui faire entendre le cri, oui.
+
+Zeki inscrivit quelques mots dans son carnet.
+
+Il acheta la pierre.
+
+Il demanda ensuite à revoir le cristal lumineux. Le marchand éteignit la lampe qui éclairait une partie de son comptoir et déposa le cristal sur le bois. Une lumière pâle se répandit sur les étagères.
+
+Zeki calcula mentalement le nombre de torches qu'il avait consommées depuis sa première expédition.
+
+Le cristal était cher, mais il ne brûlait pas.
+
+— Il faudra le faire recharger de temps en temps, précisa le marchand.
+
+Zeki ajouta le coût de la recharge à ses calculs. L'objet restait intéressant, surtout lorsqu'il avait besoin de ses deux mains.
+
+Il le prit également.
+
+Vint ensuite le tour des fumigènes.
+
+— La brume est efficace, expliqua Zeki, mais je ne voyais plus où j'allais.
+
+— C'est généralement le principe.
+
+— Même quand on l'utilise soi-même ?
+
+— La brume ne sait pas qui l'a achetée.
+
+Zeki accepta cette explication avec une certaine déception.
+
+Le marchand lui montra alors un petit grelot enchanté dont le son portait peu, mais restait très distinct. Zeki le fit tinter près de son oreille.
+
+Il songea qu'un repère sonore pourrait être plus utile qu'une lumière au milieu de la brume.
+
+Il prit le grelot et deux fumigènes.
+
+Il s'arrêta également devant des fioles de différentes couleurs. Le marchand lui expliqua qu'elles contenaient des préparations de soin, dont les plus modestes pouvaient aider à traiter de petites blessures. Les plus puissantes étaient réservées à des situations bien plus graves.
+
+Zeki acheta deux petites potions.
+
+Il remarqua qu'une seule de ces fioles coûtait davantage que plusieurs récompenses de ses premiers contrats.
+
+— Il y a beaucoup de gens qui savent fabriquer ça ?
+
+— Les alchimistes. Quelques herboristes aussi, pour les préparations les plus simples.
+
+— Et ça revient moins cher de les fabriquer ?
+
+— Si tu sais ce que tu fais.
+
+Le marchand pointa du doigt une étagère chargée de flacons.
+
+— Si tu ne le sais pas, tu risques de dépenser plus d'argent à apprendre qu'à acheter le produit terminé.
+
+Zeki nota tout de même la remarque.
+
+Il n'avait pas oublié le prix de sa première grenade.
+
+Il examina encore une corde enchantée, des sachets d'appâts de plusieurs sortes et une petite pierre capable d'adhérer à certaines surfaces lorsqu'elle était activée. Il s'intéressa particulièrement à cette dernière, mais repoussa son achat : il ne voyait pas encore de situation précise où elle lui serait indispensable.
+
+Il prit des appâts ordinaires, quelques projectiles et une nouvelle corde dépourvue d'enchantement.
+
+— Tu ne veux vraiment pas regarder les armes ? demanda le marchand.
+
+Zeki observa le râtelier.
+
+Une petite dague attira son attention. Elle était moins encombrante que son épée et pourrait lui servir lorsqu'il n'avait pas suffisamment de place pour manier celle-ci.
+
+Il la choisit parmi les modèles ordinaires.
+
+Le marchand posa la dague à côté du reste.
+
+— Tu viens de me vendre une arme rare pour acheter des choses que mes autres clients emportent en supplément de leurs armes.
+
+— Oui.
+
+— Et tu comptes vraiment t'en servir ?
+
+Zeki acquiesça.
+
+L'homme regarda le filet usé qui dépassait de son sac.
+
+— Il faudra que tu reviennes me dire lesquelles fonctionnent.
+
+Cette fois, Zeki comprit que le marchand ne posait pas la question uniquement par politesse.
+
+***
+
+Il fallut ensuite ranger les achats.
+
+Zeki plaça le cristal au fond de son sac, enroula la corde, ajouta les appâts et essaya de trouver un emplacement où ses potions ne risquaient pas de se briser.
+
+Il referma le sac.
+
+Puis il se souvint qu'il n'y avait pas encore mis le filet.
+
+Il recommença.
+
+Le marchand l'observait sans intervenir.
+
+Lorsque Zeki parvint enfin à soulever son équipement, il s'aperçut que sa fronde était coincée sous une sangle.
+
+Il tenta de la sortir.
+
+Le marchand soupira.
+
+— Tu comptes demander aux monstres de patienter pendant que tu cherches tes affaires ?
+
+Zeki reposa le sac sur le comptoir.
+
+— Vous avez quelque chose de plus grand ?
+
+L'homme alla chercher une sacoche dont l'apparence n'avait rien d'extraordinaire. Le cuir était souple, la fermeture solide. Quelques motifs brodés entouraient son ouverture.
+
+— Un sac magique.
+
+Il invita Zeki à y placer la corde.
+
+Celle-ci disparut à l'intérieur sans que la sacoche change de forme. Le marchand y glissa ensuite le filet, puis plusieurs articles du comptoir. Il souleva l'ensemble d'une seule main.
+
+Zeki regarda la sacoche.
+
+Puis son propre sac.
+
+Puis la sacoche.
+
+— Combien ?
+
+Le marchand lui annonça le prix.
+
+Zeki eut un instant l'impression d'avoir mal entendu.
+
+— Même avec l'argent de l'épée ?
+
+— Même avec l'argent de l'épée. Et celui-ci n'est pas le plus grand modèle.
+
+Il récupéra la corde et le filet avant de remettre la sacoche à sa place.
+
+Zeki continua de la regarder.
+
+Il connaissait désormais assez bien les dangers du donjon pour comprendre ce qu'un tel objet pouvait changer. Il ne s'agissait pas simplement d'emporter davantage de choses. Il pourrait adapter son équipement aux situations rencontrées sans devoir abandonner la moitié de ses outils au moment de partir. Il se demanda tout de même si retrouver un objet parmi une centaine serait aussi simple que le marchand le laissait croire.
+
+Il sortit son carnet et réserva une nouvelle page.
+
+*Objectif : sac magique.*
+
+Le marchand lui présenta le total de ses achats. Zeki compta les pièces qui lui restaient.
+
+— Si tu continues à me rapporter des épées rares, on finira peut-être par en reparler.
+
+Zeki referma sa bourse.
+
+Il aurait préféré une méthode d'obtention moins fatigante que la pioche.
+
+***
+
+— Il y a encore une chose que je voudrais améliorer.
+
+Zeki montra son filet.
+
+Le marchand examina les mailles réparées.
+
+— Tu veux un modèle plus résistant ?
+
+— Pas seulement. J'ai du mal à le sortir assez vite quand les monstres s'approchent.
+
+— Pour ça, il te faut surtout de l'entraînement.
+
+— Et si je pouvais le lancer sans avoir à le déplier moi-même ?
+
+L'homme resta pensif.
+
+— Je connais quelqu'un qui pourrait avoir un avis là-dessus.
+
+Il lui indiqua un atelier situé à quelques rues de la Guilde.
+
+La chaleur de la forge se faisait sentir jusque dans la rue. À l'intérieur, des armes inachevées côtoyaient des outils de jardinage, des charnières, des pièces d'armure et plusieurs objets dont Zeki ne devinait pas l'usage.
+
+Un homme aux bras couverts de petites cicatrices travaillait sur une plaque de métal.
+
+— Tu viens chercher une arme ?
+
+Zeki posa son filet sur une table libre.
+
+— Je voudrais quelque chose qui puisse lancer ça.
+
+Le forgeron s'interrompit.
+
+— Un filet ?
+
+— Oui.
+
+— Tu peux le lancer avec tes bras.
+
+— Pas assez vite.
+
+Zeki lui raconta sa première tentative contre les Squelettes. Le filet s'était accroché à son équipement et il avait failli recevoir un coup avant de pouvoir l'utiliser.
+
+Il ouvrit son carnet.
+
+— J'imaginais une sorte de petite arme que je pourrais tenir à la main. Comme un pistolet, mais qui propulserait un filet au lieu de tirer un projectile ordinaire.
+
+Le forgeron posa son outil.
+
+— Un pistolet lance-filet ?
+
+— C'est ça.
+
+— Et qu'est-ce qui doit se passer après le tir ?
+
+— Le filet s'ouvre devant le monstre. Il le retient suffisamment longtemps pour que je puisse m'occuper des autres.
+
+Le forgeron regarda le jeune garçon, puis le filet.
+
+— Tu veux que je te fabrique une arme dont le but n'est pas de blesser.
+
+— Si elle fonctionne, je pourrai m'occuper du reste.
+
+L'artisan prit le filet entre ses mains et en estima le poids.
+
+Il lui expliqua que propulser un objet ne suffisait pas. Il fallait également que le filet se déploie correctement, qu'il ne se déchire pas et que l'ensemble puisse rester assez maniable pour être utilisé dans un donjon.
+
+Il existait des enchantements de propulsion, mais les appliquer à un objet aussi souple lui demanderait des essais.
+
+— Je peux étudier la question, finit-il par dire. Je ne te promets pas que ce sera petit. Et encore moins que ça fonctionnera du premier coup.
+
+Zeki se pencha sur la table.
+
+— Même si je ne peux tirer qu'une seule fois avant de le recharger, ça pourrait suffire.
+
+Le forgeron le considéra un instant.
+
+Puis il prit une feuille.
+
+— Montre-moi comment tu combats.
+
+Zeki lui expliqua les distances auxquelles il cherchait à rester, les difficultés causées par les armes des Squelettes et la nécessité de conserver une main libre le plus souvent possible.
+
+L'artisan posa davantage de questions qu'il n'avait prévu de le faire.
+
+Lorsqu'ils eurent terminé, il lui proposa de revenir après ses premières recherches. Zeki laissa un acompte modeste pour les essais, sans engager tout l'argent qui lui restait.
+
+Ils parlèrent aussi du bouclier. Le forgeron lui montra plusieurs protections plus robustes, mais Zeki préféra demander une remise en état de la sienne. Il découvrit ensuite des armes de chasse démontables et de petits outils destinés aux mineurs.
+
+Il s'attarda devant une pince à long manche.
+
+— Pour quoi faire ? demanda le forgeron.
+
+— Récupérer quelque chose sans m'en approcher.
+
+L'homme leva les yeux au plafond.
+
+— Bien sûr.
+
+Il accepta de remettre le bouclier en état pendant que Zeki préparait sa prochaine expédition.
+
+Au moment où le garçon atteignit la porte, le forgeron le rappela.
+
+— Si tu as d'autres idées de ce genre, apporte ton carnet.
+
+— Même si elles sont un peu étranges ?
+
+L'artisan regarda la feuille sur laquelle il venait d'inscrire les mots « lance-filet ».
+
+— Je crois qu'on a déjà dépassé ce stade.
+
+***
+
+Deux jours plus tard, la Guilde était particulièrement bruyante.
+
+Un aventurier racontait avoir découvert un passage vers la salle au trésor sans avoir traversé toutes les galeries qui la précédaient.
+
+— Un trou dans le mur ! Je vous dis que quelqu'un a percé le mur !
+
+— Et le coffre ?
+
+— Vide.
+
+Un autre groupe s'apprêtait déjà à vérifier son récit.
+
+Zeki, qui attendait son tour au comptoir, écouta la conversation avec une attention inhabituelle.
+
+Il n'avait pas pensé que quelqu'un trouverait aussi vite l'ouverture.
+
+— Encore une histoire de raccourci, soupira l'employée de la Guilde. Il va falloir prévenir les équipes de ne pas s'engager n'importe où. Le passage dont ils parlent se trouve près d'un piège.
+
+Zeki baissa les yeux.
+
+Les quatre aventuriers qu'il connaissait se tenaient non loin du tableau des missions. Le gardien proposa d'aller voir la fameuse brèche.
+
+— Pour quoi faire ? répondit la mage. Le coffre est déjà vide.
+
+— Ça nous éviterait quand même une partie du chemin.
+
+Le chef secoua la tête.
+
+— Nous sommes assez forts pour passer par les galeries normales. Et nous avons besoin de l'expérience.
+
+Le soigneur, qui semblait moins convaincu, continua d'écouter les conversations autour de lui.
+
+Zeki comprenait le raisonnement de leur chef.
+
+Il l'avait lui-même envisagé.
+
+La différence était qu'il n'avait pas encore les moyens de traverser toutes ces galeries sans danger.
+
+Lorsque son tour arriva, il remit à l'employée les fiches de ses prochaines missions.
+
+— Tu changes de territoire ?
+
+— Je vais essayer.
+
+Elle vérifia les contrats demandés.
+
+— Prends le temps de te renseigner. Les créatures suivantes ne réagissent pas toutes comme celles auxquelles tu es habitué.
+
+Elle posa devant lui un document que Zeki ne lui avait pas demandé.
+
+— C'est un rapport d'expédition récent. Il pourra peut-être t'aider.
+
+Il la remercia.
+
+Ce n'était pas la première fois qu'elle lui donnait un conseil. C'était en revanche la première fois qu'elle lui préparait quelque chose avant de le voir partir.
+
+***
+
+Edrin lut le carnet en silence.
+
+Il s'arrêta sur les deux passages concernant le piège à flèches.
+
+— Le lapin t'a rapporté de l'expérience, mais pas le Squelette ?
+
+— Oui.
+
+— Dans les deux cas, c'est le piège qui a tué la créature ?
+
+— Oui.
+
+L'érudit rapprocha les deux notes.
+
+— La différence, c'est que tu as volontairement attiré le premier. Pour le second, tu étais simplement présent lorsque les flèches sont parties.
+
+Zeki acquiesça.
+
+Edrin prit sa plume.
+
+— Voilà qui est intéressant.
+
+— Vous saviez que c'était possible ?
+
+— Je savais que le système reconnaissait la contribution de plusieurs aventuriers à une victoire. Mais je n'avais jamais lu un rapport décrivant exactement ce que tu viens de faire.
+
+Il resta quelques instants à relire les observations.
+
+— Ne tirons pas encore de conclusion. Il nous faudrait d'autres exemples.
+
+Zeki remarqua le mot *nous*.
+
+Edrin avait déjà sorti une feuille pour y recopier les événements. Il ajouta une mention au sujet du réarmement du piège et de ses inscriptions lumineuses.
+
+— Le donjon rétablit certains de ses mécanismes, dit-il. Mais le système reconnaît aussi, dans ton cas, l'usage que tu fais de ces mécanismes. Je me demande jusqu'où cela peut aller.
+
+— Moi aussi.
+
+L'érudit releva la tête.
+
+— Et l'épée, alors ?
+
+Zeki lui raconta la découverte de la salle.
+
+Edrin écouta jusqu'au bout sans l'interrompre.
+
+— Tu as percé un mur du donjon.
+
+— Oui.
+
+— Et tu as vendu le contenu du coffre pour acheter un grelot et de la corde ?
+
+— Pas seulement.
+
+Edrin se frotta le front.
+
+Il finit par sourire.
+
+— Il faudra me montrer cette carte.
+
+***
+
+Le lendemain, Zeki récupéra son bouclier réparé.
+
+Le lance-filet n'était encore qu'un projet sur une feuille de papier. Il devait se contenter de son filet ordinaire.
+
+Il choisit soigneusement ce qu'il emporterait. Il laissa sa pioche et la toile de transport à la surface, conserva sa petite épée et sa fronde, puis rangea les nouveaux accessoires selon l'ordre dans lequel il pensait pouvoir en avoir besoin.
+
+Son sac était toujours lourd.
+
+Il avait au moins appris à ne plus placer ses projectiles sous ses potions.
+
+Arrivé à l'entrée du donjon, il ressortit son carnet.
+
+Une page était réservée à son futur sac magique. Une autre aux expériences qu'il souhaitait réaliser avec Edrin. Plusieurs lignes concernaient des outils qu'il avait repérés sans les acheter.
+
+Il tourna encore une page.
+
+*Quatrième espèce.*
+
+Il avait découvert comment atteindre une salle située au-delà du huitième territoire. Il aurait pu se consacrer entièrement à la recherche de nouveaux raccourcis.
+
+Mais il se souvenait de son premier Squelette, de sa première rencontre avec un Lapin cornu et de la surprise qu'il avait éprouvée chaque fois que ses connaissances s'étaient révélées insuffisantes.
+
+S'il évitait toutes les créatures qu'il ne connaissait pas, il finirait par se retrouver devant une créature qu'il ne saurait absolument pas combattre.
+
+Il referma son carnet.
+
+Il n'avait plus tout à fait peur des trois premières espèces.
+
+Il était temps d'en découvrir une quatrième.
