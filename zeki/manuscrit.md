@@ -89,6 +89,8 @@ Puis, devant ses yeux, une inscription apparut.
 
 **Niveau : 1**
 
+**Classe initiale : Indéterminée**
+
 Zeki retira sa main trop vite.
 
 Le texte demeura suspendu dans son champ de vision pendant une seconde, puis disparut.
@@ -99,9 +101,21 @@ Le texte demeura suspendu dans son champ de vision pendant une seconde, puis dis
 
 — C'est le principe. La Guilde confirme ton statut et le système enregistre ta progression. Les explications de base sont affichées près du panneau bleu. Évite d'y passer la journée, tu apprendras le reste au fur et à mesure.
 
-Zeki hocha la tête.
+— Et pour la classe… pourquoi « indéterminée » ?
 
-Il aurait voulu lui demander qui avait décidé que la plaque devait picoter. Ou si le système pouvait se tromper sur quelqu'un. Mais deux autres personnes patientaient derrière lui, et il n'était déjà pas certain de comprendre sa propre inscription.
+L'employée releva les yeux.
+
+— Le système attribue une première classe selon les aptitudes naturelles de chacun. Un guerrier, un archer, un mage, un soigneur… Ça aide à savoir quel rôle tenir dans une équipe.
+
+— Et moi ?
+
+Elle consulta sa fiche.
+
+— Apparemment, aucune de tes aptitudes ne ressort suffisamment. Ça ne veut pas dire que tu ne peux pas progresser.
+
+Zeki hocha la tête. Il aurait aimé savoir ce qu'il était censé proposer à une équipe. Il avait maintenant une réponse à donner, mais elle ne lui paraissait guère plus utile qu'un silence.
+
+Deux autres personnes patientaient derrière lui. Il n'osa pas poser d'autres questions.
 
 — Voilà. Bienvenue à la Guilde, Zeki.
 
@@ -123,7 +137,7 @@ Zeki s'écarta légèrement pour laisser une jeune femme examiner la liste des c
 
 — On est quatre, disait-il. Il nous manque juste une personne qui sache tirer.
 
-— Moi, je peux apprendre, répondit un garçon au manteau vert.
+— Je suis archer, répondit un garçon au manteau vert.
 
 — Parfait !
 
@@ -133,11 +147,11 @@ Cela avait pris moins d'une minute.
 
 Il fixa l'espace où le garçon s'était tenu quelques instants plus tôt.
 
-*J'aurais pu le dire, moi aussi.*
+*Si seulement j'avais quelque chose à leur proposer.*
 
 Il n'avait pas encore essayé le tir à l'arc, mais il pouvait apprendre. Il était prêt à apprendre beaucoup de choses. Il aurait même porté les affaires du groupe s'il avait fallu commencer par là.
 
-Le problème était de prononcer la première phrase.
+Même sans classe définie, il aurait pu leur demander. Le problème était de prononcer la première phrase.
 
 À une table, trois recrues discutaient de leurs rôles respectifs. L'une dessinait un plan sur un coin de papier. À une autre, deux amis d'enfance s'étaient visiblement inscrits ensemble et cherchaient un troisième compagnon.
 
@@ -401,7 +415,7 @@ Zeki s'arrêta sur les marches.
 
 Il ne partait pas en mission.
 
-Il n'avait gagné aucun niveau, trouvé aucun compagnon, ni même choisi son premier contrat.
+Il n'avait gagné aucun niveau, trouvé aucun compagnon, ni même choisi son premier contrat. Et sa classe restait indéterminée.
 
 Pour un premier jour d'aventurier, le bilan était maigre.
 
@@ -428,3 +442,787 @@ Il ne savait toujours pas comment rejoindre une équipe.
 Mais, pour la première fois depuis son inscription, il savait exactement quelle question poser.
 
 *Comment survivre si personne n'est là pour me protéger ?*
+
+## Tome 1 — Chapitre 2 : Un monstre insignifiant
+
+— Une vingtaine !
+
+Le garçon qui venait de parler avait une tache de boue sur le nez et un sourire immense.
+
+— Au moins une vingtaine, je te dis. On aurait pu continuer, mais on n'avait plus de place pour le butin.
+
+Ses compagnons approuvèrent bruyamment. L'un d'eux posa sur la table une bourse dont le contenu produisit un tintement agréable.
+
+Zeki aurait aimé savoir ce que cela faisait, de revenir d'un donjon avec des gens à qui raconter ce qui venait de se passer.
+
+Il s'était levé tôt ce matin. Il avait même préparé une phrase pour demander s'il restait une place dans une équipe. Mais à voir les recrues déjà réunies autour des tables, il comprit qu'il arrivait une nouvelle fois après le moment où les choses importantes se décidaient.
+
+Il reconnut le garçon au manteau vert de la veille. L'archer avait une éraflure à la joue. Il en parlait comme d'une blessure de guerre.
+
+— Excuse-moi, dit Zeki.
+
+Le garçon se tourna vers lui.
+
+— Tiens ! Tu es parti où, toi ?
+
+— Nulle part, pour l'instant. Vous avez rencontré des Arbres-marcheurs ?
+
+— Plein.
+
+— Ils mettent longtemps à attaquer ?
+
+L'archer réfléchit.
+
+— Aucune idée. Notre guerrier les bloquait et on frappait tous en même temps.
+
+— Ah.
+
+— Pourquoi ?
+
+— Pour savoir.
+
+Zeki lui souhaita une bonne journée. Il rejoignit le comptoir, avec l'impression d'avoir obtenu une réponse et aucune information utile.
+
+L'employée le reconnut aussitôt.
+
+— Alors ?
+
+Il secoua la tête.
+
+Elle parcourut quelques fiches. Deux recrues étaient encore attendues, mais l'une devait rejoindre son frère et l'autre n'avait pas confirmé son inscription.
+
+— Je n'ai personne à te proposer pour le moment. Tu peux attendre encore un peu, si tu veux.
+
+Derrière lui, quelqu'un annonça qu'il avait atteint le niveau deux. Ses compagnons applaudirent.
+
+Zeki regarda son attestation.
+
+*Classe initiale : Indéterminée.*
+
+S'il revenait demain, les autres auraient probablement encore plus de choses à se raconter.
+
+— Je vais essayer seul.
+
+L'employée leva les yeux.
+
+— Tu te souviens de ce que je t'ai dit hier ?
+
+— Oui.
+
+— Très bien. Alors commence par la mission la plus simple. Et si tu as le moindre doute, tu ressors.
+
+Elle lui montra une fiche concernant les créatures des premières zones du donjon. Zeki en recopia les indications.
+
+Il n'avait pas renoncé à trouver une équipe. Il avait seulement décidé de ne plus attendre d'en avoir une pour devenir aventurier.
+
+***
+
+Les Archives de la Guilde occupaient une salle longue et étroite, dont les étagères semblaient avoir été ajoutées à mesure que l'établissement manquait de place.
+
+Un homme lisait près d'une fenêtre. Il portait des lunettes rondes, et deux piles de livres menaçaient de se rejoindre au-dessus de son bureau.
+
+— Maître Edrin ?
+
+— Ça dépend de ce que vous voulez.
+
+— Des renseignements sur les monstres du premier étage.
+
+L'homme désigna une étagère sans interrompre sa lecture.
+
+— Les bestiaires pour débutants. Deuxième rangée.
+
+Zeki revint quelques instants plus tard avec un ouvrage illustré.
+
+— Excusez-moi.
+
+Edrin tourna une page.
+
+— Oui ?
+
+— Ici, il est écrit que l'Arbre-marcheur est vulnérable au feu.
+
+— C'est exact.
+
+— Il se déplace vite ?
+
+— C'est un arbre.
+
+— Mais il marche.
+
+— Effectivement.
+
+— Il peut courir ?
+
+Cette fois, Edrin leva les yeux.
+
+— Non, à ma connaissance.
+
+Zeki nota la réponse.
+
+— Et quand il nous voit, est-ce qu'il avance directement vers nous ? Est-ce qu'il utilise ses deux branches en même temps ? Est-ce qu'il peut nous poursuivre en dehors de sa zone ?
+
+Edrin ferma son livre.
+
+— Combien de personnes composent ton équipe ?
+
+— Une.
+
+— Une ?
+
+— Moi.
+
+L'érudit retira ses lunettes, les essuya avec un morceau de tissu et les remit.
+
+— Bon. Assieds-toi.
+
+Il tira d'une pile un ouvrage moins joli que le bestiaire. Les pages étaient couvertes de notes et de dessins imparfaits.
+
+— Celui-ci contient des observations d'expéditions. Les premiers groupes ont mis du temps à comprendre certaines choses qui nous paraissent évidentes aujourd'hui.
+
+Il montra une esquisse de l'Arbre-marcheur. Le tronc se terminait par des racines mobiles. Deux branches formaient des bras irréguliers.
+
+— La créature est lente. Elle frappe avec ses branches. Elle supporte mal le feu, mais ne t'attends pas à ce qu'elle disparaisse dès que tu lui présentes une flamme.
+
+— Elle peut éteindre une torche ?
+
+— Elle peut surtout te l'arracher.
+
+Zeki ajouta une ligne à ses notes.
+
+Edrin le regarda faire.
+
+— Tu comptes vraiment entrer seul ?
+
+— Seulement dans les premières zones. Si je n'y arrive pas, je reviendrai.
+
+— C'est une excellente idée.
+
+Zeki releva la tête.
+
+— D'entrer ?
+
+— De revenir.
+
+Pour la première fois de la matinée, Zeki sourit.
+
+Ils passèrent à la créature suivante, le Squelette. Edrin lui expliqua qu'une lame n'avait pas la même efficacité contre des os que contre de la chair. Un choc suffisamment puissant pouvait en briser les articulations.
+
+Zeki pensa aux pierres. On n'avait pas besoin de les aiguiser. Et, contrairement aux armes qu'il avait vues dans le hall, il pouvait en trouver sans dépenser une fortune.
+
+Il dessina une petite fronde à côté du mot *Squelette*.
+
+— Tu as déjà utilisé ça ? demanda Edrin.
+
+— Un peu.
+
+— Sur quelque chose qui bouge ?
+
+— Non.
+
+— Note-le aussi.
+
+Quand Zeki quitta les Archives, il avait noirci quatre pages de son carnet. Il n'avait étudié sérieusement que deux espèces.
+
+Edrin le regarda ranger ses affaires.
+
+— Tu sais, les rapports ne disent pas tout.
+
+— Alors il faudra que je vérifie le reste.
+
+L'érudit eut l'air sur le point de lui répondre. Il se contenta finalement d'un signe de tête.
+
+***
+
+Le marchand tenait une boutique où l'on pouvait acheter aussi bien une lame qu'une paire de bottes.
+
+Il observa les articles que Zeki avait déposés sur son comptoir : deux torches, de la corde, une fronde et un petit bouclier d'occasion dont la surface portait déjà plusieurs marques.
+
+— Tu pars en expédition ou tu déménages ?
+
+— En expédition.
+
+— Et tu as une arme ?
+
+Zeki désigna sa petite épée.
+
+Le marchand haussa les épaules. Il lui présenta également une grenade magique, un objet destiné aux situations d'urgence. Son prix fit grimacer Zeki.
+
+— Celle-là coûte cher.
+
+— Beaucoup moins cher qu'une nouvelle jambe, répondit le vendeur.
+
+Zeki resta un moment silencieux devant la grenade.
+
+Il finit par la prendre.
+
+En sortant, il refit ses comptes. Il lui restait moins d'argent qu'il ne l'avait prévu. Il se promit de ne pas avoir besoin de la grenade.
+
+***
+
+L'entrée du donjon était plus banale qu'il ne l'avait imaginée.
+
+Un escalier s'enfonçait entre deux parois de pierre. Des aventuriers montaient et descendaient en discutant, comme s'il s'agissait de la porte d'un établissement ordinaire.
+
+Zeki descendit les marches une par une.
+
+Le bruit du dehors s'effaça. L'air devint plus frais. Des lueurs pâles couraient le long des murs, suffisamment espacées pour laisser des zones d'ombre.
+
+À l'intérieur, il découvrit un vaste passage traversé par des racines. Une équipe se tenait un peu plus loin. Son guerrier faisait face à une créature dont le corps ressemblait à un petit tronc monté sur des pattes.
+
+Zeki s'arrêta.
+
+L'Arbre-marcheur.
+
+Le guerrier bloqua une branche avec son bouclier. Ses compagnons frappèrent de part et d'autre. Le monstre s'effondra rapidement.
+
+— Au suivant !
+
+Le groupe s'éloigna.
+
+Zeki resta à la même place.
+
+Le bestiaire représentait la créature à côté d'une petite silhouette humaine. Il avait imaginé des branches d'une longueur raisonnable. Celles qu'il venait de voir dépassaient largement ses estimations.
+
+Il attendit que les voix de l'équipe disparaissent, puis s'avança jusqu'à distinguer un autre Arbre-marcheur.
+
+La créature tourna lentement son tronc dans sa direction.
+
+Zeki recula.
+
+Elle avança.
+
+Il recula encore, puis se déplaça sur le côté. Le monstre pivota avec une certaine maladresse. Il suivait chacun de ses mouvements, mais beaucoup moins vite qu'il ne l'aurait craint.
+
+*Bon. Lent.*
+
+Il alluma sa torche et approcha prudemment.
+
+Les branches se soulevèrent.
+
+Zeki tendit le bras.
+
+Une branche fendit l'air. Il se jeta en arrière et sentit quelque chose effleurer sa manche.
+
+Sa torche heurta le sol.
+
+Il la ramassa avant de reculer de nouveau, le cœur battant.
+
+Le monstre continuait à avancer.
+
+— Je suis encore trop près…
+
+Il changea de position. Au lieu de tendre la flamme vers le tronc, il attendit que la créature termine son mouvement. Une branche passa devant lui, puis l'autre.
+
+Il approcha la torche de l'extrémité de la première. Les feuilles se recroquevillèrent. Le monstre agita son bras végétal et recula.
+
+Zeki conserva ses distances, obligeant la créature à pivoter chaque fois qu'elle tentait de l'atteindre. Il n'était pas certain d'être en train de se battre. Il avait surtout l'impression de chercher sa place autour d'un feu de camp particulièrement mécontent.
+
+Une partie du feuillage s'embrasa. Les mouvements de l'Arbre-marcheur ralentirent. Zeki attendit encore avant de profiter d'une ouverture avec son épée.
+
+Le monstre s'effondra.
+
+Une inscription bleue apparut devant lui.
+
+**Arbre-marcheur vaincu.**
+
+**Expérience acquise.**
+
+Zeki regarda autour de lui, par réflexe, comme s'il attendait que quelqu'un lui confirme le résultat.
+
+Il n'y avait personne.
+
+Il sourit malgré tout.
+
+Sa main tremblait encore lorsqu'il ressortit son carnet.
+
+*Déplacement lent. Vulnérable au feu. Branches beaucoup plus longues que prévu.*
+
+Il hésita, puis ajouta :
+
+*Ne surtout pas se fier aux proportions du dessin du bestiaire.*
+
+## Tome 1 — Chapitre 3 : Le prix d'une victoire
+
+Il fallut un deuxième Arbre-marcheur pour que Zeki commence à croire que le premier n'avait pas été un accident.
+
+Et un troisième pour qu'il découvre qu'une torche n'était pas éternelle.
+
+Il nota également ce détail.
+
+À mesure qu'il progressait, il prenait de moins en moins de temps pour repérer la portée des branches. Il avait trouvé une manière de se déplacer qui lui permettait d'éviter la plupart des coups. Ses bottes, en revanche, étaient déjà couvertes de poussière et de terre.
+
+Il s'arrêta à une intersection où les racines cédaient la place à des dalles irrégulières.
+
+Un bruit sec résonna devant lui.
+
+Quelque chose venait de heurter une pierre.
+
+Zeki distingua une silhouette pâle. Elle portait les restes d'une armure et avançait d'un pas saccadé. Sous son casque fendu, deux orbites vides se tournèrent vers lui.
+
+Un Squelette.
+
+Il rangea son épée et sortit sa fronde.
+
+*Les os. Les articulations. Les chocs.*
+
+Le premier projectile frappa le mur.
+
+Le second rebondit contre le casque du monstre, qui ne sembla pas particulièrement contrarié.
+
+Le troisième ne partit pas du tout : Zeki, trop pressé, avait mal préparé son tir.
+
+Il recula en cherchant une autre pierre.
+
+Le Squelette avançait toujours.
+
+Ce qui le dérangeait le plus, c'était l'absence de réaction. Un animal aurait au moins sursauté en recevant un coup. Cette créature ne semblait pas savoir qu'il était censé lui faire mal.
+
+Zeki attendit qu'elle franchisse une dalle fendue. Il visa plus bas.
+
+Cette fois, la pierre atteignit un genou.
+
+Le Squelette trébucha. Une partie de sa jambe se désolidarisa du reste de son corps.
+
+— Ah !
+
+Zeki eut à peine le temps de se réjouir. Le monstre se redressa sur l'autre jambe et continua d'avancer, en s'appuyant sur son arme.
+
+— Mais arrête…
+
+Il fallut encore deux pierres et un coup porté avec sa petite épée pour mettre définitivement fin à la poursuite.
+
+L'inscription bleue apparut.
+
+**Squelette vaincu.**
+
+Zeki se pencha pour récupérer ce qui pouvait servir de preuve de son combat.
+
+Un cliquetis lui fit relever la tête.
+
+Deux silhouettes approchaient du passage de gauche. Une troisième sortit d'une cavité qu'il n'avait pas remarquée.
+
+Il serra sa fronde.
+
+*Un à la fois.*
+
+Il courut vers un couloir étroit. S'il parvenait à les faire entrer les uns derrière les autres, il pourrait employer sa méthode sans être entouré.
+
+Le premier Squelette s'engagea dans le passage. Le deuxième se heurta à son dos. Pendant quelques secondes, Zeki crut avoir trouvé une excellente solution.
+
+Puis il découvrit qu'un corps composé d'os pouvait se faufiler dans un espace étonnamment petit.
+
+Le deuxième monstre passa sur le côté du premier.
+
+Zeki leva son bouclier. Un coup résonna dans tout son bras. Il recula et sentit son talon buter contre une pierre.
+
+Il n'avait plus le temps de reprendre sa fronde.
+
+Sa main descendit vers la grenade magique suspendue à sa ceinture.
+
+Il pensa à son prix.
+
+Puis à sa jambe.
+
+***
+
+Lorsque le bruit de la déflagration s'éteignit, Zeki resta accroupi derrière l'angle du couloir, les oreilles bourdonnantes.
+
+Il finit par risquer un regard.
+
+Des os couvraient les dalles.
+
+Aucun ne bougeait.
+
+Les notifications bleues se succédèrent devant lui.
+
+Il s'assit.
+
+— Finalement, c'est plutôt efficace…
+
+Il aurait volontiers prolongé cette constatation, mais une douleur dans son bras lui rappela le coup reçu sur son bouclier.
+
+Il vérifia son équipement. La fronde était intacte. Le bouclier avait une marque supplémentaire. Sa dernière torche était entamée, et il ne disposait plus de son objet de secours.
+
+Il se souvint de la recommandation de l'employée.
+
+*Au moindre doute, tu ressors.*
+
+Cette fois, il ne discuta pas avec elle dans sa tête.
+
+Il rassembla son butin et reprit le chemin de la surface.
+
+***
+
+À la Guilde, l'employée eut l'air réellement surprise en le voyant.
+
+— Zeki ?
+
+— Oui.
+
+— Tu y es allé ?
+
+Il posa son sac sur le comptoir.
+
+— J'ai fait les premières zones.
+
+Elle observa ses vêtements poussiéreux, puis son bras.
+
+— Tu es blessé ?
+
+— Rien de grave. Je crois.
+
+— Fais vérifier ça si la douleur persiste.
+
+Elle examina ensuite les ressources qu'il avait rapportées. Zeki suivait ses gestes avec attention. Il essayait de ne pas sourire trop tôt.
+
+La somme qu'elle déposa devant lui était modeste, mais c'était le premier argent qu'il gagnait en tant qu'aventurier.
+
+Il la compta.
+
+Puis il la recompta.
+
+Il ressortit son carnet et relut les dépenses du matin.
+
+— C'est tout ?
+
+L'employée regarda les pièces.
+
+— Pour ce que tu as rapporté, oui. Tu pensais recevoir davantage ?
+
+— J'espérais au moins pouvoir racheter ma grenade.
+
+— Tu as utilisé une grenade ?
+
+— Oui.
+
+Elle comprit alors son expression.
+
+— Ah.
+
+Zeki aurait aimé qu'elle ajoute quelque chose. Par exemple qu'une prime spéciale était prévue pour les aventuriers qui revenaient sans avoir été tués.
+
+Elle n'ajouta rien.
+
+Il rangea ses pièces.
+
+Sa première mission était réussie. Son carnet prouvait également qu'en répétant cette réussite plusieurs fois, il finirait par ne plus avoir les moyens d'acheter une torche.
+
+***
+
+— Alors, cette première expédition ?
+
+Edrin se trouvait à la même table que le matin.
+
+— J'ai survécu.
+
+— Excellent.
+
+— J'ai éliminé les monstres.
+
+— Encore mieux.
+
+— Et j'ai perdu de l'argent.
+
+L'érudit leva les yeux.
+
+— Comment as-tu réussi cet exploit ?
+
+Zeki lui tendit son carnet.
+
+Edrin lut les notes sur les Arbres-marcheurs, s'arrêta sur les Squelettes et revint à la page des dépenses.
+
+— Une grenade. C'est presque toute ta récompense, à elle seule.
+
+— Je sais.
+
+— Tu avais besoin de l'utiliser ?
+
+Zeki lui expliqua comment les créatures avaient réussi à passer dans le couloir malgré l'espace réduit.
+
+— Je ne voyais pas d'autre solution.
+
+— Dans ce cas, c'était la bonne décision.
+
+Zeki releva la tête.
+
+— Mais elle m'a coûté trop cher.
+
+— Une décision peut être bonne pour ta survie et mauvaise pour ton portefeuille. Il va falloir apprendre à éviter de te retrouver dans cette situation.
+
+Edrin rapprocha le carnet du bord de la table.
+
+— Commençons par tes pierres. Tu n'as pas besoin de vaincre trois Squelettes en même temps si tu peux éviter qu'ils arrivent ensemble.
+
+Ils reprirent les observations de Zeki. Certaines informations du bestiaire étaient exactes. D'autres manquaient de précision. Une créature isolée était beaucoup plus abordable que plusieurs, mais encore fallait-il savoir à quelle distance ses semblables réagissaient.
+
+Zeki remarqua que l'érudit lui posait maintenant davantage de questions qu'il ne lui donnait de réponses.
+
+Ils parlèrent de la récupération du matériel, de la distance et des limites du terrain. Zeki n'avait pas besoin d'une arme plus chère pour chaque difficulté. Il avait besoin d'une méthode qu'il pouvait employer plusieurs fois.
+
+Lorsqu'Edrin lui demanda combien de pierres il avait récupérées, il dut admettre qu'il n'y avait pas pensé.
+
+— Elles étaient partout après le combat.
+
+— Voilà déjà une dépense que tu peux éviter.
+
+Zeki nota la remarque.
+
+Ce n'était pas grand-chose. Mais, pour quelqu'un dont l'avenir dépendait à présent de quelques pièces, les petites choses commençaient à prendre beaucoup d'importance.
+
+Edrin lui tendit ensuite le bestiaire.
+
+— Tu voulais aussi te renseigner sur la troisième espèce, non ?
+
+Zeki ouvrit l'ouvrage à la page du Lapin cornu.
+
+Le dessin représentait une créature au corps compact, aux pattes puissantes et à la corne démesurée. La description insistait sur sa vitesse et la violence de ses charges.
+
+Il relut la dernière phrase.
+
+Puis il regarda le dessin.
+
+Il venait de passer une journée entière à chercher des moyens de frapper des créatures sans qu'elles le frappent en retour.
+
+Une idée étrange lui traversa l'esprit.
+
+*Et si je n'avais pas besoin de le frapper ?*
+
+## Tome 1 — Chapitre 4 : Comment tuer un lapin sans le frapper ?
+
+Le lendemain, Zeki décida qu'il ne ferait aucune dépense qu'il pouvait raisonnablement éviter.
+
+Il emporta son équipement de la veille, récupéra quelques pierres et vérifia soigneusement la durée de combustion de sa torche restante. Son bras avait cessé de lui faire mal.
+
+Il hésita devant l'emplacement vide de sa grenade.
+
+Il n'avait pas les moyens d'en acheter une autre sans compromettre ses prochaines sorties. Il se fixa donc une limite : s'il rencontrait plusieurs créatures qu'il ne pouvait pas séparer, il ferait demi-tour.
+
+Cette fois, il ne comptait pas sur la chance pour le ramener à la Guilde.
+
+Les premiers Arbres-marcheurs lui demandèrent moins d'efforts que la veille. Il savait désormais reconnaître le début de leur mouvement. Il évitait surtout de gaspiller sa torche en essayant de les approcher trop tôt.
+
+Avec les Squelettes, il passa davantage de temps à observer les passages qu'à combattre. Il en attira un seul vers une zone dégagée, puis récupéra ses projectiles après l'affrontement.
+
+Ce n'était pas une méthode spectaculaire.
+
+Mais, quand il ressortit son carnet pour noter ses dépenses, il constata avec satisfaction qu'il n'avait encore rien à y écrire.
+
+***
+
+Le premier Lapin cornu se trouvait dans une cavité où des pierres affleuraient entre les dalles.
+
+Il était plus gros qu'un lapin ordinaire, certes. Sa corne n'inspirait pas confiance. Pourtant, Zeki éprouva un léger soulagement en le découvrant.
+
+Après les arbres vivants et les morts qui refusaient de rester morts, un animal muni de quatre pattes lui paraissait presque raisonnable.
+
+Le lapin tourna la tête.
+
+Zeki fit un pas de côté.
+
+La créature disparut de l'endroit où elle se trouvait.
+
+Il sentit un souffle près de son ventre et se retrouva assis par terre, sans avoir clairement compris comment il y était arrivé.
+
+Le lapin se trouvait maintenant plusieurs pas derrière lui.
+
+— D'accord.
+
+Zeki se remit debout et se réfugia derrière une saillie de roche.
+
+Il comprenait mieux pourquoi le bestiaire avait consacré autant de lignes à la vitesse.
+
+Le lapin se retourna. Ses pattes arrière se replièrent, puis le propulsèrent en avant.
+
+Zeki s'écarta derrière la pierre. La créature traversa l'espace qu'il venait de quitter.
+
+Il remarqua cependant quelque chose : sa charge avait suivi une trajectoire presque droite. Pour recommencer, le lapin devait se retourner, reprendre appui et se lancer à nouveau.
+
+Il sortit son carnet, avant de le ranger aussitôt.
+
+Prendre des notes et ne pas se faire embrocher s'avéraient difficiles à concilier.
+
+Il attendit derrière son abri. Au bout de quelques instants, le lapin s'éloigna suffisamment pour qu'il puisse changer de position.
+
+Zeki repéra un gros rocher à la surface fissurée.
+
+Son idée de la veille lui revint.
+
+Il suffisait que le lapin fonce dans la mauvaise direction.
+
+Il se plaça devant le rocher et agita les bras.
+
+— Hé !
+
+Le lapin tourna la tête.
+
+Zeki plia légèrement les genoux, prêt à sauter de côté.
+
+Les pattes arrière de la créature se replièrent.
+
+Il esquiva.
+
+Le lapin modifia sa position avant même de s'élancer, puis chargea exactement là où Zeki venait d'atterrir.
+
+— Trop tôt !
+
+Il roula derrière le rocher.
+
+Une deuxième tentative lui apprit que le plan n'était pas aussi simple qu'il l'avait imaginé. Il pouvait choisir l'endroit où il souhaitait se trouver, mais pas décider de l'instant où le lapin allait charger.
+
+Il aurait voulu qu'Edrin soit là pour lui dire que les rapports d'expédition ne mentionnaient pas ce genre de détail.
+
+Il aurait surtout voulu qu'Edrin soit là avec un très grand bouclier.
+
+Zeki détacha le sien.
+
+Il se plaça de nouveau devant le rocher, cette fois légèrement décalé. Il tenait le bouclier près du corps. Si son esquive échouait encore, il espérait au moins ne pas recevoir la corne directement.
+
+La créature s'immobilisa.
+
+Zeki vit les pattes se contracter.
+
+*Maintenant ?*
+
+Il attendit une fraction de seconde supplémentaire.
+
+*Mauvaise idée.*
+
+Le choc fut brutal.
+
+Zeki avait commencé à tourner et le bord de son bouclier reçut la corne de biais. La créature glissa contre la surface, arrachant le bouclier à ses mains.
+
+Lui-même fut projeté au sol.
+
+Il entendit un craquement, puis un bruit de pierre.
+
+Il attendit.
+
+Rien ne le poursuivait.
+
+Lorsqu'il releva la tête, le lapin se débattait contre le rocher. Sa corne s'était enfoncée dans une fissure. Les pattes arrière grattaient les dalles sans parvenir à le dégager.
+
+Zeki se redressa avec précaution.
+
+Il regarda son bouclier, puis le lapin.
+
+— C'était presque ce que j'avais prévu…
+
+La créature finit par s'immobiliser. Zeki s'approcha seulement lorsqu'il fut certain de pouvoir le faire sans se faire atteindre. Il acheva le combat d'un geste hésitant avec sa petite épée.
+
+Une inscription bleue confirma la victoire.
+
+Puis une seconde notification apparut.
+
+**Nouvelle compétence passive acquise.**
+
+**Dégâts infligés en solitaire : +5 %.**
+
+Zeki cligna des yeux.
+
+Il relut attentivement les quelques mots.
+
+— Même le système a remarqué que je n'avais pas d'amis…
+
+Il ne savait pas s'il devait s'en réjouir.
+
+C'était la première fois que son absence de compagnons lui procurait un quelconque avantage. Et cinq pour cent, même s'il ignorait encore exactement ce que cela représentait sur un combat, valait mieux que rien.
+
+Il toucha son bras endolori.
+
+Peut-être que le système ne considérait pas sa façon de combattre comme une erreur.
+
+Cette pensée lui plut davantage qu'il ne l'aurait cru.
+
+***
+
+Zeki ne chercha pas immédiatement un autre lapin.
+
+Il examina le rocher, récupéra son bouclier et s'installa quelques instants dans un endroit sûr pour noter ce qui venait de se produire.
+
+*Attaque très rapide. Direction difficile à modifier après le départ.*
+
+Il ajouta :
+
+*Ne pas attendre que la corne soit à portée pour commencer à bouger.*
+
+Il dessina trois petits croquis. Sur le premier, le lapin manquait le rocher. Sur le deuxième, il touchait Zeki de plein fouet. Le troisième représentait la position légèrement décalée qui avait sauvé son bras, au moins en partie.
+
+Il ne voulait surtout pas que sa prochaine victoire dépende d'un choc identique.
+
+En observant les cavités voisines, il repéra d'autres obstacles. Il passa un long moment à vérifier les trajectoires et les distances, à se mettre à l'abri dès qu'il n'était plus sûr de lui.
+
+Lorsqu'il trouva un deuxième Lapin cornu, il utilisa une paroi comme protection plutôt que son bouclier. La première charge manqua la pierre. La suivante aussi. À la troisième, la créature heurta l'obstacle et resta étourdie suffisamment longtemps pour qu'il termine le combat sans être touché.
+
+Zeki eut un petit sourire.
+
+Il avait encore beaucoup à apprendre.
+
+Mais cette fois, il n'avait pas dû acheter le rocher.
+
+***
+
+À la Guilde, l'employée compta les ressources qu'il avait rapportées.
+
+Zeki sortit aussitôt son carnet.
+
+Il déduisit l'usure de sa torche, le coût de remplacement du matériel et les dépenses qu'il avait prévues. Il n'était pas certain de ses estimations, mais même en étant prudent, il lui restait quelques pièces.
+
+Un bénéfice.
+
+Il les regarda longtemps.
+
+— Tout va bien ? demanda l'employée.
+
+— Oui.
+
+Il referma sa main.
+
+— Très bien, même.
+
+***
+
+Edrin avait changé de livre.
+
+— Alors ?
+
+Zeki posa son carnet sur la table.
+
+— J'ai gagné de l'argent.
+
+— Félicitations. C'est généralement le but de cette profession.
+
+— Et j'ai reçu une compétence.
+
+Cette annonce intéressa davantage l'érudit. Zeki lui expliqua le bonus obtenu après ses expéditions solitaires.
+
+— Il semble que le système tienne compte de la manière dont tu progresses, observa Edrin. Il faudra voir ce qu'il te propose si tu continues.
+
+Zeki n'avait pas pensé à cette possibilité lors de son inscription. Il avait surtout retenu que le système ne lui avait trouvé aucune classe.
+
+Il n'avait toujours pas de classe définie. Pourtant, quelque chose commençait à prendre forme.
+
+Edrin tourna une page du carnet.
+
+— Revenons à tes lapins. Tu les as vaincus avec ton épée ?
+
+— Seulement pour terminer le combat.
+
+— Ta fronde ?
+
+— Non.
+
+— Avec quoi, alors ?
+
+Zeki lui montra son croquis.
+
+— Un rocher.
+
+L'érudit examina le dessin. Il le tourna légèrement, puis regarda Zeki.
+
+Il prit une feuille vierge et trempa sa plume dans l'encrier.
+
+— Il va falloir que je commence à prendre des notes, moi aussi.
+
+Zeki tira sa chaise un peu plus près du bureau.
+
+Pour la première fois depuis son inscription, quelqu'un lui demandait de raconter son expédition en entier.
