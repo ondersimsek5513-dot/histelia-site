@@ -523,7 +523,7 @@ Zeki lui souhaita une bonne journée, avec l'impression d'avoir obtenu une répo
 
 À la table voisine, il reconnut les quatre recrues qu'il avait vues se réunir la veille.
 
-Le garçon à la cape rouge examinait les résultats de leur première sortie. Son bouclier, posé près du gardien, portait une rayure toute fraîche. La mage et le soigneur discutaient déjà des créatures qu'ils comptaient affronter ensuite.
+Le garçon à la cape rouge examinait les résultats de leur première sortie. Le bouclier du gardien, posé près de lui, portait une rayure toute fraîche. La mage et le soigneur discutaient déjà des créatures qu'ils comptaient affronter ensuite.
 
 — Demain, on dépasse les premières zones, déclara le chef.
 
@@ -1217,6 +1217,14 @@ Il avait encore beaucoup à apprendre.
 
 Mais cette fois, il n'avait pas dû acheter le rocher.
 
+Une nouvelle inscription bleue apparut.
+
+**Nouvelle classe débloquée : Chasseur débutant.**
+
+Zeki resta un instant sans bouger. Lui qui n'avait reçu aucune spécialisation le jour de son inscription venait enfin d'acquérir une classe.
+
+Il sourit en regardant les traces laissées par les deux lapins.
+
 ***
 
 À la Guilde, l'employée compta les ressources qu'il avait rapportées.
@@ -1566,6 +1574,14 @@ Il ajouta une estimation du coût de la réparation.
 Puis il leva les yeux vers les trois tas d'ossements.
 
 Pour la première fois, une rencontre avec plusieurs Squelettes venait de lui rapporter de l'argent au lieu de lui en faire perdre.
+
+Un peu plus tard, il réussit de nouveau à retenir un Squelette avec son filet pendant qu'il en affrontait un autre.
+
+**Nouvelle classe débloquée : Trappeur débutant.**
+
+Zeki consulta ses informations. Sa classe de Chasseur débutant était toujours présente. Il n'avait donc pas remplacé la première par la seconde.
+
+Il se demanda combien de métiers le système pouvait bien lui reconnaître.
 
 ***
 
@@ -2026,6 +2042,12 @@ Il dut ressortir pour le faire passer séparément.
 Lorsqu'il se redressa enfin, il se trouvait dans une salle aux murs réguliers. De petits cristaux éclairaient les dalles. À l'autre extrémité, une porte donnait sur une galerie qu'il n'avait jamais visitée.
 
 Au centre se trouvait un coffre.
+
+Une inscription bleue se superposa un instant à la salle.
+
+**Nouvelle classe débloquée : Saboteur débutant.**
+
+Zeki songea au piège à flèches, puis au trou derrière lui. Le nom lui parut plutôt bien choisi.
 
 Zeki resta immobile.
 
@@ -2608,6 +2630,16 @@ Edrin avait déjà sorti une feuille pour y recopier les événements. Il ajouta
 — Moi aussi.
 
 L'érudit releva la tête.
+
+Zeki lui mentionna également ses trois classes débutantes.
+
+— Chasseur, Trappeur et Saboteur ? répéta Edrin. Tu ne cherches donc pas à te spécialiser dans une seule discipline ?
+
+— Je cherche surtout à résoudre les problèmes que je rencontre.
+
+L'érudit nota les trois noms sur sa feuille.
+
+— Continue de me signaler les prochaines.
 
 — Et l'épée, alors ?
 
