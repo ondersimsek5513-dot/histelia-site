@@ -4450,3 +4450,725 @@ Il regarda son mannequin, assis contre le mur.
 Il hésita.
 
 — Enfin… pas trop.
+
+## Tome 1 — Chapitre 11 : Le poids de la réussite
+
+— Ne bouge plus.
+
+Zeki s'immobilisa.
+
+Mira, accroupie derrière lui, lui fit signe de reculer. Il obéit. Un Loup des cavernes passa devant la galerie où ils se trouvaient sans tourner la tête.
+
+Il attendit que la créature ait disparu.
+
+— Tu l'avais entendu ?
+
+— Depuis un moment.
+
+— Moi, non.
+
+— Parce que tu as quelque chose qui tinte dans ton sac depuis qu'on est partis.
+
+Zeki fouilla ses affaires et en sortit le grelot enchanté.
+
+Mira contempla l'objet.
+
+— Tu te promènes avec une cloche ?
+
+— C'est pour retrouver mon chemin dans la brume.
+
+Elle tendit la main.
+
+— Fais voir.
+
+Elle l'examina, puis le lui rendit.
+
+— D'accord. C'est utile. Mais il serait encore plus utile s'il ne sonnait que lorsque tu en as besoin.
+
+Zeki nota la remarque.
+
+Depuis qu'ils combattaient ensemble, il avait pris l'habitude de recevoir des conseils à des moments où, auparavant, il aurait seulement entendu sa propre respiration.
+
+Certains étaient particulièrement précieux.
+
+D'autres étaient parfois vexants.
+
+Celui-ci appartenait aux deux catégories.
+
+Lina les rejoignit en silence. Elle avait repéré plusieurs loups dans la galerie suivante, dont un qui se tenait légèrement en retrait.
+
+Zeki examina sa carte.
+
+— Il y a un renfoncement plus loin. Tu devrais pouvoir y rester sans avoir les monstres juste devant toi.
+
+Lina lui demanda de lui montrer l'endroit avant qu'ils engagent le combat.
+
+Il acquiesça.
+
+Elle appréciait ce détail chez lui. Il ne lui demandait jamais de tirer avant de lui avoir laissé le temps d'examiner la situation.
+
+Dans son équipe habituelle, elle avait souvent dû abandonner une position soigneusement choisie parce que quelqu'un s'était précipité sur un adversaire.
+
+Avec Zeki, le temps de préparation semblait faire partie intégrante du combat.
+
+Parfois même un peu trop.
+
+— On peut y aller ? demanda Mira.
+
+Zeki regardait encore son carnet.
+
+— Une seconde.
+
+L'assassine s'adossa au mur.
+
+— Il va falloir que tu m'apprennes à apprécier l'attente.
+
+***
+
+La meute ne se comporta pas comme ils l'avaient prévu.
+
+Deux animaux s'éloignèrent de leurs semblables, tandis que le troisième demeurait près d'un amas rocheux.
+
+Lina observa la nouvelle disposition.
+
+— Je ne vois plus celui du fond.
+
+Zeki réfléchit.
+
+Il fit apparaître son double. L'un des loups se détourna vers lui, mais le second ne réagit pas.
+
+Mira, qui s'était écartée pour observer les créatures, revint auprès d'eux.
+
+— Ils savent que ton illusion n'est pas réelle.
+
+— Certains le comprennent très vite, oui.
+
+— Alors pourquoi tu continues à l'utiliser ?
+
+Zeki désigna l'animal qui avait hésité.
+
+— Parce que pendant un instant, celui-là a arrêté de nous surveiller.
+
+Mira regarda le loup.
+
+Elle n'avait pas envisagé les choses sous cet angle.
+
+Elle-même n'attendait pas nécessairement que tous ses adversaires lui tournent le dos. Une hésitation, un regard détourné ou un mouvement imprévu pouvaient suffire à lui offrir une occasion.
+
+Le garçon ne cherchait pas à tromper parfaitement une créature.
+
+Il cherchait à obtenir juste assez de temps.
+
+L'affrontement qui suivit leur demanda encore plusieurs efforts. Zeki utilisa son lance-filet pour ralentir un loup qui menaçait la position de Lina. L'archère profita de l'interruption pour achever la créature qu'elle avait déjà atteinte.
+
+Mira s'occupa d'un autre animal, tandis que Zeki maintenait le dernier à distance.
+
+Lorsqu'ils eurent terminé, Lina examina les environs.
+
+— On n'a même pas eu besoin de changer de position.
+
+Zeki hocha la tête et commença à récupérer son matériel.
+
+Lina, elle, resta encore un instant dans le renfoncement.
+
+Elle avait toujours cru qu'elle avait besoin de devenir plus rapide pour être utile à une équipe.
+
+Pour la première fois, elle venait de combattre avec quelqu'un qui avait volontairement organisé les choses pour lui permettre d'être patiente.
+
+***
+
+Le lendemain, Zeki leur apporta quelques préparations alchimiques.
+
+Il avait confectionné de modestes remèdes supplémentaires et demandé à l'alchimiste de vérifier leur qualité. Il proposa également à Lina quelques projectiles portant un enchantement de ralentissement.
+
+— Tu les as achetés ? demanda-t-elle.
+
+— Non. Je les ai préparés.
+
+Elle regarda les flèches, puis les fioles.
+
+— Tout ça ?
+
+— Ce ne sont pas des produits de grande qualité.
+
+— Je n'ai pas dit que ça en était.
+
+Elle prit l'une des fioles et lut l'étiquette.
+
+Zeki avait indiqué la nature de l'effet, ainsi que les limites qu'il connaissait. Il lui expliqua que les résultats pouvaient varier selon les monstres.
+
+Lina le remercia et rangea les préparations à part de ses autres affaires.
+
+Mira, quant à elle, s'intéressa à la petite bombe de brume enchantée qu'il lui montra. Elle utilisait parfois des objets semblables, mais n'avait jamais essayé d'en confectionner.
+
+— Tu sais faire ça aussi ?
+
+— Un peu.
+
+— Et qu'est-ce que tu ne sais pas faire ?
+
+Zeki réfléchit sérieusement.
+
+— Beaucoup de choses.
+
+Mira attendit une suite.
+
+Il commença à lui parler des enchantements qu'il ne comprenait pas, des propriétés de certains matériaux, de ses difficultés à viser correctement et de son incapacité à reproduire certains produits du marchand.
+
+Elle finit par l'interrompre.
+
+— C'était une question comme ça.
+
+— Ah.
+
+Elle sourit.
+
+Puis elle lui proposa de l'accompagner lorsqu'il retournerait chez l'alchimiste. Elle aimerait apprendre à mieux choisir ses propres consommables.
+
+Zeki accepta volontiers.
+
+***
+
+Les trois aventuriers consacrèrent une partie d'une expédition aux premières galeries.
+
+Le marchand avait demandé plusieurs ressources d'Arbres-marcheurs, ainsi que quelques fragments d'os de bonne qualité. Lina et Mira avaient accepté de participer à la récupération, à condition que leur part soit comptabilisée comme celle de n'importe quel autre butin.
+
+Zeki n'y voyait aucun inconvénient.
+
+Il leur montra les endroits où il trouvait généralement ce dont il avait besoin. Les deux aventurières découvrirent rapidement qu'il connaissait certaines portions du donjon avec une précision inhabituelle.
+
+Il savait où les galeries devenaient étroites, où un groupe de Squelettes risquait de les surprendre et à quels endroits les Lapins cornus se montraient particulièrement difficiles à éviter.
+
+Lorsqu'ils rencontrèrent l'un de ces lapins, Zeki demanda aux deux femmes d'attendre.
+
+— Je peux le toucher d'ici, dit Lina.
+
+— Je sais. Mais regarde.
+
+Elles le virent provoquer une charge, s'écarter au dernier moment et laisser le monstre heurter un obstacle naturel.
+
+Le reste du combat ne dura guère.
+
+Mira regarda le lapin, puis la paroi.
+
+— Tu fais ça depuis combien de temps ?
+
+— Depuis que je n'avais pas les moyens de racheter des grenades.
+
+Elle se mit à rire.
+
+Lina observa les traces laissées sur la roche.
+
+— C'est pour ça que tu connais aussi bien les endroits où ils vivent ?
+
+Zeki acquiesça.
+
+Il leur raconta brièvement ses premières expéditions. Ses difficultés avec les Squelettes, ses dépenses, les observations d'Edrin et les essais qui lui avaient permis de commencer à gagner de l'argent.
+
+Mira l'écouta sans plaisanter cette fois.
+
+Elle aussi connaissait la sensation d'être considérée comme peu utile parce qu'elle ne combattait pas de la manière attendue.
+
+Mais elle avait toujours eu quelqu'un avec qui partager les risques.
+
+Zeki avait appris tout cela alors qu'il n'avait personne.
+
+***
+
+Le forgeron avait demandé à Zeki de lui rapporter ses premières impressions sur le grappin.
+
+Le problème était que le garçon ne l'avait encore jamais utilisé ailleurs que dans l'atelier.
+
+Il décida de consacrer une matinée à cet apprentissage, avec l'accord de Lina et Mira. L'artisan lui avait recommandé de commencer par des essais modestes et de ne pas faire confiance à un support dont il ignorait la solidité.
+
+Dans une galerie tranquille, le trio repéra une corniche peu élevée.
+
+Lina examina la roche.
+
+— Elle a l'air suffisamment large.
+
+Mira entreprit de reconnaître un accès naturel depuis un passage voisin. Zeki, de son côté, essaya le grappin.
+
+La première fois, l'enchantement ne parvint pas à établir une prise durable sur la pierre.
+
+La seconde fois, il trouva un support convenable. Il put rejoindre la corniche avec difficulté, puis constater que descendre lui demandait autant d'attention que monter.
+
+Mira l'attendait déjà en haut.
+
+— Tu as mis du temps.
+
+— Tu es passée par où ?
+
+Elle désigna une pente dissimulée derrière un rocher.
+
+Zeki regarda le grappin.
+
+— Bon.
+
+Lina éclata de rire depuis le bas.
+
+Ils ne renoncèrent pas pour autant à l'expérience.
+
+Plus loin, ils découvrirent une autre hauteur qui ne disposait d'aucun accès naturel évident. Le nouvel accessoire permit à Zeki d'y parvenir. Il observa le terrain, puis aida ses compagnons à reconnaître les possibilités de la galerie depuis cette position.
+
+Lina s'intéressa immédiatement à la vue qu'elle aurait de là-haut.
+
+Mira, elle, remarqua qu'une partie du passage échappait complètement au regard des créatures qui circulaient au-dessous.
+
+Zeki contempla l'ensemble.
+
+Le donjon lui avait toujours paru composé d'une succession de chemins, d'obstacles et de monstres.
+
+Il découvrait maintenant un autre espace, au-dessus de celui qu'il avait l'habitude d'explorer.
+
+C'était comme si une partie de sa carte avait toujours été vide.
+
+***
+
+Quelques jours après, le forgeron lui présenta de nouveau la mine explosive magique.
+
+Il avait terminé une première série de vérifications sur l'artefact. Il lui fit une démonstration dans un espace de son atelier réservé aux essais d'enchantements.
+
+Une brève lueur apparut autour de l'objet. Puis une impulsion magique se fit entendre, assez puissante pour déplacer plusieurs cibles inertes.
+
+Le symbole lumineux s'éteignit.
+
+— Voilà, dit l'artisan. Une fois son énergie dissipée, elle est inutilisable tant qu'elle n'a pas été remise en état.
+
+Zeki observa la plaque.
+
+— Combien ça coûte ?
+
+Le forgeron lui annonça le prix.
+
+Zeki grimaça.
+
+— Ah.
+
+— Je me doutais que tu allais faire cette tête.
+
+L'artisan lui proposa un exemplaire d'essai, après lui avoir expliqué les précautions nécessaires pour éviter d'exposer ses compagnons à son effet.
+
+Zeki accepta de lui rapporter l'objet après usage et de noter ce qu'il aurait observé.
+
+Ils examinèrent aussi le grappin. Le forgeron fut particulièrement intéressé par les difficultés que Zeki avait rencontrées sur certaines surfaces.
+
+— Et en hauteur, qu'est-ce que tu as trouvé ?
+
+— Des endroits où on n'aurait pas pensé à aller.
+
+L'artisan sourit.
+
+— C'est déjà quelque chose.
+
+Au moment de partir, Zeki lui montra quelques fibres et fragments de carapace qu'il avait conservés sur les conseils du marchand.
+
+Le forgeron en sélectionna une partie pour de futurs travaux.
+
+Il demanda au garçon de lui en rapporter d'autres de qualité comparable lorsqu'il en aurait l'occasion.
+
+Zeki inscrivit cette demande à côté de celles du marchand.
+
+Il commençait à comprendre qu'une même expédition pouvait satisfaire beaucoup de besoins différents.
+
+***
+
+Ils n'utilisèrent la mine magique qu'une seule fois durant leur série de contrats contre les loups.
+
+Une meute plus nombreuse que les précédentes les avait contraints à interrompre leur progression. Zeki avait envisagé plusieurs solutions, mais aucune ne lui semblait permettre au groupe de retrouver une situation favorable sans courir davantage de risques.
+
+L'artefact du forgeron leur offrit un répit.
+
+Une impulsion lumineuse traversa la galerie. Les loups, surpris par la décharge, interrompirent leur mouvement. Certains reculèrent, d'autres se dispersèrent.
+
+Lina et Mira purent regagner des positions plus sûres.
+
+Les trois aventuriers quittèrent ensuite les lieux ensemble.
+
+Ils n'avaient pas vaincu toute la meute.
+
+Pour Zeki, cela n'enlevait rien à l'utilité de l'objet.
+
+Au retour, il nota ses impressions : l'effet n'avait pas été identique sur toutes les créatures ; la surprise leur avait été plus utile que la puissance de la décharge ; le coût d'un nouvel exemplaire lui interdisait d'en faire un consommable ordinaire.
+
+Il remit la plaque désormais éteinte au forgeron, qui l'examina avec intérêt.
+
+— Alors, tu en veux d'autres ?
+
+— Pas tout de suite.
+
+— Trop cher ?
+
+— Pour l'instant, oui.
+
+L'artisan ne parut pas déçu.
+
+— C'est bien ce que je voulais savoir. Si je fabrique un objet que personne ne peut se permettre d'utiliser, ça ne me sert pas à grand-chose.
+
+***
+
+Mira eut l'occasion de voir le déguisement de Zeki pour la première fois peu après.
+
+Lorsqu'il déposa la carapace devant elle, elle crut qu'il se préparait à affronter les tortues avec une nouvelle protection.
+
+Il lui expliqua son véritable usage.
+
+— Non.
+
+— Si.
+
+— Tu es sérieux ?
+
+Zeki acquiesça.
+
+Mira s'accroupit devant la carapace et en fit le tour.
+
+— Il faut vraiment que je voie ça.
+
+Ils organisèrent une courte reconnaissance. Lina demeura à proximité de la zone qu'ils connaissaient, tandis que Mira observa Zeki depuis un endroit discret.
+
+Elle le vit avancer avec une lenteur presque ridicule.
+
+Une tortue s'arrêta devant lui.
+
+Il ne bougea pas.
+
+La créature examina sa silhouette, puis poursuivit sa route.
+
+Mira cessa de sourire.
+
+Une autre tortue passa à proximité de Zeki sans manifester la moindre hostilité.
+
+Il continua sa progression, s'arrêta pour observer une galerie et revint après un moment.
+
+Lorsqu'il eut retiré sa carapace, Mira s'approcha.
+
+— Tu as traversé tout ça sans te faire attaquer.
+
+— Cette fois, oui. Ça ne fonctionne pas toujours.
+
+Elle regarda les monstres.
+
+Sa classe lui permettait de dissimuler sa présence. Elle s'était entraînée longtemps pour passer inaperçue, pour reconnaître les endroits où elle pouvait se déplacer et ceux où elle risquait d'être repérée.
+
+Zeki, lui, avait trouvé une solution qui ne consistait pas à disparaître.
+
+Il était resté en pleine vue.
+
+— C'est complètement idiot, murmura-t-elle.
+
+Zeki baissa les yeux.
+
+— Je sais que ça a l'air…
+
+— Non. Attends. C'est complètement idiot, et ça marche.
+
+Elle leva de nouveau les yeux vers les tortues.
+
+— Je n'aurais jamais pensé à faire ça.
+
+Zeki releva la tête.
+
+Mira lui demanda de lui expliquer exactement ce qu'il avait remarqué chez ces créatures avant de concevoir le costume.
+
+Il le fit.
+
+Ils passèrent un moment à comparer leurs expériences.
+
+Puis, en rentrant vers Lina, Mira lui montra quelques défauts dans sa manière de se déplacer sans déguisement. Zeki essaya de tenir compte de ses remarques au cours de ses sorties suivantes.
+
+Après plusieurs reconnaissances réussies, une nouvelle inscription apparut.
+
+**Nouvelle classe débloquée : Infiltrateur débutant.**
+
+Il la montra à Mira.
+
+— Six, maintenant.
+
+Elle regarda la notification qu'il venait de lui lire, puis secoua la tête.
+
+— Tu vas finir par avoir besoin d'un carnet rien que pour tes classes.
+
+***
+
+À la Guilde, les quatre aventuriers à la cape rouge et au bouclier rond reparurent alors que le trio terminait de remettre ses trophées.
+
+Le chef avait l'air satisfait. Son équipe venait d'accomplir un contrat dans une zone plus profonde, et plusieurs recrues se pressaient autour d'eux pour leur demander des renseignements.
+
+Le gardien aperçut Zeki.
+
+— Tiens ! Tu as enfin trouvé de vrais compagnons ?
+
+Zeki ne sut pas immédiatement quoi répondre.
+
+Mira regarda le gardien.
+
+— Ça te pose un problème ?
+
+— Pas du tout. Je me demandais juste qui voudrait travailler avec lui.
+
+La mage eut un petit sourire.
+
+— Vous allez encore chercher des lapins ?
+
+Lina replia la fiche du contrat qu'elle tenait.
+
+— Des loups, aujourd'hui.
+
+Le soigneur regarda les ressources déjà déposées sur le comptoir.
+
+— Vous avez terminé ce contrat à trois ?
+
+— Oui, répondit Lina.
+
+Le chef haussa les épaules.
+
+— Tant mieux pour vous.
+
+Il entraîna ses compagnons vers le tableau des missions.
+
+Zeki resta silencieux.
+
+Il avait imaginé plusieurs fois ce qu'il ressentirait si les quatre aventuriers apprenaient qu'il était capable d'accomplir de véritables contrats.
+
+Cette fois, il s'aperçut qu'il avait surtout envie de finir ses comptes.
+
+Lina le rejoignit devant le registre.
+
+— Tu les connais ?
+
+— Depuis mon inscription.
+
+Elle regarda les quatre silhouettes qui s'éloignaient.
+
+— Ils ne doivent pas te connaître très bien, alors.
+
+***
+
+Un peu plus tard, tandis que Zeki discutait avec le marchand des ressources à conserver, Lina et Mira l'attendirent devant la boutique.
+
+Mira regarda les objets exposés dans la vitrine.
+
+— Tu as remarqué quelque chose ?
+
+— Quoi ?
+
+— Quand on lui demande comment il a appris à faire un truc, il nous raconte toujours qu'il avait un problème.
+
+Lina réfléchit.
+
+— C'est vrai.
+
+— Il avait besoin d'argent. Il avait besoin de fuir. Il ne savait pas comment battre une tortue. Il ne pouvait pas porter ses affaires.
+
+Elle désigna Zeki, qui expliquait au marchand quelque chose en s'appuyant sur son carnet.
+
+— Il ne parle jamais de devenir plus fort.
+
+Lina sourit légèrement.
+
+— Pourtant, il l'est devenu.
+
+Mira ne répondit pas tout de suite.
+
+Elle songea aux six classes débutantes, au mannequin, aux préparations, aux informations qu'il recueillait et à la façon dont il organisait ses combats.
+
+Pris séparément, aucun de ces éléments ne faisait de lui un aventurier exceptionnel.
+
+Elle avait vu des alchimistes plus compétents, de meilleurs tireurs et des combattants capables de vaincre beaucoup plus rapidement les monstres qu'ils affrontaient.
+
+Mais elle n'avait jamais rencontré quelqu'un qui savait relier autant de choses entre elles.
+
+— J'aimerais bien savoir ce qu'il fera dans quelques mois, finit-elle par dire.
+
+— Moi aussi.
+
+Zeki sortit de la boutique.
+
+— Vous m'attendez depuis longtemps ?
+
+— Non, répondit Lina.
+
+Mira lui fit signe d'avancer.
+
+— On parlait de tes tortues.
+
+— Ah. Vous voulez essayer la carapace ?
+
+Les deux aventurières échangèrent un regard.
+
+— Pas aujourd'hui.
+
+***
+
+Les jours passèrent.
+
+Zeki alterna les contrats communs et les sorties solitaires. Il n'avait pas abandonné ses expériences personnelles. Lorsqu'il se retrouvait seul, il pouvait passer autant de temps qu'il le souhaitait à observer une créature ou à vérifier une idée.
+
+Les cinq premiers territoires lui devenaient familiers.
+
+Il n'y était pas invulnérable. Un manque d'attention, une meute plus importante que prévu ou une mauvaise estimation des réactions d'un monstre pouvaient encore le mettre en difficulté.
+
+Mais il savait désormais comment adapter sa méthode et, surtout, quand il valait mieux renoncer.
+
+Ses dépenses diminuèrent.
+
+Les commandes du marchand lui apportèrent quelques gains supplémentaires. Certaines ressources qu'il aurait vendues autrefois lui évitèrent de nouveaux achats.
+
+Un soir, il étala toutes ses pièces sur une table.
+
+Il recommença son calcul.
+
+Puis il le vérifia encore une fois.
+
+Il lui restait suffisamment d'argent pour ses dépenses courantes, même après avoir réalisé l'achat qu'il préparait depuis plusieurs semaines.
+
+Il referma son carnet.
+
+Le lendemain matin, il fut le premier client du marchand.
+
+— Tu es bien matinal.
+
+Zeki posa sa bourse sur le comptoir.
+
+— Le sac magique.
+
+Le marchand s'immobilisa.
+
+— Tu as réussi ?
+
+Zeki hocha la tête.
+
+L'homme alla chercher la sacoche qu'il lui avait montrée lors de sa visite précédente. Il lui présenta de nouveau son fonctionnement et ses limites. Elle pouvait contenir bien davantage qu'un sac ordinaire, mais sa capacité n'était pas infinie. Il ne fallait pas y entreposer n'importe quoi, notamment des créatures vivantes ou des objets dont l'enchantement était incompatible avec le sien.
+
+Zeki écouta attentivement.
+
+Puis il paya.
+
+Le marchand lui remit la sacoche.
+
+Pendant un instant, le garçon se contenta de la tenir.
+
+Il revoyait sa première expédition, sa bourse presque vide et cette grenade qu'il n'avait pas eu les moyens de remplacer.
+
+Il pensa à la grande épée.
+
+À la pioche.
+
+Aux potions ratées.
+
+Aux centaines de petites décisions qu'il avait prises pour en arriver là.
+
+Il commença à transférer ses affaires.
+
+Une corde disparut dans le sac.
+
+Puis un filet.
+
+Le marchand le regarda faire.
+
+L'arbalète, le mannequin démonté, plusieurs fioles, le grappin et d'autres accessoires suivirent.
+
+— Tu transportais vraiment tout ça ?
+
+— Pas en même temps, généralement.
+
+Zeki sortit encore un petit paquet de matériel.
+
+Le marchand secoua la tête.
+
+— Je comprends mieux pourquoi tu en voulais un.
+
+Il lui donna une pochette de rangement supplémentaire pour les petits accessoires, sans la lui facturer.
+
+— Considère ça comme un remerciement pour les clients que tu m'as amenés.
+
+Zeki le remercia.
+
+Lorsqu'il ressortit, son ancien sac était presque vide.
+
+Il fit quelques pas.
+
+Puis quelques autres.
+
+Il se sentait étrangement léger.
+
+***
+
+Sa première expédition avec le sac magique fut consacrée à une reconnaissance des hauteurs.
+
+Lina et Mira l'accompagnèrent jusqu'à une galerie qu'ils avaient déjà visitée. Le grappin lui permit d'atteindre une corniche sur laquelle il avait auparavant hésité à s'aventurer.
+
+Il y découvrit un relief à moitié dissimulé par la poussière.
+
+Un symbole était gravé dans la pierre.
+
+Il lui sembla familier.
+
+Zeki ressortit son carnet et chercha ses notes sur le piège à flèches.
+
+Les deux dessins ne se ressemblaient pas parfaitement. Mais certains traits étaient identiques.
+
+Il appela ses compagnons.
+
+Lina observa la gravure.
+
+— Un ancien enchantement ?
+
+— Peut-être.
+
+Mira examina le reste de la paroi.
+
+— Il n'y a rien à ouvrir, ici.
+
+Zeki recopia les inscriptions visibles.
+
+À la surface, Edrin compara les dessins.
+
+— C'est une ressemblance intéressante, admit-il. Mais cela ne prouve pas que les deux mécanismes ont la même fonction.
+
+— Vous pensez que c'est un mécanisme ?
+
+— Je ne sais même pas si celui-ci en est un.
+
+Il conserva les deux relevés ensemble.
+
+Zeki repartit avec plus de questions qu'à son arrivée.
+
+Il commençait à s'y habituer.
+
+***
+
+Ils décidèrent enfin de dépasser le territoire des loups.
+
+Zeki avait rangé sa carapace, son mannequin et plusieurs accessoires dans son nouveau sac. Il n'avait plus eu à choisir entre autant de possibilités avant de partir.
+
+Il savait toutefois qu'emporter un objet et savoir l'utiliser au bon moment étaient deux choses différentes.
+
+La galerie suivante était plus haute que les précédentes. La lumière des cristaux atteignait difficilement le plafond.
+
+Lina ralentit.
+
+— Vous entendez ?
+
+Un battement d'ailes résonna au-dessus d'eux.
+
+Mira leva les yeux.
+
+Une ombre passa entre deux reliefs de la voûte, puis disparut.
+
+Zeki sortit son carnet.
+
+Quelque chose fondit brusquement vers le sol.
+
+Il se baissa par réflexe.
+
+Lina tira une flèche. La créature remonta avant qu'ils puissent l'identifier correctement.
+
+Un second battement d'ailes retentit.
+
+Zeki regarda les hauteurs.
+
+Quelques jours plus tôt, il avait découvert à quel point il était avantageux de se trouver là où les monstres ne pouvaient pas l'atteindre.
+
+Apparemment, il n'était pas le seul à avoir eu cette idée.
