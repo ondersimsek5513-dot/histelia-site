@@ -1265,7 +1265,7 @@ Cette annonce intéressa davantage l'érudit. Zeki lui expliqua le bonus obtenu 
 
 Zeki n'avait pas pensé à cette possibilité lors de son inscription. Il avait surtout retenu que le système ne lui avait trouvé aucune classe.
 
-Il n'avait toujours pas de classe définie. Pourtant, quelque chose commençait à prendre forme.
+Il avait désormais une première classe, Chasseur débutant. Ce qui avait commencé comme une absence de spécialisation prenait peu à peu une autre signification.
 
 Edrin tourna une page du carnet.
 
@@ -3260,3 +3260,579 @@ Pourquoi ne pas essayer l'inverse ?
 Il sourit.
 
 *Et si, au lieu de chercher comment les combattre, je cherchais comment les approcher sans qu'elles m'attaquent ?*
+
+## Tome 1 — Chapitre 9 : Un aventurier sous couverture
+
+Le forgeron souleva la carapace que Zeki venait de déposer sur son établi.
+
+— Un bouclier ?
+
+— Non.
+
+— Une armure ?
+
+— En quelque sorte.
+
+L'artisan retourna la carapace et en examina l'intérieur.
+
+— Il y a de quoi faire plusieurs protections, là-dedans. Tu veux commencer par le torse ?
+
+— Je voudrais pouvoir entrer dessous.
+
+Le forgeron posa la carapace.
+
+— Pardon ?
+
+Zeki lui montra un dessin dans son carnet. On y distinguait quatre pattes, une carapace et, au milieu, un petit personnage dont la position paraissait particulièrement inconfortable.
+
+— Je voudrais ressembler à une tortue.
+
+L'artisan contempla le dessin.
+
+— Tu sais que les gens viennent généralement me voir pour avoir l'air plus dangereux que les monstres ?
+
+— Justement. Je préférerais qu'ils ne me trouvent pas dangereux.
+
+Le forgeron ouvrit la bouche, mais se ravisa. Il avait appris, au cours de leurs précédentes discussions, qu'il valait mieux demander à Zeki de terminer son explication avant de donner son avis.
+
+Le garçon lui raconta ce qu'il avait observé dans les galeries. Les tortues ne manifestaient pas la même agressivité envers leurs semblables qu'envers les aventuriers. Elles partageaient certains espaces et se contentaient souvent de s'écarter les unes des autres.
+
+Il lui expliqua également les difficultés qu'il avait rencontrées la veille en essayant de porter la carapace.
+
+— Elle est beaucoup trop lourde.
+
+— Ça, je veux bien te croire.
+
+L'artisan réfléchit un moment. Une carapace constituait une excellente protection, mais elle n'avait pas été conçue pour être portée par un homme. La modifier sans lui faire perdre son apparence naturelle lui demanderait du travail.
+
+Il prit quelques mesures.
+
+— Je peux te faire quelque chose de plus supportable. Mais ne t'attends pas à courir avec.
+
+— Les tortues ne courent pas beaucoup.
+
+— Toi, en revanche, tu risques d'en avoir besoin.
+
+Zeki nota cette remarque.
+
+Ils abordèrent ensuite le lance-filet. Cette fois, le garçon n'eut pas besoin de sortir son carnet : le forgeron le lui réclama.
+
+L'artisan lut les observations, revint sur certaines lignes et demanda à Zeki de lui montrer comment il avait tenu l'appareil au moment des essais.
+
+— La projection n'est pas régulière, dit-il. Ça confirme ce que je craignais.
+
+Il examina l'enchantement du prototype avec une attention nouvelle.
+
+— Laisse-le-moi quelques jours.
+
+— Je peux encore utiliser mon filet ordinaire en attendant.
+
+— Tant mieux. Ce n'est pas parce que nous avons trouvé une nouvelle manière de lancer un filet qu'il faut oublier l'ancienne.
+
+Zeki acquiesça.
+
+Avant de repartir, il regarda une nouvelle fois l'arbalète qu'il avait remarquée lors de sa précédente visite.
+
+Le forgeron suivit son regard.
+
+— Celle-là est neuve. J'en ai une autre qui pourrait te convenir.
+
+Il sortit d'un coffre une arbalète d'occasion, dépourvue de décoration. Elle avait appartenu à un chasseur qui avait investi dans un modèle enchanté.
+
+— Rien d'exceptionnel, mais elle est en bon état. Je l'ai vérifiée.
+
+Zeki hésita. L'argent destiné au sac magique ne semblait jamais rester longtemps dans sa bourse.
+
+Il calcula ce que lui coûtaient encore ses affrontements avec les tortues.
+
+— Je la prends.
+
+L'artisan lui remit également des carreaux adaptés à l'arme et lui montra où il pourrait s'exercer sans risquer de blesser quelqu'un.
+
+— Tu sais, ajouta-t-il, quand j'aurai terminé cette histoire de carapace, j'aimerais vraiment voir ce que tu comptes en faire.
+
+Zeki eut un sourire embarrassé.
+
+— Si ça fonctionne, je vous raconterai.
+
+***
+
+Sa première séance de tir fut moins enthousiasmante qu'il l'avait imaginé.
+
+L'arbalète était facile à comprendre. Atteindre ce qu'il voulait toucher était une autre affaire.
+
+Il passa une partie de l'après-midi à s'exercer sur les cibles réservées aux apprentis chasseurs. Ses résultats s'améliorèrent lentement. Il renonça cependant à l'idée de pouvoir toucher à volonté une petite cible en mouvement.
+
+Il retourna aussi chez l'alchimiste.
+
+Les flèches préparées quelques jours auparavant ne convenaient pas à sa nouvelle arme. Il lui fallait des carreaux portant le même effet magique.
+
+L'artisane lui demanda de reprendre ses exercices avec les matériaux qu'il connaissait déjà. À la fin de la séance, il disposait de quelques projectiles enchantés, dont la qualité demeurait modeste.
+
+Elle lui rappela que leur effet sur les Tortues cuirassées restait à vérifier.
+
+Zeki consacra une page de son carnet aux résultats qu'il souhaitait observer.
+
+Il lui semblait étrange de retourner dans le donjon avec autant de questions.
+
+Quelques semaines auparavant, il n'en aurait eu qu'une : comment revenir vivant ?
+
+***
+
+Cette fois, il n'emporta ni bombe alchimique ni prototype de lance-filet.
+
+Il prit son arbalète, ses carreaux, sa petite épée, sa pierre d'écho et son mannequin. Le filet ordinaire resta avec lui, ainsi qu'un fumigène et les autres accessoires qu'il jugeait indispensables.
+
+Le premier affrontement avec une tortue ne fut pas particulièrement glorieux.
+
+Le mannequin attira la créature. Zeki attendit que celle-ci expose sa tête et tira.
+
+Le carreau rebondit sur le bord de la carapace.
+
+Il n'eut pas le temps de recommencer avant que la tortue se mette à l'abri.
+
+— Évidemment.
+
+Il dut patienter.
+
+Lors d'une nouvelle ouverture, un carreau enchanté atteignit la créature. Une pâle lueur traversa brièvement sa peau.
+
+Les mouvements de la tortue devinrent moins vifs.
+
+Elle réussit tout de même à se protéger.
+
+Zeki attendit qu'elle ressorte. Cette fois, il eut davantage de temps pour réagir.
+
+L'effet alchimique se dissipa avant la fin du combat, mais il lui avait permis de prendre l'avantage sans devoir s'approcher constamment des mâchoires.
+
+Lorsque l'inscription bleue apparut enfin, Zeki consulta ses notes.
+
+Il avait utilisé moins de consommables que la dernière fois.
+
+Et surtout, son bouclier était intact.
+
+Il s'attaqua à une deuxième tortue, puis à une troisième. Il découvrit que la durée de l'effet variait sensiblement d'une créature à l'autre. Certaines semblaient peu affectées. D'autres devenaient nettement moins réactives.
+
+Il conserva cette différence dans son carnet.
+
+Au retour, il déposa les ressources de sa journée devant l'employée de la Guilde.
+
+Elle examina le contenu de son sac.
+
+— Tu as finalement trouvé une méthode ?
+
+— Je crois.
+
+Elle compta les trophées et lui remit sa récompense.
+
+Zeki déduisit ses frais.
+
+Le bénéfice n'était pas extraordinaire. Il était néanmoins supérieur à celui de ses précédentes expéditions contre les tortues.
+
+Pour une fois, il n'eut pas besoin de consacrer ses gains à remplacer quelque chose qu'un monstre avait cassé.
+
+Il mit de côté quelques pièces.
+
+*Sac magique.*
+
+Il n'était pas encore très près du but.
+
+Mais pour la première fois depuis la vente de l'épée, la somme augmentait au lieu de diminuer.
+
+***
+
+Lorsque le forgeron lui rendit la carapace, Zeki comprit immédiatement qu'il ne pourrait pas conserver beaucoup d'autres affaires sur son dos.
+
+L'artisan avait adapté l'intérieur à sa taille et allégé l'ensemble autant que possible sans trop modifier sa silhouette.
+
+Une protection rembourrée empêchait les parties les plus dures de lui écraser les épaules. Il pouvait se dégager du costume lorsqu'il en avait besoin.
+
+Le résultat ressemblait davantage à une tortue qu'il ne l'avait espéré.
+
+Du moins tant qu'il n'essayait pas de marcher.
+
+— Lentement, lui conseilla le forgeron.
+
+Zeki fit quelques pas dans l'atelier.
+
+Il heurta un tabouret.
+
+— Encore plus lentement.
+
+Le garçon recommença.
+
+L'artisan croisa les bras.
+
+— Si tu me demandes un jour de fabriquer des ailes, je me réserve le droit de refuser.
+
+***
+
+Dans le donjon, Zeki passa un long moment à regarder les tortues avant de mettre son costume.
+
+Leur façon de se déplacer n'était pas aussi régulière qu'il l'avait cru. Elles s'arrêtaient fréquemment, inspectaient le sol, tournaient la tête et semblaient écouter les vibrations des galeries.
+
+Il laissa la plupart de ses affaires dans un recoin de la zone sûre qu'il venait de traverser. Il n'avait aucune envie de découvrir ce qui se passerait si son arbalète se coinçait à l'intérieur de la carapace.
+
+Puis il avança.
+
+Sa première tentative dura moins d'une minute.
+
+Une tortue s'arrêta devant lui. Elle baissa la tête et sembla hésiter.
+
+Zeki ne bougea plus.
+
+La créature s'approcha davantage.
+
+Il avait étudié les tortues, mais pas suffisamment pour savoir ce qu'il était censé faire lorsqu'une autre tortue venait lui rendre visite.
+
+Il tenta de reculer.
+
+Le frottement de sa carapace contre une pierre produisit un bruit sec.
+
+La créature se redressa.
+
+Zeki reconnut aussitôt sa posture d'attaque.
+
+Il abandonna son costume et battit en retraite.
+
+Il dut attendre longtemps avant de pouvoir le récupérer.
+
+Sa deuxième tentative ne se déroula guère mieux. Cette fois, il avait réussi à dépasser deux tortues, mais s'était engagé dans un passage trop étroit pour tourner convenablement.
+
+Il avait passé plusieurs minutes à reculer sans voir où il mettait les pieds.
+
+Il se promit de ne plus jamais se moquer d'une tortue.
+
+À la troisième tentative, quelque chose changea.
+
+Une créature le croisa, s'arrêta un instant, puis poursuivit son chemin.
+
+Une deuxième passa si près de lui qu'il entendit le frottement de leurs carapaces.
+
+Zeki demeura immobile.
+
+La tortue s'éloigna.
+
+Il avança encore, le cœur battant.
+
+Il traversa une partie de la galerie sans provoquer le moindre affrontement.
+
+Une sensation inhabituelle l'envahit.
+
+Depuis ses débuts, chaque mètre parcouru dans ce donjon lui avait demandé de surveiller les ombres, de préparer une arme ou d'envisager une retraite.
+
+Cette fois, il pouvait regarder.
+
+Vraiment regarder.
+
+Il aperçut deux tortues qui se rejoignaient près d'une paroi. L'une d'elles demeura immobile, la tête levée. L'autre adopta presque aussitôt une posture semblable.
+
+Un léger grondement traversa les dalles.
+
+Puis elles se remirent en mouvement.
+
+Zeki avait déjà ressenti cette vibration, mais il n'avait jamais eu le loisir d'observer ce qui se produisait au même moment.
+
+Il ne savait pas si les deux événements étaient liés.
+
+Il tenta de mémoriser le détail.
+
+C'était le premier renseignement qu'il rapporterait du donjon sans avoir affronté un seul monstre.
+
+***
+
+Les jours suivants, ses expéditions changèrent de nature.
+
+Il ne consacrait plus une journée entière à une seule méthode. Il choisissait ses outils en fonction de ce qu'il comptait faire.
+
+Lorsqu'il cherchait des ressources, il emportait son arbalète et le mannequin. Lorsqu'il souhaitait observer les tortues ou reconnaître les galeries, il privilégiait la carapace.
+
+Il retourna également dans les premières zones, où il se rendit compte du chemin parcouru.
+
+Les Squelettes ne lui demandaient plus autant d'efforts. Il pouvait anticiper leurs déplacements et utiliser le filet ou le mannequin lorsqu'il risquait d'être débordé.
+
+Il améliora les vêtements de son faux compagnon, remplaça plusieurs fois les parties abîmées et apprit à exploiter sa silhouette auprès de différentes créatures.
+
+Le mannequin ne fonctionnait pas sur tout.
+
+Les Arbres-marcheurs semblaient parfois davantage réagir à ses propres mouvements qu'à l'objet immobile. Les Squelettes, en revanche, accordaient une attention surprenante à la silhouette lorsque la pierre d'écho se manifestait.
+
+Et les Lapins cornus avaient une fâcheuse tendance à lui faire perdre ses vêtements.
+
+Zeki commençait à envisager de demander une réduction au marchand sur les vieilles tuniques.
+
+Un matin, il atteignit une intersection où trois Squelettes se trouvaient réunis.
+
+Il plaça son compagnon de tissu à distance de lui et attendit.
+
+Le bruit de sa voix retentit dans la galerie.
+
+Deux créatures se dirigèrent vers le mannequin.
+
+La troisième s'engagea dans le passage où se trouvait Zeki.
+
+Il avait connu une situation semblable lors de sa première journée dans le donjon. À l'époque, il avait eu besoin d'une grenade coûteuse pour s'en sortir.
+
+Cette fois, il sut reconnaître le moment où il devait reculer, celui où le filet lui serait utile et celui où il pouvait reprendre l'initiative.
+
+Lorsque le dernier Squelette tomba, Zeki ramassa son matériel.
+
+Une inscription apparut.
+
+**Expérience acquise.**
+
+Il s'attendait à la voir disparaître.
+
+Elle fut suivie d'une autre.
+
+**Nouvelle compétence acquise : Leurre — Niveau 1.**
+
+Zeki se figea.
+
+Il connaissait les notifications de classes. Il connaissait également le petit avantage que le système lui avait accordé parce qu'il combattait seul.
+
+Mais les mots qui s'affichaient à présent lui étaient inconnus.
+
+**Crée temporairement une image illusoire de son utilisateur.**
+
+Il relut la phrase.
+
+Puis il regarda le mannequin.
+
+— Quoi ?
+
+***
+
+Il attendit d'avoir rejoint une zone dégagée avant de tenter d'utiliser sa nouvelle compétence.
+
+Il se concentra sur l'inscription.
+
+Une silhouette apparut à quelques pas de lui.
+
+Zeki fit un bond en arrière.
+
+La silhouette avait son visage, ses vêtements et jusqu'aux traces de poussière sur ses bottes.
+
+Elle demeurait immobile.
+
+Il s'approcha avec précaution.
+
+Il leva une main et essaya de toucher l'épaule de son double.
+
+Ses doigts traversèrent l'image.
+
+Il retira vivement sa main.
+
+— C'est vraiment moi…
+
+La silhouette ne répondit pas.
+
+Elle se dissipa après un court instant.
+
+Zeki resta les yeux fixés sur l'endroit où elle s'était tenue.
+
+Il tenta de nouveau d'activer la compétence, mais l'inscription n'y répondit pas immédiatement.
+
+Il attendit.
+
+Lorsqu'il put enfin recommencer, son double réapparut.
+
+La ressemblance lui parut presque dérangeante.
+
+Il n'avait pas acheté cette compétence. Personne ne lui avait appris à créer des illusions. Il avait simplement essayé, pendant des jours, de faire croire aux monstres qu'il se trouvait ailleurs.
+
+Et le système venait de lui offrir une manière de le faire sans transporter un tas de vieux vêtements.
+
+Il récupéra son mannequin.
+
+— Ne t'inquiète pas, dit-il.
+
+Il s'arrêta.
+
+Il parlait encore à un morceau de tissu.
+
+Il se demanda combien de temps il lui faudrait pour perdre cette habitude.
+
+***
+
+Le premier essai contre une tortue lui apprit que son illusion ne résolvait pas tous ses problèmes.
+
+La créature aperçut le double de Zeki et s'en approcha.
+
+L'image était bien plus convaincante que son mannequin.
+
+Mais lorsque la tortue l'attaqua, elle ne rencontra aucune résistance.
+
+Elle s'immobilisa, désorientée.
+
+L'illusion disparut peu après.
+
+Zeki avait obtenu une ouverture, mais beaucoup plus courte qu'avec un objet que le monstre pouvait réellement saisir.
+
+Il dut recourir à son arbalète et à son expérience des tortues pour terminer le combat.
+
+Il ne pouvait pas remplacer tous ses accessoires par ce nouveau pouvoir.
+
+Il pouvait, en revanche, disposer d'une diversion là où il aurait été impossible d'installer le mannequin.
+
+C'était une différence considérable.
+
+Il nota soigneusement ce qu'il venait de constater.
+
+*Leurre : ressemble à un aventurier, mais ne possède pas de corps. Durée courte. Ne pas compter sur deux utilisations immédiates.*
+
+Il hésita avant d'ajouter une dernière ligne.
+
+*Pourquoi le système m'a-t-il donné exactement ce dont j'avais besoin ?*
+
+***
+
+— Recommence.
+
+Edrin n'avait pas quitté sa chaise, mais il s'était avancé si près du bord que Zeki craignit de le voir tomber.
+
+La silhouette illusoire apparut devant le bureau.
+
+L'érudit leva une main.
+
+Comme Zeki, il essaya de la toucher.
+
+Puis il demanda au garçon de lui raconter précisément les circonstances du déblocage.
+
+Zeki reprit son récit depuis les premiers essais contre les tortues. Edrin l'interrompit à plusieurs reprises pour obtenir des précisions.
+
+Avait-il étudié un sort d'illusion ? Non.
+
+Avait-il utilisé un objet enchanté susceptible de lui transmettre une aptitude ? Pas à sa connaissance.
+
+Avait-il vaincu d'autres créatures à l'aide du mannequin ? Oui, régulièrement.
+
+L'érudit relut ses notes.
+
+— Certaines aptitudes se développent par la pratique. Ce n'est pas nouveau. Un épéiste peut acquérir une compétence à force de manier son arme.
+
+Il désigna le mannequin, adossé à une étagère.
+
+— Mais entre l'utilisation de cet objet et la création d'une illusion, il y a une différence.
+
+— Je n'ai rien fait de particulier.
+
+— Justement. Tu n'as pas pratiqué l'illusion. Tu as pratiqué la diversion.
+
+Edrin resta pensif.
+
+— Le système a peut-être reconnu le résultat que tu cherchais à obtenir plutôt que la technique que tu employais.
+
+Zeki regarda les feuilles couvertes de leurs précédentes observations.
+
+Il y était question de victoires indirectes, de pièges du donjon, de classes débutantes et de comportements de monstres.
+
+— Vous pensez que ça pourrait fonctionner avec d'autres choses ?
+
+— C'est une question intéressante.
+
+L'érudit prit une nouvelle feuille.
+
+— Mais une question intéressante n'est pas encore une réponse.
+
+Il inscrivit la date en haut de la page.
+
+— Nous allons continuer.
+
+Zeki lui parla également des tortues et de cette vibration qu'il avait observée pendant qu'il portait sa carapace. Edrin ressortit quelques rapports. Il ne trouva aucune mention précise du phénomène.
+
+Il demanda néanmoins au garçon de lui indiquer l'endroit où cela s'était produit.
+
+Zeki dessina la galerie.
+
+Ils restèrent longtemps à discuter.
+
+***
+
+À la Guilde, un garçon portant un arc vert s'approcha de Zeki.
+
+Il mit quelques instants à le reconnaître. C'était l'un des jeunes aventuriers avec lesquels il avait essayé de discuter lors de ses débuts.
+
+— Dis, tu fais toujours les contrats tout seul ?
+
+— Oui.
+
+— On m'a dit que tu chassais les tortues.
+
+Zeki acquiesça.
+
+— Tu arrives à les faire sortir de leur carapace ? On a perdu un temps fou avec celles-là, hier.
+
+Il y eut un petit silence.
+
+Zeki chercha ses mots.
+
+Autrefois, il aurait probablement baissé les yeux et attendu que la conversation se termine.
+
+Cette fois, il connaissait la réponse à la question.
+
+— Pas toujours, dit-il. Mais j'ai remarqué qu'elles réagissaient davantage lorsqu'elles pensaient qu'une menace se trouvait devant elles.
+
+Il sortit son carnet et montra un dessin.
+
+Le jeune archer se pencha dessus.
+
+— Attends. C'est quoi, ce bonhomme ?
+
+Zeki lui expliqua.
+
+Le garçon éclata de rire, puis s'interrompit.
+
+— Mais… ça marche ?
+
+— Assez souvent.
+
+Il lui posa encore quelques questions.
+
+Zeki y répondit du mieux qu'il put.
+
+Lorsque l'archer repartit vers ses compagnons, il le remercia.
+
+Ce simple mot accompagna Zeki jusqu'à l'entrée du donjon.
+
+***
+
+Il avait décidé d'aller voir ce qui se trouvait après le territoire des tortues.
+
+La carapace lui avait permis de reconnaître une grande partie des galeries sans combattre. Il connaissait désormais plusieurs passages et savait lesquels éviter lorsqu'il transportait trop de matériel.
+
+Il laissa son costume à la surface pour cette nouvelle reconnaissance.
+
+Il avançait avec prudence, mais sans cette peur constante qui l'avait accompagné lors de ses premières sorties.
+
+Les dernières tortues disparurent progressivement derrière lui.
+
+Les dalles firent place à un sol plus irrégulier. De petits débris jonchaient les abords des passages.
+
+Zeki s'arrêta lorsqu'il aperçut des traces qui ne ressemblaient à aucune de celles qu'il connaissait.
+
+Il s'accroupit.
+
+Un bruit léger lui parvint de la galerie voisine.
+
+Puis un autre, derrière lui.
+
+Puis un troisième, plus loin.
+
+Il leva la tête.
+
+Dans le territoire qu'il venait de quitter, il avait appris à tromper l'attention d'une créature.
+
+À présent, il avait l'impression que plusieurs créatures s'intéressaient à lui en même temps.
+
+Il se releva lentement.
+
+Une silhouette rapide traversa la galerie.
+
+Une deuxième lui succéda.
+
+Zeki porta la main à son sac.
+
+Il avait enfin appris à créer un faux compagnon.
+
+Il se demanda si un seul suffirait.
