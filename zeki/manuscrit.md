@@ -5848,3 +5848,615 @@ Et surtout, il avait une quantité considérable de nouvelles idées.
 Il descendit les marches.
 
 Il n'avait jamais été aussi heureux de partir seul.
+
+## Tome 1 — Chapitre 13 : Les règles sont faites pour être contournées
+
+Le marchand regarda les ressources que Zeki venait de déposer sur son comptoir.
+
+Puis il regarda le garçon.
+
+— Tu es parti avec combien de personnes, cette fois ?
+
+— Tout seul.
+
+— Je vois.
+
+Il continua son examen, mit plusieurs fragments de cristal de côté et pesa les matières destinées aux artisans.
+
+Zeki avait consacré les derniers jours à vérifier les possibilités de ses nouvelles compétences. Il avait notamment découvert que Marionnettiste pouvait fonctionner sur deux monstres d'une même espèce.
+
+La première fois qu'il avait vu deux Loups des cavernes se battre entre eux, il était resté un long moment à les observer, presque incrédule.
+
+Il avait dépensé un seul carreau pour terminer l'affrontement.
+
+La deuxième tentative s'était révélée moins fructueuse. Le loup qu'il avait influencé avait repris ses esprits avant que son adversaire soit suffisamment affaibli. Zeki avait dû se retirer.
+
+Cela n'avait guère entamé son enthousiasme.
+
+Il avait également recommencé à explorer le territoire des tortues sous sa nouvelle forme. Il n'avait plus à transporter son lourd déguisement à chaque sortie. Il pouvait désormais consacrer une partie de son temps à observer des créatures et à récupérer des informations plutôt qu'à se défendre.
+
+Les résultats se lisaient jusque dans ses comptes.
+
+Même après avoir acheté son sac magique, sa bourse se remplissait à une vitesse qu'il n'aurait jamais imaginée lors de ses débuts.
+
+— Tu veux que je garde les autres fragments pour l'enchanteur ? demanda le marchand.
+
+— Oui. Et j'aimerais savoir si vous connaissez un endroit où l'on peut acheter des compétences.
+
+L'homme releva la tête.
+
+— Tu as enfin décidé de dépenser ton argent autrement qu'en matériel ?
+
+Zeki sourit.
+
+— J'ai quelques idées.
+
+Le marchand lui indiqua une petite boutique située derrière la Guilde, dans une rue essentiellement fréquentée par les aventuriers.
+
+— Ils vendent surtout des parchemins d'apprentissage. Leur propriétaire me doit un service. Dis-lui que tu viens de ma part.
+
+Il termina de compter les pièces.
+
+— Et ne te laisse pas impressionner par les titres. Certaines compétences ont des noms magnifiques et ne servent pratiquement à rien.
+
+— C'est justement ce que je voudrais vérifier.
+
+***
+
+Lina posa son arc contre le dossier de sa chaise.
+
+Son coéquipier venait de terminer sa première expédition depuis sa blessure. Il marchait encore avec une légère raideur, mais se réjouissait de pouvoir reprendre une vie normale.
+
+— Alors, demanda-t-il, vous avez réussi à trouver quelqu'un pour me remplacer ?
+
+— Provisoirement, répondit Mira.
+
+— Il se débrouillait ?
+
+Lina et Mira échangèrent un regard.
+
+— Plutôt bien, dit Lina.
+
+— Plutôt bien ? répéta Mira.
+
+Elle posa sa chope.
+
+— Il a fait combattre deux monstres l'un contre l'autre pendant qu'on les regardait.
+
+Le garçon fronça les sourcils.
+
+— Avec un sort de provocation ?
+
+— Au début, non. Avec des diversions et les habitudes des monstres.
+
+— Et après ?
+
+— Après, le système lui a donné une compétence pour le faire directement.
+
+Le coéquipier attendit qu'elle sourie.
+
+Elle ne sourit pas.
+
+— Tu plaisantes ?
+
+À la table voisine, un jeune aventurier cessa de manger.
+
+— Vous parlez de quel aventurier ?
+
+— Zeki, répondit Lina.
+
+— Le garçon avec les filets ?
+
+Mira se tourna vers lui.
+
+— Tu le connais ?
+
+— On m'a parlé de lui.
+
+Un autre aventurier leva les yeux.
+
+— C'est celui qui descend tout seul, non ?
+
+Lina acquiesça.
+
+— Oui. On a fait plusieurs contrats ensemble pendant l'absence de notre compagnon.
+
+— Et tu dis qu'il peut contrôler les monstres ?
+
+— Pas exactement. Il peut détourner temporairement leur agressivité. On l'a vu faire.
+
+Le jeune homme se rapprocha légèrement.
+
+— Ça existe, une compétence pareille ?
+
+Mira se renversa contre sa chaise.
+
+— Figure-toi que ce n'est même pas la plus étrange.
+
+***
+
+La boutique de compétences était beaucoup moins impressionnante que Zeki ne l'avait imaginé.
+
+Des étagères couvraient les murs. Des parchemins soigneusement rangés portaient des étiquettes de différentes couleurs. Sur une table, un gros registre présentait les aptitudes disponibles et leurs conditions d'acquisition.
+
+Le propriétaire, un homme aux cheveux grisonnants, était en train de discuter avec deux épéistes.
+
+— Augmentation de force, amélioration des réflexes, résistance aux chocs… Vous avez de quoi choisir.
+
+Les clients repartirent avec un parchemin chacun.
+
+Lorsque vint son tour, Zeki expliqua qu'il recherchait des compétences susceptibles de lui être utiles en solitaire.
+
+Le vendeur lui présenta plusieurs améliorations conventionnelles.
+
+Zeki consulta le registre.
+
+— Et celles-là ?
+
+Il désignait une série de pages situées presque à la fin.
+
+— Oh, ça. Des aptitudes très spécialisées. Peu de gens les demandent.
+
+Le garçon lut la première description.
+
+**Loup solitaire.**
+
+**Dégâts infligés en l'absence de compagnons : +40 %.**
+
+Il relut le chiffre.
+
+— Quarante pour cent ?
+
+— Oui. C'est une amélioration importante, mais elle ne fonctionne pas en équipe. La plupart des aventuriers ne voient aucun intérêt à dépenser de l'argent pour une aptitude qu'ils n'utiliseront presque jamais.
+
+— Et si on possède déjà un bonus de solitaire ?
+
+— Ce parchemin prend en charge la même catégorie d'effet. Le plus élevé s'applique. Les deux ne s'additionnent pas.
+
+Zeki hocha la tête.
+
+Il pensa à ses cinq pour cent.
+
+Il demanda le prix.
+
+Il était loin d'être négligeable.
+
+Zeki calcula rapidement ce que cette augmentation pouvait représenter sur une semaine entière de contrats. Moins de projectiles, moins de temps passé dans les galeries et moins de risques de devoir interrompre un affrontement.
+
+Il referma le registre.
+
+— Je le prends.
+
+Le vendeur parut surpris.
+
+— Vous travaillez toujours seul ?
+
+— La plupart du temps.
+
+— Vous devriez tout de même envisager de rejoindre une équipe.
+
+— C'est déjà fait.
+
+L'homme ne comprit pas très bien la réponse, mais n'insista pas.
+
+Zeki tourna quelques autres pages.
+
+Une compétence attira son attention.
+
+**Lâcheté calculée.**
+
+**Vitesse de déplacement augmentée de 40 % lors d'une retraite face à un adversaire de niveau supérieur.**
+
+— Pourquoi personne ne l'achète ?
+
+— Vous imaginez un chevalier annoncer à ses compagnons qu'il vient d'investir dans une compétence destinée à prendre la fuite ?
+
+Zeki réfléchit.
+
+— Non.
+
+— Voilà.
+
+— Moi, ça ne me dérange pas.
+
+Il mit le parchemin de côté.
+
+Le vendeur l'observa, puis lui tendit le registre sans chercher à lui recommander autre chose.
+
+Zeki trouva trois autres aptitudes.
+
+**Coup dans le dos : +25 % de dégâts contre une créature occupée par une autre cible.**
+
+**Tir patient : +50 % de dégâts sur le premier projectile après une période de préparation sans interruption.**
+
+**Profiteur : +20 % de dégâts contre une créature affaiblie par un piège.**
+
+Il posa les cinq parchemins devant lui.
+
+Le montant total lui fit perdre une partie de son sourire.
+
+Il demanda au vendeur s'il existait un tarif particulier lorsqu'on achetait plusieurs aptitudes et mentionna le marchand qui lui avait recommandé la boutique.
+
+L'homme reconnut le nom de son confrère. Il accepta une remise modeste, notamment sur les parchemins les moins demandés.
+
+Zeki reprit ses calculs.
+
+Il pouvait se permettre cet achat, à condition de renoncer à plusieurs dépenses qu'il avait envisagées pour les jours suivants.
+
+Il pensa aux économies qu'il avait réalisées depuis l'acquisition de Marionnettiste.
+
+Puis il paya.
+
+Le vendeur lui expliqua comment utiliser les parchemins. Leur enchantement s'adressait directement au système de l'aventurier. Il n'enseignait pas le maniement d'une arme ou les gestes d'un métier ; il accordait l'aptitude décrite lorsque ses conditions étaient remplies.
+
+Zeki suivit ses indications.
+
+Les inscriptions bleues apparurent successivement.
+
+**Compétence acquise : Loup solitaire.**
+
+**Compétence acquise : Lâcheté calculée.**
+
+**Compétence acquise : Coup dans le dos.**
+
+**Compétence acquise : Tir patient.**
+
+**Compétence acquise : Profiteur.**
+
+Il consulta ses informations.
+
+**Dégâts infligés en solitaire : +40 %.**
+
+Un sourire immense apparut sur son visage.
+
+Le vendeur le regarda ranger soigneusement les parchemins désormais dépourvus d'enchantement.
+
+— Vous êtes certain de ne pas vouloir une aptitude plus glorieuse ?
+
+Zeki réfléchit à la tortue qu'il pouvait devenir, aux monstres qu'il pouvait faire combattre et à sa nouvelle capacité à fuir plus rapidement.
+
+— Non, merci. Celles-là me plaisent beaucoup.
+
+***
+
+À la Guilde, le cercle autour de Lina et Mira s'était élargi.
+
+Une aventurière portant une robe de mage les interrogeait à présent.
+
+— Une métamorphose ? Vous voulez dire une illusion ?
+
+— Non, répondit Lina. Je sais faire la différence entre une image et une créature. Il s'est réellement changé en tortue devant nous.
+
+— Une Tortue cuirassée, précisa Mira.
+
+Un homme assis à l'extrémité de la table eut un rire incrédule.
+
+— À quoi bon se transformer en un monstre aussi lent ?
+
+Mira le regarda.
+
+— Combien de temps te faut-il pour traverser leur territoire ?
+
+— Ça dépend du nombre de tortues.
+
+— Lui, il n'a même pas besoin de les combattre.
+
+L'homme resta silencieux.
+
+Lina reprit :
+
+— Avant d'obtenir ce pouvoir, il s'était fait fabriquer un costume à partir d'une véritable carapace. Il a passé des jours à observer leurs déplacements et à les imiter.
+
+— Pourquoi ?
+
+— Pour ne pas avoir à les tuer chaque fois qu'il voulait examiner une galerie.
+
+Le jeune archer à l'arc vert, qui venait d'arriver à la Guilde, s'arrêta derrière les personnes rassemblées.
+
+— Il m'avait parlé d'un mannequin, aussi.
+
+Mira se tourna vers lui.
+
+— Ah, tu connais son mannequin ?
+
+— Il m'avait expliqué comment il s'en servait contre les tortues. On a essayé quelque chose de semblable avec mon équipe.
+
+— Depuis, il a obtenu une compétence qui lui permet de créer une image de lui-même.
+
+L'archer ouvrit de grands yeux.
+
+— Sérieusement ?
+
+Lina acquiesça.
+
+Une voix s'éleva derrière eux.
+
+— Mais de quelle classe est-il, exactement ?
+
+Mira compta sur ses doigts.
+
+— Chasseur, trappeur, saboteur, alchimiste, tireur, infiltrateur.
+
+— Non, je demande sa classe.
+
+— Je viens de te répondre.
+
+Plusieurs personnes rirent.
+
+L'aventurière à la robe de mage, elle, ne riait plus.
+
+— Six classes ?
+
+— Débutantes, précisa Lina. Il ne prétend pas être un maître dans tous ces domaines.
+
+Elle s'interrompit un instant.
+
+— Mais lorsqu'on combat avec lui, on comprend vite que ce n'est pas vraiment le problème.
+
+***
+
+Zeki ne tarda pas à mettre ses achats à l'épreuve.
+
+Il retourna d'abord dans une zone familière.
+
+Face aux Squelettes, la différence lui parut immédiatement perceptible. Des affrontements qu'il terminait habituellement avec plusieurs interventions exigeaient désormais moins d'efforts.
+
+La première fois qu'il profita d'un ennemi distrait par son double, il constata également l'effet de Coup dans le dos.
+
+Il nota le résultat.
+
+Les bonus n'étaient pas une promesse de victoire automatique. Le système ne rendait pas toutes ses attaques précises et ne lui épargnait pas les conséquences d'une erreur.
+
+Il avait encore raté plusieurs tirs.
+
+Mais chaque ouverture qu'il réussissait à créer avait désormais davantage de valeur.
+
+Il essaya Tir patient au cours d'une sortie suivante. Il découvrit que l'aptitude exigeait une véritable préparation et ne se déclenchait pas lorsqu'il tirait dans la précipitation.
+
+Il prit le temps de comparer les résultats sur des cibles similaires.
+
+Une fois les essais terminés, il replia son carnet.
+
+Il pouvait enfin poursuivre son exploration.
+
+***
+
+Les Araignées spectrales, neuvième espèce du premier étage, portaient particulièrement bien leur nom.
+
+Zeki n'avait d'abord aperçu qu'un reflet pâle suspendu entre deux rochers.
+
+Il s'était approché.
+
+Le reflet avait disparu.
+
+Une masse translucide s'était alors précipitée vers lui depuis une paroi.
+
+Il avait reculé si brusquement qu'il avait failli perdre son équilibre.
+
+L'araignée ne demeurait pas invisible en permanence. Sa silhouette réapparaissait lorsqu'elle se déplaçait rapidement, mais elle se confondait facilement avec les surfaces sombres lorsqu'elle s'immobilisait.
+
+Zeki ressortit son cristal lumineux et observa les alentours.
+
+Des filaments presque imperceptibles reliaient certaines parties de la galerie.
+
+Il ne chercha pas à vaincre toutes les créatures présentes. Il voulait avant tout comprendre où elles se trouvaient et pouvoir les éviter.
+
+La pierre d'écho ne produisit pas les réactions qu'il attendait. En revanche, son miroir lui permit d'observer un passage latéral sans s'exposer inutilement.
+
+Il découvrit ensuite qu'une araignée pouvait hésiter devant son illusion lorsque celle-ci apparaissait dans une zone éclairée.
+
+Une hésitation suffisait parfois.
+
+Il essaya Marionnettiste sur l'une des créatures.
+
+Le pouvoir échoua.
+
+Il dut reculer.
+
+La deuxième tentative, effectuée au cours d'une autre rencontre, produisit un résultat bien différent. L'araignée influencée abandonna momentanément son intérêt pour Zeki et se précipita vers une autre créature.
+
+Les deux monstres se heurtèrent.
+
+Zeki contempla la scène.
+
+Puis il regarda son arbalète.
+
+Quelques semaines auparavant, il aurait commencé par établir une liste des accessoires qui pourraient lui permettre de combattre ces araignées.
+
+Cette fois, il avait déjà suffisamment de possibilités pour improviser.
+
+Il remporta plusieurs affrontements sans avoir à rester longtemps à proximité des créatures.
+
+Il récupéra de modestes fragments de leurs enveloppes translucides, ainsi que quelques fils aux reflets argentés.
+
+Il se demanda ce que le forgeron pourrait en faire.
+
+***
+
+La dixième espèce lui fit perdre une bonne partie de son assurance.
+
+Le Minotaure de pierre était plus grand que les autres monstres qu'il avait affrontés. Des plaques minérales recouvraient une partie de son corps. Chaque pas faisait entendre un bruit lourd.
+
+Zeki contempla sa petite épée.
+
+Il la rangea.
+
+Il contempla ensuite son bouclier.
+
+Il le rangea également.
+
+— Certainement pas.
+
+Il étudia les environs et observa plusieurs créatures depuis un passage éloigné.
+
+Il ne lui fallut pas longtemps pour comprendre qu'un affrontement direct serait particulièrement coûteux.
+
+Il tenta d'exercer Marionnettiste sur l'une d'elles.
+
+Le monstre se tourna brusquement vers lui.
+
+Le pouvoir n'avait pas fonctionné.
+
+Zeki sentit aussitôt le besoin de vérifier une autre de ses acquisitions.
+
+Il prit la fuite.
+
+Une inscription bleue apparut.
+
+**Lâcheté calculée : active.**
+
+Il sentit sa vitesse augmenter.
+
+Il atteignit la galerie précédente beaucoup plus rapidement qu'il ne l'aurait cru possible.
+
+Le Minotaure finit par renoncer à le poursuivre.
+
+Zeki s'appuya contre une paroi, reprit son souffle et éclata de rire.
+
+— Qu'est-ce que c'est pratique !
+
+Il nota l'observation.
+
+Jamais il n'avait été aussi satisfait d'avoir abandonné un combat.
+
+Il revint plus tard.
+
+Il passa du temps à examiner les déplacements des Minotaures et à vérifier les réactions de plusieurs individus.
+
+Lorsqu'il parvint enfin à influencer l'un d'entre eux, il n'eut pas immédiatement conscience du résultat.
+
+Le monstre avait cessé de s'intéresser à sa présence.
+
+Il regardait un autre Minotaure.
+
+Puis les deux créatures se heurtèrent avec un bruit terrible.
+
+Zeki se réfugia dans un endroit d'où il pouvait suivre l'affrontement.
+
+Les impacts résonnaient dans toute la galerie. Des morceaux de roche roulaient sur les dalles.
+
+Il avait l'impression d'assister à un combat destiné à une équipe entière d'aventuriers.
+
+Sauf qu'il n'avait encore dépensé aucun projectile.
+
+L'influence magique se dissipa avant la fin de l'affrontement. Mais les deux Minotaures étaient désormais engagés l'un contre l'autre et ne cessèrent pas immédiatement de se battre.
+
+Zeki les observa jusqu'à ce que l'un d'eux s'effondre.
+
+**Expérience acquise.**
+
+Il serra les poings.
+
+— Oui !
+
+Le survivant était encore dangereux. Zeki n'avait aucune intention de l'affronter à proximité.
+
+Il attendit une occasion favorable. Son double lui procura une distraction supplémentaire et il put profiter de l'affaiblissement de la créature pour achever le combat avec son arbalète.
+
+Lorsque le second Minotaure tomba, il s'assit sur une pierre.
+
+Il avait encore du mal à croire ce qu'il venait d'accomplir.
+
+Deux créatures qu'il n'aurait jamais osé affronter quelques jours plus tôt venaient de lui rapporter de l'expérience et des ressources.
+
+Il sortit son carnet.
+
+Il calcula ses dépenses.
+
+Puis il recommença.
+
+Le résultat lui plut énormément.
+
+***
+
+Au fil de ses sorties, Zeki constata que ses gains augmentaient rapidement.
+
+Ses nouvelles capacités lui permettaient parfois de revenir avec davantage de ressources en dépensant beaucoup moins.
+
+Le marchand lui trouva un acheteur pour une partie des fils spectraux. Le forgeron conserva un échantillon pour examiner ses propriétés et accepta de lui céder définitivement le grappin à un tarif tenant compte des essais déjà réalisés.
+
+Zeki ne l'acheta pas immédiatement. Il venait de consacrer une somme importante à ses compétences.
+
+Ils convinrent simplement du prix auquel il pourrait l'acquérir lorsqu'il aurait reconstitué ses économies.
+
+Chez Edrin, Zeki étala ses notes.
+
+Il lui parla des deux dernières espèces, de ses nouveaux talents et des différences qu'il avait observées dans ses gains d'expérience.
+
+— J'ai l'impression de progresser un peu plus vite que ce que j'avais prévu.
+
+Edrin examina ses relevés.
+
+— Tu combats des monstres plus puissants et tu as changé ta manière de les affronter. Il est difficile de comparer exactement tes sorties actuelles avec les précédentes.
+
+— C'est vrai.
+
+L'érudit lui conseilla de continuer ses relevés avant de tirer une conclusion.
+
+Zeki acquiesça.
+
+Il n'y voyait pour l'instant qu'une raison supplémentaire de poursuivre ses expéditions.
+
+***
+
+La dernière fois qu'il revint dans le territoire des Minotaures, il n'avait pas l'intention de remplir un contrat.
+
+Il voulait voir ce qui se trouvait au-delà.
+
+Il évita plusieurs créatures et ne combattit que lorsqu'il ne trouva pas d'autre solution. Puis la galerie s'élargit.
+
+Deux grandes portes apparurent au loin.
+
+Elles étaient entrouvertes.
+
+Zeki s'arrêta.
+
+Des voix lui parvenaient de l'autre côté d'un pilier.
+
+Il reconnut la cape rouge avant même de distinguer le visage de celui qui la portait.
+
+Les quatre aventuriers étaient réunis devant l'entrée.
+
+Le gardien vérifiait son bouclier. La mage discutait avec le soigneur. Leur chef observait l'ouverture des portes, une main sur la garde de son épée.
+
+Zeki se dissimula derrière un relief.
+
+Il n'avait pas envie de les déranger.
+
+Mais il avait très envie de savoir comment ils comptaient affronter le gardien de cet étage.
+
+Le chef de l'équipe fit signe aux autres d'avancer.
+
+Les quatre silhouettes franchirent le seuil.
+
+Zeki attendit.
+
+Puis il s'approcha à son tour, sans faire de bruit.
+
+***
+
+À la surface, Lina venait de terminer le récit de leur première victoire indirecte contre les loups.
+
+Une dizaine de personnes s'étaient rapprochées. D'autres écoutaient depuis les tables voisines.
+
+Le coéquipier des deux aventurières les regardait avec une expression indéchiffrable.
+
+— Vous avez vraiment vécu tout ça pendant que j'étais en train de me remettre de ma blessure ?
+
+Mira sourit.
+
+— Et encore. On ne t'a pas raconté l'histoire du mur.
+
+Un aventurier plus âgé, qui jusque-là n'avait pas pris part à la conversation, posa sa chope.
+
+— Quel mur ?
+
+Lina se tourna vers Mira.
+
+— Tu leur racontes ?
+
+Mira se redressa.
+
+— D'accord. Mais d'abord, il faut que vous compreniez pourquoi Zeki a acheté une pioche.
+
+Autour de la table, les dernières conversations s'interrompirent.
