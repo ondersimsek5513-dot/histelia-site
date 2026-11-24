@@ -7168,3 +7168,691 @@ Mira regarda le cristal, puis Zeki.
 À quelques pas d'eux, le gardien au bouclier rond se leva lentement.
 
 Plus personne ne parlait.
+
+## Tome 1 — Chapitre 15 : La naissance d'une réputation
+
+L'hôtesse tendit la main vers le cristal, puis s'arrêta.
+
+— Zeki, tu permets ?
+
+— Bien sûr.
+
+Elle prit l'objet et le déposa sur une petite plaque enchantée, derrière le comptoir. Une lueur orangée se répandit à la surface de la plaque. Quelques caractères apparurent, qu'elle consulta attentivement.
+
+Elle recommença la vérification.
+
+Zeki commença à s'inquiéter.
+
+— Ce n'est pas le bon ?
+
+— Si. C'est bien le cristal du gardien du premier étage.
+
+Elle leva les yeux.
+
+— Avec quelle équipe as-tu effectué cette expédition ?
+
+— Aucune.
+
+Elle attendit la suite.
+
+— J'étais seul, précisa-t-il.
+
+Le gardien au bouclier rond s'approcha du comptoir.
+
+— Attends un peu. Tu parles bien du Cyclope ?
+
+Zeki reconnut l'homme.
+
+— Oui.
+
+— Celui avec le marteau ?
+
+— Oui.
+
+Le gardien se tourna vers ses compagnons.
+
+La mage avait cessé d'examiner son équipement. Le soigneur, debout derrière elle, semblait chercher quelque chose à dire. Leur chef s'approcha à son tour.
+
+— Nous venons de l'affronter.
+
+— Je sais.
+
+Le chef fronça les sourcils.
+
+Zeki comprit qu'il aurait probablement dû s'exprimer autrement.
+
+— Enfin... Je vous ai vus combattre.
+
+— Tu étais dans la salle ?
+
+— Près de l'entrée.
+
+Il y eut un nouveau silence.
+
+— Tu as terminé le combat après notre départ ?
+
+— Il avait récupéré. Ses blessures se sont refermées quand vous êtes sortis.
+
+La mage se redressa.
+
+— Toutes ses blessures ?
+
+— Celles que je pouvais voir, oui.
+
+Elle échangea un regard avec le soigneur. Cette information semblait l'intéresser au moins autant que le cristal.
+
+Le chef regarda Zeki de haut en bas. Son regard s'arrêta sur le petit bouclier, puis sur l'arbalète.
+
+— Comment as-tu encaissé ses attaques ?
+
+Zeki réfléchit un instant.
+
+— Je n'ai pas eu besoin de les encaisser.
+
+Mira, qui s'était approchée avec Lina, eut un sourire.
+
+— Ah. Là, ça commence à devenir intéressant.
+
+Zeki sortit son carnet. Il l'ouvrit à la page sur laquelle il avait dessiné la salle du gardien.
+
+— Il y a une corniche ici. Je l'ai remarquée pendant votre combat. Elle est assez haute pour que le marteau ne puisse pas l'atteindre.
+
+Il montra le renfoncement.
+
+— Je me suis installé là.
+
+Le gardien ouvrit la bouche.
+
+— Tu l'as combattu depuis le haut du mur ?
+
+— Oui.
+
+— Pendant tout le combat ?
+
+— Oui.
+
+Lina se pencha sur le dessin.
+
+— Avec ton grappin ?
+
+Zeki acquiesça, soulagé de pouvoir répondre à une personne qu'il connaissait mieux.
+
+— Et beaucoup de carreaux.
+
+— Combien de temps ?
+
+— Assez longtemps. J'ai même dû m'arrêter pour manger.
+
+Mira émit un drôle de bruit.
+
+Elle tenta de le dissimuler derrière sa main, mais Lina se mit à rire à son tour.
+
+— Pardon, dit Mira. Tu as mangé pendant que le Cyclope essayait de te tuer ?
+
+— J'avais faim.
+
+Le coéquipier des deux femmes détourna la tête. Ses épaules tremblaient.
+
+Le chef à la cape rouge, lui, ne riait pas.
+
+— Et il est resté en dessous de toi tout ce temps ?
+
+— Presque. Il cherchait à m'atteindre. Il était très énervé.
+
+Zeki se souvint de son marteau.
+
+— Surtout après la colle.
+
+Mira releva la tête.
+
+— Quelle colle ?
+
+Le garçon sortit l'une des capsules qui lui restaient.
+
+Le marchand s'approcha aussitôt.
+
+***
+
+Il fallut un certain temps à Zeki pour expliquer l'origine de sa dernière invention.
+
+Il raconta le filet endommagé, l'aide de l'alchimiste et les propriétés des sécrétions spectrales. Puis il expliqua comment le Cyclope s'était retrouvé avec un morceau de dalle attaché à son marteau.
+
+Cette fois, même le soigneur eut du mal à réprimer un sourire.
+
+Le gardien regardait la capsule avec une expression étrange.
+
+Quelques heures plus tôt, il avait cru que son bras allait céder sous les coups de cette même arme.
+
+— Tu lui as collé son marteau au sol, murmura-t-il.
+
+— Pas très longtemps.
+
+— Mais tu l'as fait.
+
+— Oui.
+
+Le gardien s'assit.
+
+Mira se détourna pour rire de nouveau.
+
+Zeki commençait à regretter d'avoir raconté autant de détails. Il n'avait jamais parlé devant autant de personnes. Il chercha du regard l'hôtesse, espérant qu'elle lui rendrait rapidement ses documents.
+
+Un aventurier aux cheveux grisonnants, assis près d'une colonne, prit alors la parole.
+
+— Montre-moi ton dessin.
+
+Zeki lui tendit le carnet.
+
+L'homme portait une armure usée, réparée à plusieurs endroits. Une longue cicatrice traversait le dos de sa main. Il ne manifesta aucune surprise devant le nombre de notes dont les marges étaient couvertes.
+
+— Tu avais une voie de repli ?
+
+— Oui. J'avais vérifié avant de commencer.
+
+— Et si le gardien avait quitté la salle ou attaqué la corniche ?
+
+— J'aurais abandonné.
+
+L'homme observa la carte encore un instant.
+
+— C'est une bonne réponse.
+
+Il rendit le carnet.
+
+— La plupart des gens ne retiennent que la partie drôle de ton histoire. Mais tu as commencé par regarder un combat que tu n'aurais pas pu mener de la même manière. Ensuite, tu as choisi les conditions dans lesquelles tu pouvais gagner.
+
+Il se tourna vers les autres.
+
+— Il n'a pas vaincu le Cyclope parce qu'il était plus fort que lui. Il a évité d'avoir à le devenir.
+
+Le chef à la cape rouge croisa les bras.
+
+— Ça ne fonctionnera pas contre tous les gardiens.
+
+— Certainement pas, répondit l'homme. Ce qui fonctionnera, c'est de chercher ce qui est possible avant de tirer son épée.
+
+La mage demanda à Zeki si le Cyclope avait changé de comportement lorsque sa cuirasse s'était fissurée. Le garçon lui indiqua ce qu'il avait observé.
+
+Elle prit elle-même quelques notes.
+
+Le soigneur s'intéressa plutôt à la récupération du monstre après leur retraite.
+
+Quant au gardien, il regarda une dernière fois la capsule.
+
+— J'aimerais quand même bien voir ça.
+
+Zeki lui sourit timidement.
+
+Le chef resta silencieux un moment. Puis il rejoignit ses compagnons.
+
+Ils avaient encore un combat à préparer.
+
+Mais cette fois, la mage ne semblait pas vouloir retourner dans la salle avec exactement le même plan.
+
+***
+
+L'hôtesse invita Zeki à la suivre vers une partie plus calme du comptoir.
+
+Elle inscrivit son nom dans un registre différent de celui des contrats ordinaires.
+
+— Ta victoire est enregistrée. Tu peux désormais accéder au deuxième étage.
+
+Zeki regarda la ligne qu'elle venait de remplir.
+
+Il se souvenait de sa première visite à la Guilde. Il avait passé un long moment devant les équipes en espérant que quelqu'un lui proposerait de les rejoindre.
+
+Il n'avait alors possédé ni classe spécialisée ni équipement digne de ce nom.
+
+Aujourd'hui, son nom figurait parmi ceux des aventuriers ayant vaincu un gardien.
+
+Et il avait réussi seul.
+
+L'hôtesse déposa une bourse sur le comptoir.
+
+— Il y a aussi une prime pour ta première victoire contre un gardien d'étage.
+
+Zeki en estima le contenu.
+
+Il la regarda de nouveau.
+
+— Tout ça ?
+
+Elle sourit.
+
+— Tout ça.
+
+La somme représentait bien davantage que ce qu'il avait gagné lors de ses premières expéditions réunies. Il pouvait enfin régler le grappin, renouveler ses consommables et disposer encore d'une réserve confortable.
+
+Il ouvrit son sac.
+
+— J'ai aussi trouvé ces objets. Je ne sais pas exactement ce qu'ils font.
+
+Il sortit le bracelet gravé et l'objet qui avait été enveloppé de lumière dans le coffre. Ce dernier ressemblait maintenant à un anneau d'argent parcouru d'un mince fil bleu.
+
+L'hôtesse lui indiqua le bureau d'expertise.
+
+Une employée y examina les deux pièces avec un cristal d'identification. Elle lui demanda de patienter pendant que les enchantements devenaient lisibles.
+
+Elle commença par le bracelet.
+
+**Bracelet du Cyclope — Équipement rare.**
+
+**Résistance physique : +20 %.**
+
+Zeki le passa autour de son poignet.
+
+Il n'avait aucune envie de vérifier son efficacité en recevant un coup de marteau. Mais il était ravi de posséder enfin un équipement susceptible de lui éviter certaines blessures.
+
+L'employée passa ensuite à l'anneau.
+
+**Anneau de célérité magique — Équipement rare.**
+
+**Délai de réutilisation des compétences : −25 %.**
+
+Zeki relut l'inscription.
+
+— De toutes mes compétences ?
+
+— De celles qui possèdent un délai de réutilisation et qui peuvent bénéficier de l'enchantement. Il ne prolonge pas leur durée et ne dispense pas de remplir leurs conditions.
+
+Il songea aussitôt à Marionnettiste.
+
+Puis à Métamorphose.
+
+Puis à Leurre.
+
+Le bracelet lui avait fait plaisir.
+
+L'anneau lui donna envie de retourner immédiatement dans le donjon.
+
+Il se força à rester assis jusqu'à la fin de l'expertise.
+
+Les fragments de fer laissés par le Cyclope étaient également de bonne qualité. L'employée lui conseilla de les confier à un artisan avant d'envisager de les vendre. Certains matériaux rares avaient davantage de valeur une fois travaillés.
+
+Zeki rangea les fragments.
+
+Il venait de trouver une nouvelle raison d'aller à la forge.
+
+***
+
+Ce ne fut qu'après avoir quitté le bureau d'expertise qu'il consulta attentivement les notifications de sa victoire.
+
+Il avait été trop occupé à récupérer le butin et à rentrer pour examiner chacune d'elles.
+
+Il retrouva les messages de progression, puis celui de son exploit solitaire.
+
+Une ligne supplémentaire était disponible.
+
+**Récompense individuelle : compétence acquise.**
+
+**Main invisible — Niveau 1.**
+
+**Permet de déplacer à distance un objet léger et libre de ses mouvements, dans la limite de la portée et de la maîtrise de l'utilisateur.**
+
+Zeki s'arrêta au milieu du couloir.
+
+Il lut la description une seconde fois.
+
+Puis une troisième.
+
+Il sortit une petite pièce de monnaie et la posa sur le rebord d'une fenêtre.
+
+Il tendit la main.
+
+La pièce trembla.
+
+Elle se souleva légèrement.
+
+Zeki cessa de respirer.
+
+La pièce retomba.
+
+Il recommença après un court instant, cette fois avec davantage de concentration.
+
+Elle glissa vers lui, s'éleva de quelques centimètres et finit dans sa paume.
+
+Il regarda la pièce.
+
+— Non...
+
+Il la reposa plus loin.
+
+Cette fois, elle vint directement jusqu'à sa main.
+
+— Mais c'est formidable !
+
+Une employée qui traversait le couloir lui lança un regard surpris.
+
+Zeki baissa aussitôt la voix.
+
+Il essaya avec son carnet. Celui-ci bougea un peu, mais ne s'éleva pas. Son sac magique ne réagit pratiquement pas.
+
+La capacité semblait donc limitée aux objets véritablement légers. Il n'arrivait pas non plus à déplacer plusieurs objets simultanément, et il perdait le contrôle lorsqu'il détournait trop longtemps son attention.
+
+Ces limitations ne diminuèrent en rien son enthousiasme.
+
+Il n'avait jamais souhaité soulever des montagnes.
+
+Il pensait à son grelot.
+
+À sa pierre d'écho.
+
+Aux petits accessoires qu'il devait jusqu'ici déposer lui-même là où il voulait les utiliser.
+
+Il imagina un objet se déplaçant tout seul pendant qu'un monstre suivait son double.
+
+Il sourit.
+
+Puis il imagina deux objets, utilisés l'un après l'autre.
+
+Il sourit davantage.
+
+— Il faut vraiment que je retourne au donjon.
+
+***
+
+Il n'en eut pas immédiatement l'occasion.
+
+Le lendemain matin, le marchand l'attendait devant son étal.
+
+— Il paraît que tu as inventé quelque chose qui colle les marteaux au sol.
+
+Zeki rougit.
+
+— Ce n'était pas vraiment le but au départ.
+
+— Tant mieux. Je doute que beaucoup de mes clients veuillent spécifiquement immobiliser le marteau d'un Cyclope.
+
+Le marchand lui expliqua que plusieurs aventuriers s'étaient renseignés sur les capsules adhésives depuis la veille. D'autres demandaient où se procurer le lance-filet dont ils avaient entendu parler.
+
+— J'ai discuté avec le forgeron et l'alchimiste. Nous pourrions proposer quelques accessoires à la vente, si les essais sont concluants.
+
+Zeki regarda le marchand.
+
+— Vous voulez vendre mes bombes collantes ?
+
+— Je veux vendre des bombes collantes que nous savons fabriquer correctement. Et te rémunérer pour ta contribution.
+
+Le garçon resta silencieux.
+
+Il avait toujours considéré ses inventions comme des moyens de résoudre ses propres problèmes. Il n'avait pas imaginé que ces mêmes problèmes puissent intéresser d'autres aventuriers.
+
+Le marchand sortit un document.
+
+Il ne s'agissait pas encore d'une grande entreprise. L'idée était de produire une petite série de capsules et quelques lance-filets, de vérifier la demande et de partager une partie des bénéfices des modèles auxquels Zeki avait contribué.
+
+Les artisans seraient rémunérés pour leur fabrication. Le marchand s'occuperait de la vente. Zeki apporterait ses observations et les résultats de ses essais.
+
+— Tu n'as pas besoin de rester derrière mon comptoir, ajouta-t-il. Tu continueras à faire ce que tu fais déjà.
+
+— Et je gagnerai de l'argent sur les ventes ?
+
+— Si nous en réalisons, oui.
+
+Zeki contempla le document.
+
+— Même si je suis en train de dormir ?
+
+Le marchand eut un rire bref.
+
+— Même si tu es en train de dormir.
+
+Zeki se mit à sourire.
+
+Il demanda cependant si les clients seraient informés des limites des accessoires. Il se souvenait très bien de son premier filet et de la manière dont il avait réussi à s'y prendre lui-même.
+
+Le marchand hocha la tête.
+
+— Nous devrons leur expliquer à quoi servent les objets. Je ne tiens pas à récupérer des équipements cassés tous les matins.
+
+Ils convinrent de commencer modestement, avec des comptes séparés pour chaque produit et un partage des bénéfices fixé avant sa mise en vente. Ils feraient le point après les premières commandes.
+
+Zeki signa l'accord de principe.
+
+Il n'avait pas encore gagné la moindre pièce grâce à cette activité.
+
+Mais il trouva l'idée extrêmement séduisante.
+
+***
+
+À la forge, le forgeron souleva un fragment du Cyclope avec une pince.
+
+Il l'examina, le retourna et observa la lumière qui parcourait ses irrégularités.
+
+— Tu as rapporté de belles choses.
+
+Zeki régla le prix du grappin qu'ils avaient convenu auparavant.
+
+Le forgeron lui tendit l'outil.
+
+— Cette fois, il est à toi.
+
+Zeki le prit avec satisfaction.
+
+Il avait désormais suffisamment utilisé cet accessoire pour savoir qu'il ne pouvait plus vraiment s'en passer.
+
+Il lui parla ensuite de sa nouvelle compétence.
+
+— Je peux déplacer de petits objets sans les toucher.
+
+Le forgeron haussa les sourcils.
+
+Zeki fit glisser un petit anneau métallique jusqu'au bord de l'établi.
+
+L'artisan le regarda faire.
+
+— Recommence.
+
+Zeki s'exécuta.
+
+Le forgeron récupéra l'anneau, puis fouilla dans une caisse de pièces inutilisées.
+
+— Il faudrait voir ce que tu pourrais faire avec ça.
+
+Il lui présenta un minuscule loquet, une petite bague de fixation et quelques pièces légères provenant d'anciens mécanismes.
+
+Zeki les observa.
+
+Il comprit que le forgeron n'envisageait pas seulement de lui vendre des objets adaptés à sa capacité. Il cherchait déjà à concevoir des mécanismes susceptibles d'être actionnés sans qu'une main humaine se trouve à proximité.
+
+Ils passèrent un moment à déplacer de petites pièces sur l'établi.
+
+Zeki échoua à faire pivoter un loquet trop résistant.
+
+Le forgeron en choisit un autre.
+
+Cette fois, le mouvement fonctionna.
+
+— Intéressant, murmura l'artisan.
+
+Il dessina quelques lignes sur une feuille.
+
+Zeki se pencha à côté de lui.
+
+— On pourrait essayer de faire quelque chose qui s'ouvre à distance ?
+
+— Peut-être. Mais il faudra que tu sois capable de reproduire ce que tu viens de faire.
+
+Ils essayèrent encore.
+
+Le résultat n'était pas suffisamment fiable pour construire immédiatement un nouvel équipement.
+
+Ils avaient néanmoins plusieurs idées à examiner.
+
+Le forgeron conserva aussi une partie du fer du Cyclope pour étudier les possibilités d'améliorer le matériel de Zeki, sans s'engager encore sur une arme précise.
+
+Pour la première fois, le garçon quitta la forge avec l'impression qu'ils avaient tous les deux du travail à faire.
+
+***
+
+Edrin écouta le récit de la victoire sans l'interrompre.
+
+Il posa seulement quelques questions lorsque Zeki lui montra la carte.
+
+— Tu as observé une récupération après la retraite de l'équipe ?
+
+— Oui.
+
+— Et tu n'as pas constaté le même phénomène pendant ton propre combat ?
+
+— Non. Tant que je continuais à tirer.
+
+L'érudit inscrivit cette distinction dans ses notes.
+
+Il s'intéressa aussi aux récompenses. Zeki lui montra le bracelet, l'anneau et sa nouvelle compétence.
+
+Edrin lui tendit un petit morceau de papier.
+
+— Essaie de le déplacer jusqu'à cette table.
+
+Le papier se souleva, oscilla et tomba à mi-chemin.
+
+Zeki grimaça.
+
+— Les pièces sont plus faciles.
+
+— Alors il faudra comprendre pourquoi.
+
+Ils notèrent plusieurs essais, sans chercher à leur attribuer immédiatement une explication.
+
+Edrin regarda ensuite les carnets accumulés depuis la première expédition de Zeki.
+
+— Sais-tu que tes relevés commencent à former une documentation assez intéressante ?
+
+— Sur le premier étage ?
+
+— Oui. Les archives contiennent beaucoup de descriptions des créatures. En revanche, les aventuriers notent rarement ce qui arrive lorsqu'ils essaient des choses qui paraissent inutiles.
+
+Zeki regarda ses pages.
+
+Une grande partie concernait effectivement des expériences ratées.
+
+— Vous voulez les conserver ?
+
+— Avec ton accord. Nous pourrions comparer tes observations avec les rapports existants.
+
+Le garçon acquiesça.
+
+Il était heureux que ses notes puissent servir à autre chose qu'à préparer ses propres sorties.
+
+Puis il posa la question qui l'intéressait depuis la veille.
+
+— Combien y a-t-il exactement d'étages ?
+
+Edrin se leva et revint avec un registre épais.
+
+— Le donjon en compte dix d'après les informations dont nous disposons.
+
+Il déplia une carte. Les premiers espaces y étaient relativement détaillés. Plus bas, les itinéraires devenaient fragmentaires.
+
+— Certains aventuriers expérimentés ont atteint le sixième ou le septième étage. Leurs témoignages nous permettent d'en connaître une partie.
+
+Zeki suivit les lignes jusqu'aux derniers espaces.
+
+— Et le dixième ?
+
+— Nous en savons très peu.
+
+— Personne n'a battu son gardien ?
+
+Edrin secoua la tête.
+
+— Personne n'a jamais atteint le dernier gardien. Du moins, aucun témoignage fiable ne permet de l'établir.
+
+Zeki observa l'espace presque vide au bas de la carte.
+
+— Depuis combien de temps les aventuriers essaient-ils ?
+
+— Depuis bien plus longtemps que toi et moi ne sommes en vie.
+
+Le garçon demeura silencieux.
+
+Il avait passé tant de temps à comprendre le premier étage qu'il avait parfois oublié que celui-ci n'était que le début.
+
+Il regarda ses propres cartes, les annotations serrées, les erreurs corrigées.
+
+Puis les espaces inconnus de celle d'Edrin.
+
+Il éprouva une curiosité qu'il ne parvenait pas vraiment à expliquer.
+
+— J'aimerais bien voir ce qu'il y a là-bas.
+
+Edrin replia la carte.
+
+— Commence par le deuxième étage.
+
+Zeki sourit.
+
+— Oui. Vous avez raison.
+
+***
+
+Deux jours plus tard, Zeki traversa de nouveau les galeries du premier étage.
+
+Il avait renouvelé une partie de son matériel et consacré plusieurs heures à s'exercer avec Main invisible.
+
+Il pouvait désormais déplacer son grelot avec une régularité raisonnable, à condition qu'il reste assez proche de lui. Son anneau lui permettait aussi de réutiliser plus rapidement ses compétences habituelles.
+
+Il n'avait pas encore trouvé toutes les combinaisons qu'il souhaitait essayer.
+
+Il en avait inscrit une douzaine dans son carnet.
+
+Il franchit le passage réservé aux aventuriers ayant vaincu le gardien. L'autorisation enregistrée à la Guilde était reconnue par le système.
+
+**Accès au deuxième étage autorisé.**
+
+Un escalier s'enfonçait dans la roche.
+
+Zeki descendit.
+
+Il s'attendait à trouver d'autres galeries, peut-être plus grandes ou plus profondes que celles qu'il connaissait.
+
+L'air changea avant même qu'il ne distingue la fin de l'escalier.
+
+Il était plus humide.
+
+Une odeur de terre et de végétation remplaçait progressivement celle de la pierre.
+
+Zeki accéléra légèrement.
+
+Puis il s'arrêta.
+
+Devant lui s'étendait une immense forêt.
+
+Des arbres gigantesques s'élevaient jusqu'à une voûte si haute qu'il ne pouvait en distinguer tous les reliefs. Des cristaux diffusaient une lumière douce entre leurs branches. De longues plantes pendaient dans le vide, au-dessus de passages étroits et de dépressions couvertes de mousse.
+
+Quelque part, de l'eau coulait.
+
+Des silhouettes se déplaçaient entre les feuillages.
+
+L'une d'elles bondit d'un arbre à l'autre avec une rapidité qui lui fit aussitôt oublier les loups du premier étage.
+
+Zeki recula d'un pas.
+
+Il étudia les branches, les rochers, les lianes et les espaces entre les troncs.
+
+Puis il posa la main sur son grappin.
+
+Il imagina les endroits où il pourrait se déplacer.
+
+Les objets qu'il pourrait faire bouger sans les toucher.
+
+Les créatures qu'il pourrait observer depuis des positions auxquelles elles ne s'attendraient pas.
+
+Une nouvelle silhouette passa au-dessus de lui.
+
+Zeki leva les yeux.
+
+Il n'avait encore effectué aucun pas dans la forêt, et il venait déjà de constater qu'il devrait apprendre à surveiller bien plus que le sol.
+
+Il ouvrit son carnet sur une page vierge.
+
+En haut, il écrivit :
+
+**Deuxième étage.**
+
+Il resta un moment à contempler les arbres.
+
+Puis, avec un sourire qu'il ne parvenait pas à retenir, il ajouta :
+
+**Il y a énormément de choses à essayer.**
