@@ -10304,3 +10304,1043 @@ Zeki pensa à sa nouvelle compétence de mémoire, à ses futurs essais dans la 
 Il avait hâte de reprendre ses aventures.
 
 Il n'était pas le seul.
+
+## Tome 1 — Chapitre 21 : La nouvelle clientèle
+
+Zeki découvrit qu'il était possible de faire la queue pour acheter un morceau de corde.
+
+Il n'aurait probablement pas été surpris de voir autant de monde devant la Guilde. Depuis la mort du dragon, les gens ne cessaient de s'y rendre.
+
+En revanche, il ne comprenait pas pourquoi une vingtaine de personnes attendaient devant la boutique du marchand.
+
+Il reconnut un homme qui travaillait habituellement dans une auberge, une femme qu'il avait aperçue parmi les couturières mobilisées pour la défense et deux jeunes aventuriers.
+
+Il tenta de rejoindre la porte.
+
+— Hé ! Il y a une file !
+
+Zeki s'arrêta.
+
+— Je voulais seulement...
+
+L'homme qui venait de l'interpeller le reconnut.
+
+— Attendez. C'est lui !
+
+Plusieurs têtes se tournèrent.
+
+— Vous en avez encore ?
+
+— Pardon ?
+
+— Des filets ! Le marchand dit qu'il n'en a plus.
+
+— Je peux vous en commander un ? demanda une femme.
+
+Un autre client s'approcha.
+
+— Est-ce que les fumigènes que vous utilisez sont les mêmes que ceux qu'on vend près de la porte nord ?
+
+Zeki recula légèrement.
+
+Il n'avait aucune idée de ce que l'on vendait près de la porte nord.
+
+Heureusement, le marchand apparut derrière le comptoir.
+
+— Laissez-le entrer, je vous prie. Si vous voulez que nous ayons de nouveaux articles, il faut bien que je puisse discuter avec lui.
+
+Les clients s'écartèrent.
+
+Zeki franchit la porte avec un sentiment de soulagement.
+
+— Bonjour, dit le marchand.
+
+Il désigna la foule.
+
+— Voilà ce qui arrive quand on se sert d'une ville entière pour faire la démonstration de ses produits.
+
+***
+
+Les étagères avaient considérablement changé depuis sa dernière visite.
+
+Plusieurs étaient vides.
+
+Sur d'autres, le marchand avait disposé de petits écriteaux indiquant que de nouvelles livraisons étaient attendues.
+
+Zeki trouva encore quelques cordes, des pierres d'écho, des miroirs et des accessoires ordinaires.
+
+En revanche, les capsules adhésives avaient presque toutes disparu.
+
+— Vous avez vraiment vendu autant de choses ?
+
+Le marchand lui tendit un registre.
+
+— Regarde.
+
+Zeki l'ouvrit.
+
+Il reconnut les noms des articles dont ils avaient discuté avant son départ pour le deuxième étage. Chaque vente avait été enregistrée avec le coût de fabrication et les autres dépenses nécessaires à sa commercialisation.
+
+Les artisans avaient été rémunérés conformément à leur accord.
+
+Le marchand avait également réservé une somme pour renouveler les stocks.
+
+Il montra à Zeki le résultat qui revenait à ce dernier.
+
+Le garçon le lut une première fois.
+
+Puis une deuxième.
+
+— C'est à moi ?
+
+— Oui.
+
+— Mais je n'ai rien vendu.
+
+— C'est exact.
+
+— Et je n'ai rien fabriqué non plus.
+
+— Pas directement.
+
+Zeki regarda le registre avec une certaine méfiance.
+
+— Vous êtes sûr que vous n'avez pas oublié de retirer quelque chose ?
+
+Le marchand éclata de rire.
+
+— Tu apportes des idées, tu les mets à l'épreuve, tu nous aides à les améliorer. Nous fabriquons les objets et nous les vendons. C'est ce que nous avons convenu.
+
+Il lui tendit une petite bourse.
+
+Zeki la prit.
+
+Elle n'était pas comparable aux récompenses exceptionnelles qu'il avait obtenues contre le Cyclope et le dragon. Mais elle représentait quelque chose de nouveau.
+
+Il avait gagné de l'argent sans avoir eu à combattre une créature supplémentaire.
+
+Il pensa aux expériences qu'il avait repoussées parce qu'elles nécessitaient trop de matériel.
+
+Aux objets qu'il avait renoncé à acheter.
+
+Aux pièces qu'il avait cassées en essayant de comprendre leur fonctionnement.
+
+Il sourit.
+
+— Si je trouve une autre idée qui fonctionne...
+
+— Nous pourrons en discuter.
+
+— Et si j'en trouve plusieurs ?
+
+Le marchand referma son registre.
+
+— Laisse-nous déjà fabriquer ce que tu as inventé jusqu'à présent.
+
+***
+
+Une partie des clients ne souhaitait cependant pas acheter les objets séparément.
+
+Ils voulaient s'équiper exactement comme Zeki.
+
+Le marchand lui présenta une feuille sur laquelle il avait noté les demandes les plus fréquentes.
+
+Il était notamment question d'un ensemble comprenant un filet, des fumigènes, une pierre d'écho, un miroir et divers accessoires.
+
+— Un équipement de débutant ? demanda Zeki.
+
+— C'est l'idée.
+
+Le garçon examina la liste.
+
+— Il manque des choses.
+
+— Lesquelles ?
+
+Zeki réfléchit.
+
+— De quoi boire. Des provisions. Des bandages. Quelque chose pour s'éclairer.
+
+Le marchand prit sa plume.
+
+— D'autres ?
+
+— De quoi noter ce qu'on a vu. Et ce serait bien qu'ils comprennent comment revenir à l'entrée du donjon.
+
+L'homme ajouta quelques lignes.
+
+— Ce n'est plus exactement le même ensemble.
+
+— Non.
+
+Zeki repensa à ses premières sorties.
+
+Il avait passé beaucoup de temps à découvrir les endroits où il pouvait se reposer, les chemins qu'il pouvait emprunter et les créatures qu'il devait éviter.
+
+Posséder un filet n'aurait pas suffi à lui apprendre ces choses.
+
+— Il faudrait leur expliquer à quoi sert chaque objet, ajouta-t-il.
+
+— Je peux joindre quelques instructions.
+
+— Et ce que l'objet ne peut pas faire.
+
+Le marchand releva la tête.
+
+— Tu veux écrire une liste des défauts de nos produits ?
+
+— Des limites.
+
+L'homme sembla réfléchir à cette distinction.
+
+— D'accord.
+
+Zeki remarqua alors une seconde feuille.
+
+Plusieurs clients souhaitaient acquérir une grande toile adhésive semblable à celles qui avaient été utilisées contre le dragon.
+
+Il regarda le marchand.
+
+— Ils comptent en faire quoi ?
+
+— Je ne sais pas.
+
+— Dans le premier étage ?
+
+— Probablement.
+
+Ils demeurèrent silencieux.
+
+Zeki essaya d'imaginer un aventurier traversant une galerie étroite avec une couverture beaucoup trop grande pour lui.
+
+— Il faudrait peut-être ne pas leur vendre ça.
+
+Le marchand replia la feuille.
+
+— Nous sommes d'accord.
+
+***
+
+En quittant la boutique, Zeki découvrit un étal qu'il ne connaissait pas.
+
+Un homme y vendait des filets ordinaires sous une pancarte sur laquelle était inscrit :
+
+**ÉQUIPEMENT DU DOMPTEUR DE DRAGON.**
+
+Zeki s'arrêta.
+
+Le vendeur le remarqua.
+
+— Jeune homme ! Vous cherchez à devenir aventurier ?
+
+— Je le suis déjà.
+
+— Alors vous connaissez certainement les dernières méthodes de combat. Regardez-moi ces articles !
+
+Il lui présenta un filet.
+
+Zeki l'examina.
+
+Il ressemblait à l'un de ceux que les pêcheurs utilisaient dans la région.
+
+— C'est un filet de pêche ?
+
+— Un filet polyvalent.
+
+— Vous l'avez essayé dans le donjon ?
+
+Le vendeur eut un sourire moins assuré.
+
+— C'est une excellente qualité de filet.
+
+Zeki le lui rendit.
+
+Il ne souhaitait pas empêcher les autres commerçants de vendre des accessoires. Après tout, il avait lui-même utilisé des objets qui n'avaient jamais été conçus pour les aventuriers.
+
+Mais il trouvait étrange qu'un filet puisse changer de nom et de prix simplement parce qu'un dragon avait été vaincu.
+
+Il reprit sa route.
+
+Plus loin, il aperçut une petite boutique dont le propriétaire avait disposé des miroirs, des clochettes et des cordages devant sa vitrine.
+
+Les prix des objets les plus ordinaires semblaient avoir augmenté.
+
+Zeki se demanda combien de temps il faudrait avant que quelqu'un vende des casseroles enchantées pour affronter les Cyclopes.
+
+Il se promit de ne pas en parler au marchand.
+
+***
+
+À la forge, l'écaille maîtresse du dragon occupait toujours une place particulière sur l'établi.
+
+Le forgeron avait disposé autour d'elle plusieurs échantillons de métal.
+
+Il travaillait avec un calme que Zeki ne lui avait pas souvent connu pendant les préparatifs de la défense.
+
+— Alors ? demanda le garçon.
+
+— Alors je comprends pourquoi cette chose a résisté à autant de coups.
+
+L'artisan lui montra un fragment minuscule qu'il avait pu détacher lors des premiers examens.
+
+L'extérieur présentait une dureté considérable. L'intérieur n'avait pas exactement les mêmes propriétés. L'écaille conservait également une partie de son comportement magique, même séparée du reste de la créature.
+
+— Je pourrais essayer de te fabriquer un crochet avec cette matière, expliqua le forgeron. Mais ça ne résoudrait qu'une partie du problème.
+
+Zeki posa son grappin sur l'établi.
+
+— Le reste pourrait casser ?
+
+— Ou toi.
+
+Le garçon releva les yeux.
+
+Le forgeron désigna l'accessoire.
+
+— Suppose que ton grappin soit capable de résister à un dragon. Est-ce que ça signifie que ton bras en est capable ?
+
+Zeki resta silencieux.
+
+Il n'avait pas vraiment envisagé cette question.
+
+L'artisan prit son carnet de dessins.
+
+— Si tu veux un équipement pour les grandes créatures, il faudra qu'on réfléchisse à autre chose qu'à la solidité du crochet. Je préfère te fabriquer un outil moins impressionnant qui te servira longtemps plutôt qu'une merveille dont tu te serviras une seule fois.
+
+Zeki acquiesça.
+
+— On pourrait commencer par voir ce que le matériau peut faire ?
+
+— C'est ce que je fais.
+
+Le garçon sourit.
+
+Il venait de se rappeler sa nouvelle compétence.
+
+— Je peux peut-être vous aider.
+
+Il observa attentivement le petit fragment.
+
+**Analyse avancée — Niveau 1.**
+
+Une fenêtre apparut.
+
+**Fragment d'écaille draconique.**
+
+**Propriété identifiable : résistance magique résiduelle.**
+
+**Autres caractéristiques : identification incomplète.**
+
+Zeki attendit.
+
+Aucune information supplémentaire n'apparut.
+
+— Alors ? demanda le forgeron.
+
+— Il dit que la résistance magique est encore présente.
+
+— Je viens de te le dire.
+
+— Oui.
+
+— Autre chose ?
+
+— Non.
+
+Le forgeron éclata de rire.
+
+— C'est bien, ta nouvelle compétence. Elle confirme que je ne raconte pas n'importe quoi.
+
+Zeki rit également.
+
+Il tenta une nouvelle analyse après avoir examiné les observations de l'artisan. Il obtint une indication supplémentaire sur l'hétérogénéité du matériau, mais aucune mesure précise de sa résistance.
+
+Il nota le résultat.
+
+La compétence semblait lui apporter des indications. Elle ne lui disait pas comment transformer l'écaille ni ce que deviendrait un objet fabriqué avec elle.
+
+Pour le moment, le forgeron demeurait bien plus utile que la fenêtre bleue.
+
+***
+
+Ils passèrent ensuite un moment à examiner le grappin ordinaire.
+
+Zeki évoqua les arbres gigantesques du deuxième étage et la créature qui avait réussi à le suivre en hauteur.
+
+Le forgeron l'écouta.
+
+— Ton nouveau problème, ce n'est pas toujours de monter. C'est de pouvoir revenir.
+
+— Exactement.
+
+L'artisan lui proposa de vérifier l'état de son équipement avant sa prochaine expédition. Il ne souhaitait pas engager de modifications importantes tant que les essais du matériau draconique n'auraient pas suffisamment avancé.
+
+Zeki accepta.
+
+Il récupéra son grappin après les vérifications.
+
+Puis il aperçut, dans un coin de l'atelier, un petit ensemble d'accessoires en cours de réparation.
+
+— C'est à vous ?
+
+— Non. Des clients.
+
+Le forgeron lui montra un lance-filet.
+
+— Celui-là a servi à récupérer un panier coincé sur le toit d'une maison.
+
+— Ça a fonctionné ?
+
+— Oui. Mais il est tombé du toit ensuite.
+
+Zeki examina l'objet.
+
+— Le panier ?
+
+— Le client.
+
+Ils se regardèrent.
+
+— Il va bien ?
+
+— Il a surtout perdu une partie de sa dignité.
+
+Zeki nota qu'il existait manifestement des utilisations de ses inventions auxquelles il n'avait jamais pensé.
+
+***
+
+Le soir, il retrouva Lina et Mira près de la Guilde.
+
+Les deux aventurières revenaient d'une courte expédition avec leurs compagnons.
+
+Lina lui demanda s'il avait réussi à reprendre ses explorations.
+
+— Pas encore.
+
+— Trop occupé à devenir riche ? demanda Mira.
+
+Zeki lui parla des premières ventes.
+
+— Alors, la prochaine fois que tu nous inviteras à manger...
+
+— Je ne vous ai jamais invitées à manger.
+
+— Justement. Il faut bien commencer.
+
+Lina secoua la tête.
+
+Elle lui raconta que plusieurs personnes leur avaient posé des questions sur lui. Certains voulaient savoir comment il avait obtenu ses compétences. D'autres lui attribuaient des victoires dont elle n'avait jamais entendu parler.
+
+— On m'a demandé si tu pouvais devenir invisible, dit-elle.
+
+— Non.
+
+— Et si tu avais réellement domestiqué le dragon.
+
+— Non plus !
+
+Mira sourit.
+
+— Attends encore quelques jours. Tu auras probablement appris à voler.
+
+Zeki regarda les deux jeunes femmes.
+
+Il n'avait pas l'habitude que des inconnus racontent des histoires à son sujet.
+
+Il aurait préféré qu'ils lui demandent directement ce qu'il savait faire.
+
+Il se souvint cependant de ses propres paroles devant la Guilde, lorsqu'il avait raconté sa victoire contre le Cyclope. Les gens avaient surtout retenu le repas, la colle et le marteau.
+
+Ils n'avaient pas tous entendu les longues explications sur l'observation, la préparation et les risques qu'il avait cherché à éviter.
+
+Il se demanda si les accessoires qui se vendaient si bien ne représentaient pas, pour certains, la partie la plus facile à retenir de ses aventures.
+
+***
+
+Avant de rentrer, Zeki passa devant l'entrée de la Guilde.
+
+Une affiche annonçait que les formalités d'inscription prendraient désormais davantage de temps.
+
+Il entendit une discussion à proximité du comptoir.
+
+— Vous avez une équipe ?
+
+— Nous sommes trois.
+
+— Et votre expérience du donjon ?
+
+— Aucune.
+
+— Vos équipements ?
+
+— Nous allons les acheter demain.
+
+L'hôtesse prit une nouvelle feuille.
+
+Zeki reconnut la voix du troisième homme.
+
+C'était Tomas.
+
+Le menuisier l'aperçut et lui adressa un signe enthousiaste.
+
+— Zeki ! Nous allons devenir aventuriers !
+
+Le garçon regarda les deux hommes qui l'accompagnaient.
+
+L'un portait encore un tablier blanc.
+
+L'autre avait les bras couverts de farine.
+
+Zeki ouvrit la bouche.
+
+Puis il la referma.
+
+Il avait pensé que le plus difficile, pour un débutant, était de trouver une équipe.
+
+Il découvrait qu'il existait peut-être une autre difficulté.
+
+Trouver une équipe qui savait ce qu'elle allait faire.
+
+## Tome 1 — Chapitre 22 : Des aventuriers improbables
+
+L'hôtesse regarda les trois hommes qui se tenaient devant son comptoir.
+
+— Reprenons depuis le début.
+
+Elle consulta la fiche du premier.
+
+— Tomas. Menuisier. Titre honorifique : Dompteur de dragon.
+
+— C'est moi.
+
+Elle consulta la deuxième.
+
+— Brann. Boucher.
+
+L'homme au tablier blanc acquiesça.
+
+— C'est moi aussi.
+
+L'hôtesse leva les yeux.
+
+— Vous voulez dire que c'est vous, pas que vous êtes également Tomas ?
+
+— Oui. Pardon.
+
+Elle passa à la troisième fiche.
+
+— Nilo. Boulanger. Dompteur de dragon.
+
+Le dernier homme sourit.
+
+Il avait encore de la farine sur l'une de ses joues.
+
+— J'ai apporté des petits pains, si vous en voulez.
+
+L'hôtesse regarda le panier qu'il venait de poser sur le comptoir.
+
+Puis elle regarda Zeki.
+
+— Tu les connais ?
+
+— Un peu.
+
+Tomas lui adressa un sourire.
+
+— Nous avons décidé de former une équipe.
+
+— Je vois, répondit l'hôtesse. Quelqu'un parmi vous a-t-il déjà combattu dans le donjon ?
+
+Les trois hommes se regardèrent.
+
+— Non, répondit Tomas.
+
+— Quelqu'un sait-il soigner une blessure grâce à la magie ?
+
+— Non.
+
+— Utiliser des sorts de combat ?
+
+— Non plus.
+
+L'hôtesse posa sa plume.
+
+— Quelles compétences souhaitez-vous apporter à votre groupe ?
+
+Brann réfléchit.
+
+— Je sais reconnaître les bonnes pièces de viande.
+
+Nilo ajouta :
+
+— Je peux préparer les repas.
+
+Tomas leva la main.
+
+— Je sais réparer les meubles.
+
+Un long silence suivit.
+
+Zeki considéra les trois hommes.
+
+L'hôtesse reprit sa plume.
+
+— Très bien. Commençons par les formalités individuelles.
+
+***
+
+Depuis la victoire contre le dragon, les employés de la Guilde avaient rencontré des situations auxquelles rien ne les avait préparés.
+
+Il fallait notamment distinguer les personnes auxquelles le système avait déjà ouvert un profil de celles qui souhaitaient devenir aventurières par la procédure habituelle.
+
+Le titre de Dompteur de dragon était à l'origine de nombreuses conversations.
+
+Certains pensaient qu'il leur permettrait d'accéder directement à des missions réservées aux aventuriers expérimentés.
+
+D'autres imaginaient qu'ils avaient reçu une aptitude particulière concernant les dragons.
+
+Un homme avait demandé s'il pouvait acheter un œuf de dragon pour commencer son élevage.
+
+L'hôtesse avait dû lui expliquer qu'il n'avait probablement pas obtenu ce genre de pouvoir.
+
+Les trois nouveaux candidats écoutèrent ses explications.
+
+Tomas avait déjà consulté plusieurs fois sa fenêtre de statut. Il avait reçu un peu d'expérience lors de la défense de la ville, mais ne possédait pas pour autant les connaissances d'un aventurier expérimenté.
+
+Nilo se trouvait dans une situation comparable.
+
+Brann, qui n'avait pas participé à la défense, venait quant à lui accomplir les formalités ordinaires.
+
+— J'ai vu ce qu'ils ont gagné, expliqua-t-il. Et je me suis dit que ça valait peut-être la peine d'essayer.
+
+L'hôtesse lui demanda de ne pas confondre les récompenses exceptionnelles obtenues pendant la défense de la ville avec les gains habituels des débutants.
+
+Il acquiesça.
+
+Elle leur rappela ensuite les risques du donjon, les conditions d'accès et l'importance de ne pas entreprendre une expédition pour laquelle ils n'étaient pas préparés.
+
+Nilo posa une question.
+
+— Est-ce qu'on peut sortir à l'heure du déjeuner ?
+
+— Vous pouvez ressortir quand vous le souhaitez, à condition de pouvoir rejoindre la sortie.
+
+— Parfait.
+
+Il se tourna vers ses compagnons.
+
+— Je vous avais dit qu'on n'était pas obligés d'y passer toute la journée.
+
+L'hôtesse lui adressa un regard fatigué.
+
+***
+
+Zeki retrouva les trois hommes un peu plus tard, dans un coin de la salle.
+
+Brann avait obtenu l'activation de son profil et accompli les vérifications nécessaires. Les trois candidats devaient encore se familiariser avec leurs possibilités.
+
+Nilo consulta sa fenêtre.
+
+— On peut vraiment apprendre d'autres compétences en faisant des choses ?
+
+Zeki acquiesça.
+
+— Certaines s'obtiennent en pratiquant. D'autres peuvent être achetées quand on remplit les conditions nécessaires. Il y a aussi des récompenses particulières.
+
+Brann se pencha.
+
+— Et comment fait-on pour obtenir la même classe que toi ?
+
+— Je n'ai pas eu de classe dominante.
+
+— Oui, justement.
+
+Zeki cligna des yeux.
+
+— Vous voulez ne pas en avoir ?
+
+Tomas hocha la tête.
+
+— Apparemment, c'est très bien.
+
+Zeki se souvint du jour où il avait découvert son aptitude indéterminée. Il avait observé les autres candidats recevoir leurs premières indications avec enthousiasme, tandis qu'il cherchait à comprendre ce qui lui était arrivé.
+
+À l'époque, personne ne lui avait demandé comment obtenir le même résultat.
+
+Il essaya d'expliquer que cette situation ne lui avait offert aucun avantage immédiat.
+
+— Je ne savais pas vraiment quoi faire. Il m'a fallu du temps pour trouver les compétences qui m'intéressaient.
+
+Brann sembla déçu.
+
+— Donc on ne peut pas la choisir ?
+
+— Non.
+
+— Dommage.
+
+Zeki ne put s'empêcher de rire.
+
+Il aurait aimé entendre cette conversation le jour de sa propre inscription.
+
+***
+
+Edrin les avait observés depuis une table voisine.
+
+Lorsqu'ils eurent terminé, il demanda à Zeki de le rejoindre.
+
+L'érudit disposait de plusieurs nouveaux registres.
+
+Il recueillait, avec l'accord des intéressés, des informations sur les profils apparus pendant le combat contre le dragon.
+
+— As-tu remarqué une différence entre Tomas et Brann ?
+
+Zeki réfléchit.
+
+— Brann est passé par les formalités habituelles.
+
+— Exactement.
+
+Edrin lui montra deux relevés.
+
+Les informations accessibles après l'ouverture des profils étaient comparables sur plusieurs points. Pourtant, les circonstances dans lesquelles ils avaient été créés étaient différentes.
+
+Les personnes reconnues par le système pendant la défense de la ville avaient également reçu des récompenses liées à cet événement, ce qui rendait certaines comparaisons difficiles.
+
+— Tu penses que le système a changé ? demanda Zeki.
+
+— Je pense que nous avons observé quelque chose que nous ne comprenons pas encore.
+
+L'érudit feuilleta ses notes.
+
+— Je préfère commencer par là.
+
+Zeki acquiesça.
+
+Edrin lui demanda ensuite de lui décrire précisément les notifications qu'il avait reçues lors de la victoire.
+
+Le garçon ferma les yeux.
+
+Il se concentra sur ce qu'il avait vu.
+
+Il retrouva sans difficulté une partie des mots affichés devant lui. Certains lui revenaient avec une netteté inhabituelle.
+
+D'autres passages demeuraient moins précis.
+
+Il avait été interrompu à plusieurs reprises pendant la lecture.
+
+Il récita ce dont il se souvenait, puis s'arrêta.
+
+— Je crois qu'il manque un mot ici.
+
+Edrin consulta le relevé qu'ils avaient établi précédemment.
+
+Il confirma la plupart des formulations.
+
+— Ta mémoire semble effectivement meilleure.
+
+— Mais je ne me souviens pas de tout.
+
+— Tu n'avais probablement pas prêté la même attention à chaque élément.
+
+Zeki essaya de revoir le visage de toutes les personnes qui se trouvaient près de lui pendant les notifications.
+
+Il n'y parvint pas.
+
+Il se souvenait particulièrement bien de l'expression de Mira lorsqu'elle avait appris qu'il possédait une compétence destinée aux équipes.
+
+Du reste, beaucoup moins.
+
+Il nota cette limite.
+
+Mémoire d'observateur ne lui rendait pas les événements qu'il n'avait pas véritablement observés.
+
+Cette constatation le rassura presque autant qu'elle l'intéressa.
+
+***
+
+Pendant ce temps, de nouvelles équipes se formaient dans la salle principale.
+
+Une couturière discutait avec deux femmes qui travaillaient habituellement dans une blanchisserie. Un ancien palefrenier essayait de convaincre un marchand de légumes de se joindre à lui.
+
+Près de la porte, un homme proposait de s'occuper des comptes de plusieurs groupes en échange d'une petite part de leurs bénéfices.
+
+Il n'avait pas encore prévu de pénétrer lui-même dans le donjon.
+
+Deux aventuriers expérimentés observaient la scène avec étonnement.
+
+— Il y a quelques semaines, dit l'un d'eux, il fallait parfois attendre plusieurs jours pour trouver quelqu'un avec qui partir.
+
+Son compagnon désigna un groupe qui venait de se disputer à propos du partage d'un butin qu'il n'avait pas encore obtenu.
+
+— Maintenant, on attend plusieurs jours pour qu'ils se mettent d'accord.
+
+Zeki sourit.
+
+Il se dirigea vers les trois hommes.
+
+Ils avaient étalé sur une table une liste d'équipements.
+
+Nilo avait consacré une grande partie de la feuille aux provisions.
+
+Brann avait noté plusieurs outils de son métier.
+
+Tomas avait prévu de transporter divers accessoires et pièces de réparation.
+
+Zeki examina la liste.
+
+— Vous comptez emporter tout ça ?
+
+— Oui, répondit Tomas.
+
+— Vous avez un sac magique ?
+
+Les trois hommes se regardèrent.
+
+Ils n'en avaient pas.
+
+Nilo observa sa liste.
+
+— Je peux réduire un peu la quantité de pain.
+
+— Ce serait déjà bien, répondit Brann.
+
+— Mais si nous avons faim ?
+
+Tomas tapota la feuille.
+
+— On ne va pas passer une semaine dans le donjon.
+
+Nilo se tourna vers Zeki.
+
+— Ça t'arrive de manger pendant les combats, non ?
+
+Zeki rougit.
+
+— Ce n'est pas indispensable.
+
+Le boulanger parut presque contrarié.
+
+***
+
+Le lendemain, les trois hommes se retrouvèrent devant la boutique du marchand.
+
+Ils avaient finalement réduit leur liste.
+
+Le marchand leur présenta les équipements adaptés aux premières sorties et leur expliqua les différences entre les articles qu'ils avaient choisis.
+
+Brann s'intéressa à une petite épée.
+
+Il la soupesa, observa sa poignée, puis la reposa.
+
+— Elle est beaucoup moins pratique que mon couteau de travail.
+
+— Ce n'est pas exactement le même usage, répondit le marchand.
+
+Tomas examina les éléments en bois de plusieurs équipements.
+
+Il s'intéressa notamment à une caisse de transport dont l'intérieur avait été divisé en compartiments.
+
+— Vous fabriquez ça ici ?
+
+— Non. Un artisan de la ville me les fournit.
+
+Tomas observa les compartiments.
+
+— Je pourrais probablement vous proposer quelque chose de plus pratique pour les petits accessoires.
+
+Le marchand lui tendit la caisse.
+
+Ils discutèrent un moment.
+
+Zeki, qui était venu récupérer ses provisions, les regarda avec curiosité.
+
+Il avait lui-même passé beaucoup de temps à chercher de petits objets dans son sac magique.
+
+Il n'avait jamais vraiment réfléchi à une manière de mieux organiser leur rangement.
+
+Tomas lui expliqua comment il classait ses propres outils dans son atelier.
+
+— Si je dois chercher un objet pendant plusieurs minutes chaque fois que j'en ai besoin, je ne termine jamais mon travail.
+
+Zeki acquiesça.
+
+Cette remarque lui parut particulièrement intéressante.
+
+Il pensa à toutes les fois où il avait sorti le mauvais accessoire pendant une expérience.
+
+— Vous pourriez me montrer votre idée quand vous l'aurez essayée ?
+
+— Bien sûr !
+
+Le menuisier sourit.
+
+Il était manifestement plus à l'aise lorsqu'il parlait de son métier que lorsqu'il évoquait les monstres.
+
+***
+
+La Guilde avait organisé, dans une cour voisine, quelques exercices de familiarisation auxquels les nouveaux inscrits pouvaient participer.
+
+Il ne s'agissait pas encore d'une formation approfondie. Des aventuriers volontaires et des employés expliquaient les usages élémentaires des équipements, les précautions à prendre et les règles de coopération.
+
+Lina accepta de consacrer un peu de temps à quelques groupes.
+
+Mira l'accompagna.
+
+Zeki les rejoignit lorsqu'il apprit que Tomas et ses compagnons étaient présents.
+
+Il les trouva devant une cible de bois.
+
+Brann essayait de prendre une position qui lui paraissait naturelle.
+
+Lina l'observait.
+
+— Vous avez déjà reçu une formation au maniement de cette arme ?
+
+— Non.
+
+— Alors ne cherchez pas à reproduire les mouvements d'un aventurier expérimenté.
+
+Brann acquiesça.
+
+À quelques pas de là, Nilo tentait de retrouver un objet qu'il avait placé au fond de son sac.
+
+Il en sortit deux petits pains.
+
+Puis un troisième.
+
+Mira le regarda.
+
+— Il y a autre chose dans ce sac ?
+
+— Bien sûr.
+
+Il sortit une serviette.
+
+Mira éclata de rire.
+
+Zeki eut beaucoup de mal à conserver son sérieux.
+
+Tomas, de son côté, observait les supports de bois utilisés pendant les exercices.
+
+Il remarqua qu'une des cibles avait commencé à se désolidariser de son support.
+
+Il demanda l'autorisation de l'examiner, puis indiqua au responsable de la cour ce qui nécessitait une réparation.
+
+Le responsable le remercia.
+
+Brann interrompit son exercice lorsqu'il aperçut, dans une caisse voisine, plusieurs éléments provenant de créatures du premier étage.
+
+Il demanda à quoi ils servaient.
+
+Lina lui expliqua que certains étaient revendus aux artisans et aux alchimistes.
+
+Le boucher posa plusieurs questions sur leur conservation et leur valeur.
+
+Zeki l'écouta avec intérêt.
+
+Il avait souvent rapporté des matériaux sans comprendre pourquoi certaines parties avaient davantage de valeur que d'autres.
+
+Brann ignorait tout des propriétés magiques des créatures du donjon. Mais il connaissait suffisamment son propre métier pour poser des questions auxquelles Zeki n'aurait pas pensé.
+
+Lina leur demanda toutefois de reprendre les exercices.
+
+Il leur restait beaucoup à apprendre.
+
+***
+
+En fin d'après-midi, le responsable des exercices demanda aux participants ce qu'ils souhaitaient faire lors de leur première sortie.
+
+Plusieurs voulaient vaincre le plus grand nombre possible de monstres.
+
+Un homme annonça qu'il espérait obtenir rapidement une récompense exceptionnelle.
+
+Tomas hésita.
+
+— Nous voulons surtout voir à quoi ressemble le donjon.
+
+Zeki trouva cette réponse raisonnable.
+
+Brann ajouta :
+
+— Et savoir si on peut gagner de l'argent.
+
+Nilo leva la main.
+
+— Et revenir avant l'ouverture de la boulangerie demain matin.
+
+Mira se tourna vers Lina.
+
+— Je crois que nous avons trouvé le premier groupe d'aventuriers qui risque de rentrer à cause d'une fournée de pain.
+
+Les trois hommes rirent.
+
+Zeki aussi.
+
+Il leur conseilla de ne pas chercher à reproduire immédiatement ses exploits. Il leur parla de sa première expédition, de ses nombreuses hésitations et des fois où il avait préféré rentrer plutôt que poursuivre un combat.
+
+Tomas l'écouta attentivement.
+
+— Pourtant, tu as vaincu le Cyclope tout seul.
+
+— Pas lors de ma première journée.
+
+Le menuisier hocha la tête.
+
+Brann demanda s'ils pourraient l'accompagner un jour.
+
+Zeki pensa à la forêt du deuxième étage.
+
+Il n'était pas prêt à y emmener des débutants, et il souhaitait consacrer sa prochaine expédition à ses propres observations.
+
+Il leur répondit qu'ils devaient d'abord acquérir une expérience adaptée à leur niveau.
+
+Lina leur proposa de se renseigner auprès de la Guilde sur les sorties accompagnées disponibles.
+
+Les trois hommes acceptèrent.
+
+***
+
+Le soir venu, Zeki retrouva le calme de sa chambre.
+
+Il étala ses équipements sur la table.
+
+Son grappin avait été vérifié. Il avait renouvelé ses provisions, récupéré quelques accessoires auprès du marchand et préparé son carnet.
+
+Il consulta ses compétences.
+
+**Main invisible.**
+
+**Mémoire d'observateur.**
+
+**Analyse avancée.**
+
+**Commandement.**
+
+Il s'arrêta un instant sur la dernière.
+
+Il n'avait encore aucune intention de partir à la tête d'une équipe.
+
+Mais il comprenait désormais pourquoi certaines personnes pouvaient trouver du plaisir à avancer ensemble.
+
+Il pensa à Tomas et à ses deux compagnons.
+
+Il espérait sincèrement qu'ils réussiraient à devenir de bons aventuriers.
+
+Puis il ouvrit son carnet à la dernière page consacrée à la forêt souterraine.
+
+Les singes de mousse.
+
+La créature capable de grimper.
+
+Les chemins qu'il n'avait pas encore explorés.
+
+Il disposait désormais de plusieurs possibilités qu'il n'avait pas lors de sa première visite.
+
+Il referma le carnet avec enthousiasme.
+
+Le lendemain, il retournerait enfin au deuxième étage.
+
+Il prit son grelot enchanté et le plaça soigneusement dans son sac.
+
+Cette fois, il comptait bien le garder.
