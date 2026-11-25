@@ -12370,3 +12370,681 @@ Au bas de l'escalier du deuxième étage, Zeki rangea le dernier morceau de pain
 Il sourit.
 
 Pour une fois, il espérait que son adversaire serait aussi difficile à trouver que lui.
+
+## Tome 1 — Chapitre 25 : Le prédateur aux mille couleurs
+
+Zeki franchit l'arche formée par les racines.
+
+De l'autre côté s'étendait une forêt dont les dimensions lui parurent démesurées, même après plusieurs jours passés au deuxième étage.
+
+Les troncs disparaissaient dans une pénombre constellée de cristaux. De grandes branches traversaient l'espace au-dessus de lui. Un ruisseau serpentait entre des rochers couverts de mousse.
+
+Il n'y avait ni porte monumentale ni estrade sur laquelle l'attendait son adversaire.
+
+Il chercha un mouvement dans les hauteurs.
+
+Rien.
+
+Il avança prudemment.
+
+Une fenêtre apparut.
+
+**Territoire du gardien du deuxième étage.**
+
+Zeki s'arrêta.
+
+Il avait espéré apercevoir la créature avant qu'elle ne le remarque.
+
+Il attendit un moment, puis utilisa Mimétisme. Son apparence se confondit avec celle d'une souche large et irrégulière qu'il avait observée à proximité.
+
+Il demeura parfaitement immobile.
+
+Une feuille tomba.
+
+Le ruisseau poursuivit son chemin.
+
+Zeki commençait à se demander si le gardien se trouvait réellement dans cette partie de la forêt lorsqu'il distingua deux yeux jaunes entre les branches.
+
+Ils disparurent.
+
+Puis réapparurent beaucoup plus bas.
+
+Un grand félin au pelage gris sombre descendait silencieusement le long d'un tronc incliné. Ses oreilles étaient surmontées de longues touffes noires. Ses pattes semblaient disproportionnées par rapport à celles des créatures que Zeki avait rencontrées jusqu'alors.
+
+Il faisait près de trois fois la taille d'un lynx ordinaire.
+
+Zeki se concentra sur lui.
+
+**Lynx des ombres.**
+
+**Gardien du deuxième étage.**
+
+**Propriétés identifiables : mobilité élevée, dissimulation visuelle.**
+
+Il aurait aimé obtenir davantage d'informations.
+
+Le Lynx releva la tête.
+
+Il huma l'air.
+
+Puis il tourna lentement les yeux vers la souche.
+
+Zeki retint son souffle.
+
+Le félin s'approcha.
+
+Il ne semblait pas comprendre ce qu'il voyait.
+
+Mais il avait manifestement senti quelque chose.
+
+Il tendit une patte.
+
+Zeki interrompit sa compétence et bondit en arrière.
+
+La patte frappa l'endroit où il s'était trouvé un instant plus tôt.
+
+— Bon.
+
+Le garçon se mit à courir.
+
+***
+
+Son grappin lui permit de rejoindre une branche qu'il avait remarquée en entrant.
+
+Il eut à peine le temps de reprendre son souffle.
+
+Le Lynx était déjà en train de grimper.
+
+Zeki contempla l'animal qui se rapprochait avec une facilité insultante.
+
+— Évidemment.
+
+Il se laissa redescendre de l'autre côté du tronc.
+
+Le gardien changea de direction.
+
+Zeki fit apparaître son Leurre près d'une racine.
+
+Le félin hésita brièvement devant l'image du garçon, puis tourna la tête vers lui.
+
+Il ne s'était pas laissé convaincre.
+
+Zeki n'avait encore porté aucune attaque. Il ne souhaitait pas commencer un combat dans des conditions aussi défavorables.
+
+Il activa ses ressources de déplacement et profita de sa compétence Lâcheté calculée, dont il appréciait de plus en plus le nom.
+
+Le Lynx le poursuivit jusqu'à proximité de l'arche.
+
+Zeki franchit la limite du territoire.
+
+Lorsqu'il se retourna, la créature avait cessé de le suivre.
+
+Elle le regardait.
+
+Le garçon recula encore de quelques pas.
+
+— Je reviendrai.
+
+Le Lynx ouvrit la gueule.
+
+Zeki préféra ne pas attendre sa réponse.
+
+***
+
+Il lui fallut un certain temps pour retrouver son calme.
+
+Il s'assit dans une partie de la forêt qu'il connaissait, à bonne distance du territoire du gardien.
+
+Son premier projet venait d'échouer.
+
+Il avait imaginé pouvoir observer longuement son adversaire sans être découvert. Il avait également compté sur son grappin pour se mettre hors de portée si les choses se passaient mal.
+
+Aucune de ces deux idées ne fonctionnait aussi bien qu'il l'avait espéré.
+
+Il ouvrit son carnet.
+
+Grâce à Mémoire d'observateur, il se remémora assez précisément la manière dont le Lynx avait descendu le tronc, ainsi que le moment où il avait tourné la tête vers lui.
+
+Il nota que la créature avait d'abord semblé incertaine de sa présence.
+
+Mimétisme n'avait donc pas été complètement inutile.
+
+Mais l'illusion ne pouvait pas tromper tous ses sens.
+
+Il dessina ensuite les éléments du paysage qu'il avait réellement observés.
+
+Il laissa en blanc les parties qu'il ne connaissait pas.
+
+Son adversaire pouvait se déplacer beaucoup plus librement que lui dans ce territoire.
+
+Zeki considéra les mines magiques qu'il avait apportées.
+
+Il n'avait pas besoin de devenir plus rapide que le Lynx.
+
+Il avait besoin de rendre sa rapidité moins décisive.
+
+Le garçon referma son carnet.
+
+Il passa une partie de la journée à se reposer et à renouveler ses préparatifs.
+
+Il ne souhaitait pas livrer son prochain affrontement avec les jambes encore tremblantes.
+
+***
+
+Lorsque Zeki pénétra de nouveau dans le territoire du gardien, il se montra beaucoup moins ambitieux.
+
+Il ne chercha pas immédiatement le Lynx.
+
+Il se consacra à ses nouveaux accessoires et à l'observation des lieux, interrompant ses préparatifs chaque fois qu'il craignait d'être découvert.
+
+À plusieurs reprises, il dut abandonner ce qu'il faisait pour ressortir du territoire.
+
+Le gardien ne lui accordait pas volontiers le temps dont il avait besoin.
+
+Une partie des dispositifs enchantés fut perdue avant même que Zeki ait pu les utiliser.
+
+Il commença à regretter d'avoir choisi un adversaire aussi curieux.
+
+Au terme de plusieurs tentatives, il disposait néanmoins de quelques zones dans lesquelles les effets de ses mines magiques pourraient se manifester.
+
+Il observa son travail.
+
+Il ne maîtrisait qu'une petite partie de cet espace immense.
+
+Le Lynx, lui, pouvait encore circuler presque partout.
+
+— Ce serait trop facile, sinon.
+
+Le garçon vérifia ses affaires.
+
+Il avait emporté plusieurs pigments de couleurs différentes, des préparations adhésives et les mines à décharge magique que le forgeron avait acceptées de lui confier.
+
+Il savait que les ressources à sa disposition n'étaient pas inépuisables.
+
+Il ne pourrait pas se permettre de recommencer indéfiniment.
+
+Cette fois, lorsqu'il aperçut les yeux jaunes du gardien, il sortit son arbalète.
+
+Le combat commença.
+
+***
+
+Le premier carreau effleura le flanc du Lynx.
+
+La créature disparut aussitôt entre les arbres.
+
+Zeki observa les branches.
+
+Il entendit un bruit sur sa gauche.
+
+Il se retourna.
+
+Le Lynx surgit sur sa droite.
+
+Le garçon leva son bouclier par réflexe.
+
+Le choc le fit tomber.
+
+Son bracelet du Cyclope lui apportait une résistance supplémentaire, mais il n'avait aucune envie de vérifier jusqu'à quel point celle-ci pouvait le protéger.
+
+Il se releva avec difficulté.
+
+Le gardien fit un bond.
+
+Une lueur violette jaillit près de lui.
+
+Il retomba quelques instants plus tard avec une large tache de couleur sur le poitrail.
+
+Zeki ouvrit de grands yeux.
+
+— Ça fonctionne !
+
+Le Lynx regarda son pelage.
+
+Puis il regarda Zeki.
+
+Le garçon eut l'impression que cette nouvelle couleur ne lui plaisait pas du tout.
+
+Le félin se précipita dans les hauteurs.
+
+Il s'immobilisa contre un tronc.
+
+Son apparence se fondit progressivement dans celle de l'écorce.
+
+Une tache violette demeura visible au milieu du bois.
+
+Zeki sourit.
+
+— Je te vois.
+
+Le Lynx se déplaça avant qu'il ait pu le toucher.
+
+Il était toujours beaucoup trop rapide.
+
+Mais il ne pouvait plus disparaître aussi facilement.
+
+Le garçon venait de retrouver une partie de l'avantage qu'il avait perdu.
+
+***
+
+Le gardien tenta de se débarrasser de la couleur.
+
+Il se frotta contre un arbre, puis contre la roche.
+
+Une partie du pigment se répandit sur son épaule.
+
+Zeki se demanda si l'alchimiste accepterait de lui vendre cette préparation en plus grande quantité.
+
+Une nouvelle lueur apparut.
+
+Cette fois, ce fut une tache jaune qui vint s'ajouter à la première.
+
+Le Lynx recula brusquement.
+
+Il observa sa patte.
+
+Zeki ne put s'empêcher de rire.
+
+— Je préfère le violet.
+
+Le félin rugit.
+
+Le garçon cessa de rire.
+
+Il eut tout juste le temps de se mettre à couvert lorsque la créature bondit dans sa direction.
+
+L'effet d'une préparation adhésive se manifesta au cours de l'affrontement.
+
+Le Lynx perdit momentanément de son aisance.
+
+Zeki tira.
+
+Le carreau atteignit sa cible.
+
+La créature se dégagea beaucoup plus rapidement que les monstres ordinaires contre lesquels le garçon avait essayé le même matériel.
+
+Il nota mentalement cette différence.
+
+Une mine à décharge magique libéra ensuite son énergie dans un éclat de lumière.
+
+Le gardien poussa un cri et se réfugia sur une branche.
+
+Il portait désormais plusieurs blessures, mais il restait parfaitement capable de poursuivre le combat.
+
+Zeki sentit sa satisfaction retomber.
+
+Il venait de dépenser une partie considérable de son matériel.
+
+Le Lynx n'avait toujours pas perdu sa rapidité.
+
+***
+
+Le changement de comportement du gardien se manifesta peu après.
+
+Au début, la créature s'était précipitée vers presque tous les bruits qu'elle entendait.
+
+Elle commença désormais à les ignorer.
+
+Zeki fit résonner son grelot.
+
+Le Lynx tourna la tête, mais ne bougea pas.
+
+Il fit apparaître un Leurre.
+
+La créature observa la silhouette.
+
+Elle attendit.
+
+Puis elle s'en détourna.
+
+Zeki fronça les sourcils.
+
+— Tu apprends ?
+
+Le gardien disparut derrière les branches.
+
+La tache jaune traversa brièvement un espace éclairé.
+
+Puis plus rien.
+
+Le garçon chercha la couleur violette.
+
+Il aperçut une trace contre un tronc et leva son arbalète.
+
+Il se ravisa.
+
+La tache était parfaitement immobile.
+
+Il venait de comprendre son erreur.
+
+Le Lynx avait laissé une partie de la peinture sur le décor.
+
+Il n'avait plus la certitude que chaque couleur appartenait à la créature.
+
+Un rugissement retentit derrière lui.
+
+Zeki se jeta de côté.
+
+Son sac heurta une racine. Il sentit une douleur vive à l'épaule.
+
+Il roula sur le sol, se releva et s'éloigna du gardien.
+
+Une partie des accessoires qu'il avait préparés ne lui servirait plus.
+
+Le Lynx avait commencé à contourner les zones qui lui déplaisaient. Il avait également rendu plusieurs objets enchantés inutilisables en les malmenant.
+
+Zeki consulta rapidement ses réserves.
+
+Il lui restait beaucoup moins de possibilités qu'au début du combat.
+
+Il regarda l'arche au loin.
+
+Il pouvait encore abandonner.
+
+Il y songea sérieusement.
+
+***
+
+Le Lynx s'était immobilisé.
+
+Zeki le distinguait par intermittence entre les branches.
+
+Il profita de cette courte accalmie pour retrouver sa respiration.
+
+Il observa le gardien.
+
+**Analyse avancée — Niveau 1.**
+
+**État observable : blessures multiples.**
+
+**Mobilité : diminution partielle constatée.**
+
+**Dissimulation visuelle : toujours active.**
+
+La fenêtre ne lui indiquait pas comment gagner.
+
+Mais elle confirmait une chose qu'il avait eu du mal à apprécier pendant l'affrontement.
+
+Le Lynx n'était plus exactement aussi rapide qu'au début.
+
+Zeki essaya de se souvenir de ses mouvements.
+
+Il avait vu la créature rejoindre les hauteurs avec une facilité remarquable lors de leur première rencontre.
+
+Désormais, certains de ses déplacements semblaient lui demander davantage d'efforts.
+
+Ce n'était pas une faiblesse secrète.
+
+C'était simplement le résultat de tout ce qui s'était passé depuis le début du combat.
+
+Il n'avait pas perdu son temps.
+
+Il avait toutefois commis une erreur.
+
+Il avait considéré les différentes couleurs comme un moyen de retrouver le Lynx à chaque instant, alors qu'elles ne lui donnaient qu'un indice.
+
+Un indice pouvait être trompeur.
+
+Il regarda de nouveau les traces de pigment laissées sur les arbres.
+
+Puis son propre sac.
+
+Une idée lui vint.
+
+Elle lui parut suffisamment absurde pour mériter d'être examinée.
+
+***
+
+Le Lynx découvrit bientôt une nouvelle silhouette de Zeki.
+
+Elle se tenait près d'un arbre.
+
+Il ne se précipita pas.
+
+Il l'observa.
+
+L'image demeurait parfaitement immobile.
+
+À quelques pas, une forme familière se dessinait parmi les racines.
+
+Le gardien hésita.
+
+Zeki, dissimulé par Mimétisme, assistait à la scène avec beaucoup moins d'assurance qu'il ne l'aurait souhaité.
+
+Il avait déjà appris que le Lynx pouvait sentir sa présence.
+
+Il ne comptait donc plus sur son illusion pour demeurer invisible pendant tout l'affrontement.
+
+Il voulait seulement que le gardien mette un peu plus de temps à comprendre ce qu'il voyait.
+
+Un éclat de couleur apparut sur le sol.
+
+Le Lynx tourna la tête.
+
+La forêt était désormais parsemée de marques violettes et jaunes.
+
+Une partie provenait de la créature elle-même.
+
+Une autre des expériences de Zeki.
+
+L'animal ne retrouvait plus aussi facilement la tranquillité de son territoire.
+
+Un bruit retentit.
+
+Le gardien ne réagit pas.
+
+Zeki retint son souffle.
+
+Il avait épuisé presque tous ses moyens de diversion.
+
+Il observa le Lynx regarder de nouveau la silhouette humaine.
+
+Cette fois, il s'avança avec prudence.
+
+Il tendit une patte vers l'image.
+
+Elle la traversa.
+
+Le gardien détourna aussitôt la tête.
+
+Au même moment, l'apparence d'une souche disparut à quelques pas de lui.
+
+Zeki venait d'interrompre Mimétisme.
+
+Le Lynx se retourna.
+
+Le garçon n'avait pas prévu de lui laisser le temps de comprendre.
+
+Il profita de l'ouverture pour tirer.
+
+La créature recula sous l'effet de l'impact.
+
+Une dernière décharge magique illumina brièvement le territoire.
+
+Le Lynx chancela.
+
+Zeki s'éloigna, le cœur battant.
+
+Il avait réussi à lui infliger de nouveaux dégâts.
+
+Il n'avait pourtant pas gagné.
+
+Le gardien se releva.
+
+— Tu es vraiment résistant...
+
+Le garçon chercha son grelot.
+
+Il ne le retrouva pas.
+
+Il décida qu'il pouvait s'en passer pour le moment.
+
+***
+
+Le dernier échange fut beaucoup moins élégant que Zeki l'aurait imaginé.
+
+Le gardien, blessé et couvert de pigments, se montrait encore dangereux.
+
+Il ne pouvait cependant plus enchaîner ses bonds avec la même aisance.
+
+Zeki le força à interrompre plusieurs fois son approche grâce aux quelques effets enchantés dont il disposait encore.
+
+Il ne cherchait plus à lui tendre un piège parfait.
+
+Il cherchait à survivre à chacun de ses assauts.
+
+Lorsque le Lynx s'arrêta, gêné par les dernières manifestations de la magie adhésive, Zeki obtint enfin le temps nécessaire pour se concentrer.
+
+**Tir patient.**
+
+Il avait préparé son projectile.
+
+Il était seul.
+
+Sa compétence Loup solitaire lui apportait l'avantage qu'il avait acheté autrefois, lorsque personne ne voulait véritablement former une équipe avec lui.
+
+Profiteur récompensait également les occasions qu'il savait créer contre une cible affaiblie par un piège.
+
+Zeki tira.
+
+Le Lynx poussa un dernier rugissement.
+
+Il tenta de rejoindre les branches.
+
+Ses pattes ne le portèrent pas aussi loin qu'il l'aurait souhaité.
+
+La créature retomba.
+
+Zeki resta à distance.
+
+Il attendit, arbalète en main, jusqu'à ce que la fenêtre bleue apparaisse.
+
+**Gardien du deuxième étage vaincu.**
+
+Il lut les mots.
+
+Il les relut.
+
+Puis il s'assit sur une racine.
+
+Son épaule lui faisait mal.
+
+Une grande partie de ses accessoires était inutilisable ou avait été consommée.
+
+Ses vêtements portaient désormais presque autant de couleurs que le gardien.
+
+Il avait remporté la victoire.
+
+Et il n'avait même pas eu le temps de manger.
+
+***
+
+Les notifications suivantes lui firent rapidement oublier son inconfort.
+
+**Exploit reconnu : victoire solitaire contre le gardien du deuxième étage.**
+
+Plusieurs gains d'expérience s'ajoutèrent aux précédents.
+
+Une récompense personnelle apparut.
+
+**Dissimulation olfactive — Niveau 1.**
+
+Zeki se redressa.
+
+*Réduit temporairement les traces olfactives émises par le détenteur. L'efficacité dépend de la nature des sens de la créature qui le recherche. Ne supprime pas les odeurs déjà laissées dans l'environnement.*
+
+Il fixa la description.
+
+Il aurait beaucoup aimé disposer de cette compétence quelques heures plus tôt.
+
+— Maintenant ?
+
+La fenêtre demeura silencieuse.
+
+Zeki soupira.
+
+Il sourit malgré lui.
+
+Associée à Mimétisme, cette nouvelle capacité lui permettrait peut-être d'échapper à des créatures dont la perception ne reposait pas uniquement sur la vue.
+
+Il devrait évidemment en vérifier les limites.
+
+Il n'avait pas envie de servir une deuxième fois de souche à un prédateur.
+
+Près du gardien, il récupéra un cristal dont la teinte oscillait entre le gris et le violet.
+
+Il découvrit également plusieurs portions de fourrure qui conservaient une partie de leurs propriétés mimétiques.
+
+Il pensa aussitôt au travail que pourrait en faire un artisan.
+
+Un coffre était apparu dans le territoire.
+
+Il contenait des pièces et une paire de bottes sombres.
+
+Zeki les examina.
+
+**Bottes du Lynx.**
+
+*Améliorent la stabilité des appuis lors des déplacements sur des surfaces irrégulières.*
+
+Il les regarda avec satisfaction.
+
+Elles ne lui permettraient probablement pas de grimper comme le gardien.
+
+Mais il appréciait particulièrement les équipements qui lui évitaient de tomber.
+
+Il rangea les objets dans son sac.
+
+Puis il entreprit de récupérer le matériel qui pouvait encore lui servir.
+
+Il retrouva son grelot près d'une branche basse.
+
+— Ah, te voilà.
+
+Il le secoua.
+
+L'objet tinta normalement.
+
+Zeki sourit.
+
+Au moins, il n'aurait pas à expliquer au marchand qu'il avait perdu son grelot pour la deuxième fois.
+
+***
+
+Lorsqu'il quitta le territoire, une partie de la forêt semblait avoir été décorée pour une fête dont il ignorait le nom.
+
+Des traces jaunes et violettes demeuraient sur les troncs.
+
+Zeki ramassa les derniers accessoires qu'il pouvait emporter.
+
+Il contempla un instant l'espace dans lequel il venait de combattre.
+
+Avec le Cyclope, il avait trouvé un endroit qui lui permettait d'exploiter les limites de son adversaire.
+
+Avec le dragon, il avait découvert ce qu'un groupe de personnes pouvait accomplir en réunissant ses moyens.
+
+Cette fois, il avait dû apprendre à changer les conditions du combat pendant que son adversaire apprenait, lui aussi, à les comprendre.
+
+Il n'avait pas réussi tout ce qu'il avait entrepris.
+
+Mais il avait gagné.
+
+Plus loin, derrière le territoire du Lynx, il aperçut un passage qu'il n'avait encore jamais emprunté.
+
+Il résista à l'envie d'aller voir ce qui l'attendait.
+
+Le troisième étage ne disparaîtrait pas pendant son absence.
+
+Il devait d'abord rentrer.
+
+À la surface, le marchand lui demanderait certainement combien de ses nouveaux accessoires avaient fonctionné.
+
+Le forgeron examinerait ceux qui étaient endommagés.
+
+L'alchimiste voudrait savoir ce qu'étaient devenus ses pigments.
+
+Et Edrin lui poserait probablement des questions pendant des heures, s'il parvenait à trouver un moment de tranquillité.
+
+Zeki regarda sa manche violette.
+
+Il espérait surtout que personne ne lui demanderait de raconter son combat avant qu'il ait pu prendre un bain.
