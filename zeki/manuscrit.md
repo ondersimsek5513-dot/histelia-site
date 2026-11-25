@@ -7856,3 +7856,1053 @@ Il resta un moment à contempler les arbres.
 Puis, avec un sourire qu'il ne parvenait pas à retenir, il ajouta :
 
 **Il y a énormément de choses à essayer.**
+
+## Tome 1 — Chapitre 16 : L'ombre dans le ciel
+
+La première créature que Zeki rencontra au deuxième étage lui vola son grelot.
+
+Il avait pourtant pris quelques précautions.
+
+Après avoir avancé entre les arbres, il s'était installé sur une racine suffisamment large pour lui servir de siège. De là, il avait observé plusieurs silhouettes se déplacer au-dessus de sa tête.
+
+Elles ressemblaient à de petits singes, dont le pelage vert se confondait presque avec les feuilles. Leurs longues pattes leur permettaient de franchir des distances impressionnantes entre les branches.
+
+Zeki avait décidé de tester Main invisible.
+
+Il avait sorti son grelot enchanté et l'avait fait bouger au-dessus de la mousse.
+
+Une tête était apparue entre deux branches.
+
+Puis une deuxième.
+
+Le garçon avait souri.
+
+Il faisait lentement reculer le grelot lorsqu'une troisième silhouette avait bondi depuis un endroit qu'il ne surveillait pas.
+
+La créature avait attrapé l'objet avant de disparaître dans les feuillages.
+
+Zeki resta la main tendue.
+
+Il entendit le grelot sonner au-dessus de lui.
+
+— Ah non.
+
+Il sortit son carnet pour noter le résultat.
+
+**Singes de mousse. Très rapides. Curieux. Surveiller les branches.**
+
+Il ajouta quelques mots sous la première observation.
+
+**Rendent les objets difficiles à récupérer.**
+
+Une nouvelle sonnerie retentit.
+
+Zeki leva la tête.
+
+Le singe était installé sur une branche. Il secouait le grelot avec une satisfaction évidente.
+
+Zeki tenta d'attirer l'objet à lui grâce à Main invisible.
+
+Rien ne se produisit.
+
+La créature le tenait fermement. Sa compétence n'était pas suffisamment puissante pour le lui arracher.
+
+Le garçon soupira.
+
+Il sortit un morceau de fruit de son sac magique et le posa bien en évidence sur une racine.
+
+Le singe regarda le fruit.
+
+Puis le grelot.
+
+Il descendit de quelques branches, s'arrêta, remonta et observa longuement Zeki.
+
+Deux autres créatures s'intéressaient désormais à la nourriture.
+
+Zeki recula.
+
+Il fit apparaître son Leurre à proximité d'un tronc, puis se dissimula.
+
+Les trois singes se tournèrent vers la silhouette immobile. Ils semblaient hésiter entre la nourriture et l'intrus.
+
+Le propriétaire provisoire du grelot finit par descendre.
+
+Il abandonna l'objet pour se saisir du fruit.
+
+Zeki attendit que la créature s'éloigne avant de faire glisser le grelot vers lui.
+
+Il le rangea précipitamment.
+
+— Merci beaucoup.
+
+Le singe mangeait son fruit sans lui accorder la moindre attention.
+
+Zeki consulta les informations du système.
+
+Aucune expérience.
+
+Aucun butin.
+
+Il venait de dépenser une partie de son repas pour récupérer son propre équipement.
+
+Il trouvait pourtant l'expérience particulièrement instructive.
+
+***
+
+La forêt lui imposait de nouvelles habitudes.
+
+Au premier étage, il avait appris à surveiller les ouvertures des galeries et les mouvements des créatures au sol. Ici, il devait également prêter attention aux branches, aux racines suspendues et aux ombres qui se déplaçaient au-dessus de lui.
+
+Il se servit du grappin pour atteindre une plateforme naturelle au pied d'un arbre immense.
+
+Il n'y resta pas longtemps.
+
+Un bruit sourd retentit derrière lui.
+
+Une créature dont les épaules étaient recouvertes de plaques d'écorce venait de surgir d'un creux. Elle possédait de longues griffes et une force suffisante pour arracher un morceau de bois en tentant de l'atteindre.
+
+Zeki se replia.
+
+Il fit apparaître son double près de la plateforme.
+
+Le monstre se précipita sur la silhouette.
+
+Son mouvement le conduisit à travers le Leurre, et il se retourna presque immédiatement.
+
+— D'accord, murmura Zeki. Pas très patient.
+
+Il avait néanmoins gagné un peu de temps.
+
+Le garçon lança un carreau, puis se réfugia derrière un autre tronc. Il constata que la créature ne se déplaçait pas seulement à quatre pattes. Elle pouvait également grimper.
+
+La hauteur ne constituait donc plus nécessairement un refuge.
+
+Il essaya Marionnettiste lorsque deux singes de mousse passèrent à proximité.
+
+La créature se tourna brièvement vers eux, mais son attention revint très vite sur lui.
+
+Zeki n'insista pas.
+
+Il regagna une zone qu'il avait déjà reconnue, puis attendit à couvert.
+
+Lorsque son Leurre redevint disponible, il remarqua qu'il avait moins longtemps attendu que lors de ses anciennes expéditions. Son anneau lui permettait de disposer de sa compétence plus rapidement, mais celle-ci ne remplaçait toujours pas une bonne décision.
+
+Il réussit à se soustraire au monstre.
+
+Plus tard, à proximité d'un petit cours d'eau, il affronta une créature amphibie dont la peau luisait sous les cristaux de la voûte.
+
+Ses bonds étaient dangereux, mais ses déplacements entre les bonds étaient relativement lents. Zeki put l'éviter, la distraire et finir par remporter son premier combat de l'étage.
+
+**Expérience acquise.**
+
+Il récupéra quelques fragments de peau translucide et un petit cristal logé dans la dépouille.
+
+Il ignorait leur valeur.
+
+Il les rangea néanmoins avec soin.
+
+Le soleil aurait déjà dû décliner à la surface. Il choisit de rentrer avant de s'engager plus loin dans la forêt.
+
+Il avait repéré plusieurs chemins, rencontré de nouvelles créatures et appris qu'une position surélevée pouvait aussi devenir un piège.
+
+Il était impatient de revenir.
+
+***
+
+À la surface, la première chose qui le surprit fut l'absence du marchand.
+
+À cette heure, son étal était généralement encore ouvert.
+
+Des caisses avaient été abandonnées devant la boutique. Une femme traversait la rue en tenant ses deux enfants par la main.
+
+Plus loin, un homme aidait son voisin à rentrer des sacs dans une cave.
+
+Les cloches de la ville retentirent.
+
+Zeki s'arrêta.
+
+Il ne connaissait pas ce signal.
+
+Une porte claqua.
+
+Un garde passa en courant, puis demanda à plusieurs personnes de libérer la chaussée.
+
+— Qu'est-ce qui se passe ? demanda Zeki.
+
+L'homme le regarda.
+
+— Tu viens du donjon ?
+
+— Oui.
+
+— Va à la Guilde. Ils cherchent tous ceux qui sont remontés.
+
+Zeki obéit.
+
+À mesure qu'il avançait, il remarqua des gens regroupés aux fenêtres, d'autres qui fermaient leurs boutiques, et des familles portant quelques affaires vers les bâtiments les plus solides du quartier.
+
+Il leva instinctivement les yeux.
+
+Le ciel était vide.
+
+Il n'avait jamais vu autant de personnes le regarder.
+
+***
+
+L'hôtesse était entourée de registres ouverts.
+
+Elle écrivait les noms des aventuriers présents, tandis que deux employés allaient et venaient entre le comptoir et la salle des réunions.
+
+— Zeki !
+
+Il se rapprocha.
+
+— Qu'est-ce qui se passe ?
+
+— Un dragon a survolé la ville.
+
+Il crut avoir mal entendu.
+
+— Un dragon ?
+
+Elle acquiesça.
+
+— Il y a quelques heures. Il est reparti vers les collines. Nous ne savons pas s'il reviendra.
+
+— Il a attaqué ?
+
+— Non. C'est justement ce qui inquiète les gardes.
+
+Elle prit sa fiche d'aventurier.
+
+— Tu n'as pas croisé d'équipes expérimentées en remontant ?
+
+Zeki réfléchit.
+
+— Non. Quelques aventuriers du premier étage, mais personne d'autre.
+
+L'hôtesse nota sa réponse.
+
+Une carte du donjon était accrochée derrière elle. Plusieurs fiches avaient été placées le long de ses bords.
+
+— La majorité de nos vétérans sont engagés dans des expéditions profondes. Deux équipes sont parties ensemble il y a plusieurs jours. Une autre ne devait pas rentrer avant demain, au plus tôt.
+
+— On peut aller les prévenir ?
+
+— Des messagers sont partis vers les secteurs accessibles. Au-delà, cela devient dangereux et nous ne savons même pas où chercher exactement.
+
+Elle ferma un registre.
+
+— Le capitaine de la garde a demandé que nous fassions l'inventaire des personnes capables de participer à la défense. Pour l'instant, nous avons surtout des aventuriers des premiers étages.
+
+Zeki regarda autour de lui.
+
+Il reconnut l'archer à l'arc vert, deux des compagnons de Lina et Mira et plusieurs personnes avec lesquelles il avait discuté depuis sa victoire contre le Cyclope.
+
+L'équipe à la cape rouge se tenait près d'une table. Le gardien portait toujours une protection autour de son épaule.
+
+La mage lisait une feuille de consignes.
+
+Le soigneur distribuait des potions aux gardes.
+
+Leur chef discutait avec un employé de la Guilde.
+
+Ils étaient tous là.
+
+Les plus puissants, en revanche, ne l'étaient pas.
+
+Zeki sentit son enthousiasme pour la forêt souterraine s'éloigner.
+
+***
+
+Edrin avait apporté plusieurs ouvrages dans la salle principale.
+
+L'érudit salua Zeki, puis lui indiqua une chaise.
+
+— Nous recueillons les témoignages.
+
+Sur la table était étalé un plan de la ville. Un garde expliquait ce qu'il avait vu depuis son poste. Une femme, propriétaire d'une auberge, racontait que la créature avait suffisamment ralenti pour qu'elle puisse distinguer la couleur de ses écailles.
+
+Les récits différaient sur la taille du dragon.
+
+Pour certains, ses ailes auraient couvert une rue entière. D'autres affirmaient qu'il était encore plus grand.
+
+Edrin prenait soin de ne pas transformer chaque estimation en certitude.
+
+— A-t-il rugi ? demanda-t-il.
+
+Le garde secoua la tête.
+
+— Pas à mon souvenir.
+
+— Et les flammes ?
+
+— Aucune.
+
+Zeki observa le plan.
+
+— Il est passé plusieurs fois ?
+
+La femme se tourna vers lui.
+
+— Deux fois, au moins. La première, il était très haut. Après, il est revenu plus bas.
+
+— Il a continué dans la même direction ?
+
+Elle réfléchit.
+
+— Non. Il a changé de direction près des remparts.
+
+Edrin compara le récit avec celui d'un meunier arrivé quelques minutes plus tôt.
+
+Le dragon avait également été aperçu au-dessus des pâturages.
+
+Zeki regarda les endroits indiqués sur le plan.
+
+— Est-ce qu'il cherchait quelque chose ?
+
+— C'est possible, répondit Edrin.
+
+— Ou alors il regardait comment était faite la ville.
+
+L'érudit leva les yeux.
+
+— Une reconnaissance ?
+
+Zeki acquiesça, sans grande assurance.
+
+Il ignorait ce dont un dragon était capable. Mais il avait lui-même passé suffisamment de temps à observer ses adversaires avant d'agir pour reconnaître une possibilité qui lui paraissait familière.
+
+Edrin nota l'hypothèse.
+
+— Nous ne savons pas encore s'il s'agit d'un prédateur attiré par les troupeaux, d'une créature territoriale ou d'un individu capable d'étudier délibérément les défenses d'une ville. Nous devons envisager les trois.
+
+Le garçon approuva.
+
+Il aurait préféré que le dragon soit simplement perdu.
+
+***
+
+La réunion débuta peu avant la nuit.
+
+Le responsable de la Guilde avait fait venir le capitaine de la garde, des représentants de la ville et plusieurs artisans.
+
+Le marchand arriva avec un cahier sous le bras.
+
+Le forgeron portait encore son tablier.
+
+L'alchimiste les rejoignit peu après.
+
+Lina et Mira avaient été chargées d'aider à rassembler les témoignages des personnes qui se trouvaient hors des remparts lors du survol.
+
+Zeki s'installa près d'Edrin, à l'écart des premiers rangs.
+
+Il avait l'impression de ne pas être à sa place.
+
+Le capitaine exposa les mesures déjà prises. Les familles les plus exposées seraient dirigées vers des refuges. Les réserves d'eau devaient rester accessibles. Les sorties de la ville seraient surveillées.
+
+Un départ général de la population, dans l'obscurité et sans savoir où se trouvait le dragon, risquait de créer d'autres dangers.
+
+Le responsable de la Guilde présenta ensuite les forces disponibles.
+
+Le nombre d'aventuriers était moins rassurant que Zeki ne l'avait imaginé.
+
+Plusieurs étaient blessés. D'autres n'avaient jamais dépassé le premier étage.
+
+Il y avait des archers, quelques mages, des soigneurs et des combattants capables de protéger leurs compagnons.
+
+Mais aucun groupe présent n'avait l'expérience d'un affrontement contre un dragon adulte.
+
+— Nos armes peuvent atteindre une créature volante, expliqua le capitaine. Encore faut-il que celle-ci demeure à notre portée.
+
+Le chef à la cape rouge prit la parole.
+
+— Si elle se pose, nous pouvons organiser plusieurs équipes. Les combattants protègent les mages, les archers soutiennent depuis l'arrière.
+
+— Et si elle ne se pose pas ? demanda quelqu'un.
+
+La mage de son groupe regarda le plan.
+
+— Alors nous ne pourrons pas la retenir. Elle décidera du moment où elle attaque et de celui où elle repart.
+
+Le silence qui suivit parut peser sur toute la salle.
+
+Zeki regarda le forgeron.
+
+Puis son sac magique.
+
+Il leva légèrement la main.
+
+Edrin le remarqua.
+
+— Tu souhaites dire quelque chose ?
+
+Plusieurs personnes se tournèrent vers lui.
+
+Zeki aurait préféré qu'elles regardent toutes le plan.
+
+— Je me demandais... Est-ce qu'il ne faudrait pas commencer par ça ?
+
+— Par quoi ? demanda le capitaine.
+
+— L'empêcher de voler.
+
+Le chef à la cape rouge fronça les sourcils.
+
+— Ce serait effectivement utile. Mais comment ?
+
+Zeki sortit son grappin.
+
+Il le posa sur la table.
+
+— Cet objet me permet de rejoindre une hauteur parce qu'il peut s'accrocher quelque part. Je me demandais si on ne pouvait pas imaginer le problème à l'envers.
+
+Le forgeron s'approcha.
+
+— C'est-à-dire ?
+
+— Au lieu de me hisser vers quelque chose, retenir quelque chose qui cherche à s'éloigner.
+
+Il dessina une silhouette grossière de dragon dans son carnet.
+
+— Avec plusieurs appareils. Des pointes reliées à des cordes et des attaches au sol.
+
+Le forgeron examina le dessin.
+
+— Le poids d'un homme et la force d'un dragon sont deux choses très différentes.
+
+— Oui.
+
+— Il pourrait arracher les attaches, rompre les cordes ou emporter l'appareil avec lui.
+
+Zeki regarda de nouveau son dessin.
+
+— Un seul appareil ne suffirait donc pas.
+
+— Certainement pas.
+
+— Mais plusieurs ?
+
+L'artisan ne répondit pas immédiatement.
+
+Il prit le carnet et l'étudia sous un autre angle.
+
+— Je ne te promets rien. Mais nous pouvons examiner l'idée.
+
+Le marchand s'approcha à son tour.
+
+— Si vous avez besoin de cordages, je connais plusieurs ateliers qui en possèdent.
+
+Le capitaine observa les trois hommes.
+
+— Nous devons également prévoir que cette invention puisse échouer.
+
+— Bien sûr, répondit Zeki.
+
+Il hésita, puis ajouta :
+
+— C'est pour ça que je pensais à d'autres choses aussi.
+
+Il sortit une capsule adhésive.
+
+Le marchand reconnut immédiatement l'objet.
+
+— Ah. Encore la colle.
+
+***
+
+Lorsque la réunion prit fin, il n'existait toujours aucun moyen certain de vaincre le dragon.
+
+Mais il existait désormais plusieurs idées que les artisans pouvaient mettre à l'épreuve.
+
+Des filets plus grands que ceux des aventuriers. Des protections pour les défenseurs. Des appareils capables de gêner une créature trop forte pour être retenue par une seule personne.
+
+Edrin avait dressé une liste des connaissances manquantes.
+
+Le capitaine s'occuperait des refuges et des équipes de garde.
+
+Le responsable de la Guilde avait demandé au forgeron de consacrer son atelier aux préparatifs de défense.
+
+Le marchand parcourait déjà ses registres.
+
+Zeki rangea son carnet.
+
+Il n'avait pas été nommé à la tête de quoi que ce soit. Il n'avait donné d'ordre à personne.
+
+Pourtant, lorsque le forgeron quitta la salle, il se tourna vers lui.
+
+— Passe à l'atelier demain matin. J'aimerais que tu m'expliques encore cette histoire de grappin à l'envers.
+
+Zeki acquiesça.
+
+En sortant de la Guilde, il croisa un père qui tenait sa fille endormie dans ses bras. L'homme lui demanda si les aventuriers les plus puissants étaient revenus.
+
+Zeki ne sut pas quoi répondre.
+
+Il lui indiqua le bâtiment où les familles étaient accueillies.
+
+Le père le remercia avant de s'éloigner.
+
+Le garçon leva une nouvelle fois les yeux vers le ciel.
+
+Il songea aux créatures qu'il avait rencontrées sous terre.
+
+Lorsqu'un combat lui paraissait trop dangereux, il pouvait toujours renoncer et rentrer chez lui.
+
+Cette fois, rentrer chez lui ne suffisait plus.
+
+## Tome 1 — Chapitre 17 : Une ville, mille idées
+
+Le forgeron n'avait pas dormi longtemps.
+
+Lorsque Zeki arriva dans son atelier, il trouva plusieurs dessins étalés sur l'établi, des pièces d'équipement démontées et un artisan dont l'humeur semblait s'être détériorée au fil de la nuit.
+
+— Ton idée est intéressante, déclara le forgeron.
+
+Zeki sourit.
+
+— Mais ?
+
+— Mais un dragon n'est pas un sac de farine.
+
+Il lui montra les dessins.
+
+Il avait envisagé d'adapter certains appareils existants, parmi lesquels de vieilles armes de défense conservées dans les réserves de la ville. Le problème n'était pas seulement de projeter quelque chose vers une grande créature. Il fallait aussi que le dispositif puisse supporter ses efforts sans mettre en danger les personnes chargées de l'utiliser.
+
+Zeki écouta attentivement.
+
+Le forgeron désigna une pièce de métal déformée.
+
+— J'ai essayé de voir ce que nous pouvions demander à nos équipements actuels. Voilà ce que j'ai obtenu.
+
+— Ah.
+
+— Et je n'avais même pas de dragon pour faire l'essai.
+
+Le garçon nota l'observation.
+
+Il avait tellement réfléchi à ce qu'il souhaitait obtenir qu'il n'avait pas suffisamment pensé aux limites des matériaux.
+
+— On peut peut-être demander aux cordiers ce qu'ils ont de plus résistant.
+
+— C'est prévu. Le marchand est parti les voir.
+
+Le forgeron fit glisser un autre dessin vers lui.
+
+— Nous allons appeler ça des harpons d'ancrage, pour l'instant. Je veux d'abord savoir si nous pouvons obtenir un appareil utilisable sans risquer de blesser nos propres gens.
+
+Zeki acquiesça.
+
+— Il faudrait surtout que les personnes qui s'en servent puissent rester loin du dragon.
+
+L'artisan leva les yeux.
+
+— Tu comptes le faire combattre où ?
+
+— Je ne sais pas encore.
+
+— Alors nous avons intérêt à poser la question avant d'inventer la moitié d'un arsenal.
+
+Zeki regarda les dessins, puis éclata de rire.
+
+Le forgeron eut un sourire fatigué.
+
+— Va chercher Edrin.
+
+***
+
+Les archives de la Guilde n'avaient jamais été aussi fréquentées.
+
+Edrin avait confié à deux employés la recherche des anciens récits de dragons. Une partie des livres qui évoquaient ces créatures s'intéressait davantage aux exploits de héros disparus depuis plusieurs siècles qu'à leur comportement réel.
+
+Il y était question de flammes capables de consumer des montagnes, d'écailles invulnérables et de monstres suffisamment grands pour avaler des villages.
+
+Edrin avait mis ces textes de côté.
+
+Il préférait les rapports de gardes, les notes de voyageurs, les inventaires de dommages et les témoignages dont il pouvait identifier les auteurs.
+
+Zeki l'aida à examiner les documents.
+
+Un ancien rapport évoquait une créature qui avait survolé une ferme avant de revenir plusieurs jours plus tard. Un autre décrivait un dragon plus petit qui avait abandonné une chasse après avoir dépensé une grande quantité d'énergie.
+
+— Ils ne se comportent pas tous de la même manière, observa Edrin.
+
+— Mais ils peuvent se fatiguer.
+
+— Comme la plupart des créatures vivantes, probablement. Quant à celui qui nous menace, nous ne connaissons ni son endurance ni ses capacités exactes.
+
+Zeki prit une feuille.
+
+Il écrivit en haut :
+
+**Ne pas supposer qu'il est invincible. Ne pas supposer qu'il est faible.**
+
+Edrin lut les deux phrases.
+
+— C'est un bon début.
+
+Le garçon énuméra les avantages qu'il attribuait au dragon.
+
+Le vol, d'abord.
+
+La puissance, ensuite.
+
+La possibilité de produire des flammes, si les récits correspondaient bien à cette espèce.
+
+Et la peur qu'il inspirait à presque tous les habitants.
+
+Il s'arrêta sur le dernier point.
+
+— Même si on trouve une façon de le gêner, les gens ne voudront pas s'approcher.
+
+— Il est raisonnable d'avoir peur d'un dragon, répondit Edrin.
+
+— Je sais. Moi non plus, je ne veux pas m'approcher.
+
+L'érudit retint un sourire.
+
+Zeki tourna sa feuille.
+
+— Et si on ne cherchait pas à le tuer au début ?
+
+— Qu'entends-tu par là ?
+
+— Si on essaie d'abord de l'empêcher de faire ce qu'il veut. On ne sait pas combien de temps il peut voler, cracher des flammes ou se débattre. Mais on n'est pas obligés de l'affronter pendant qu'il est au meilleur de sa forme.
+
+Edrin ne répondit pas tout de suite.
+
+Il regarda les notes consacrées au Cyclope.
+
+Là aussi, Zeki avait gagné en refusant les conditions du combat que le gardien cherchait à lui imposer.
+
+— Il faudra expliquer ça au capitaine, dit-il enfin.
+
+***
+
+Le marchand avait ouvert un deuxième registre.
+
+Le premier concernait ses affaires habituelles. Le second contenait les ressources disponibles dans la ville pour les préparatifs.
+
+Des cordiers avaient accepté de fournir du matériel. Des charpentiers proposaient leur aide. Plusieurs tisserands disposaient de grandes pièces de toile.
+
+Un aubergiste offrait des repas aux ouvriers qui travaillaient depuis le matin.
+
+Le marchand connaissait la plupart de ces personnes. Il savait aussi lesquelles disposaient de réserves, lesquelles pouvaient produire rapidement et lesquelles ne pouvaient se permettre d'abandonner leurs commandes sans compensation.
+
+— On ne peut pas simplement prendre tout ce dont on a besoin, expliqua-t-il à Zeki. Si les boutiques et les ateliers ne peuvent plus fonctionner après le départ du dragon, la ville aura un autre problème.
+
+La Guilde et les représentants municipaux avaient accepté d'enregistrer les fournitures réquisitionnées et les prestations engagées.
+
+Le marchand tenait à ce que personne ne profite de la confusion pour vendre au prix qu'il lui plaisait.
+
+Il avait aussi réservé une partie de ses propres stocks pour l'alchimiste.
+
+— Tes capsules collantes vont peut-être nous servir, dit-il.
+
+Zeki lui montra le dessin d'un grand filet.
+
+— J'aimerais qu'on puisse en fabriquer beaucoup plus grands que ceux que j'utilise habituellement.
+
+— Les cordiers ont déjà reçu la demande.
+
+— Et des couvertures.
+
+Le marchand leva la tête.
+
+— Pour les refuges ?
+
+— Non. Enfin, aussi, si nécessaire. Mais je pensais à autre chose.
+
+Il lui parla du Cyclope, des limites de ses capsules adhésives et de son lance-filet.
+
+Le marchand l'écouta jusqu'au bout.
+
+— Tu veux encore lancer des couvertures sur des monstres ?
+
+— Cette fois, elles seraient un peu plus grandes.
+
+— Évidemment.
+
+Il écrivit quelques mots dans son registre.
+
+— Je vais chercher l'alchimiste. Je préfère ne pas être le premier à essayer de laver ces couvertures.
+
+***
+
+À la deuxième réunion, Zeki ne s'assit pas exactement à la même place que la veille.
+
+Le forgeron lui avait demandé de rester près de lui afin qu'ils puissent examiner ensemble les propositions relatives au matériel.
+
+Le capitaine commença par annoncer les mesures de protection déjà mises en place.
+
+Des refuges étaient prêts. Les habitants avaient reçu des consignes. Les gardes devaient éviter les mouvements désordonnés si le dragon revenait.
+
+Les équipes parties dans le donjon n'avaient toujours pas été retrouvées.
+
+Une femme demanda s'il était raisonnable d'attendre.
+
+— Nous ne comptons pas attendre sans rien faire, répondit le capitaine.
+
+Edrin présenta ses recherches.
+
+Il insista sur les incertitudes. Ils ne connaissaient ni l'espèce exacte du dragon ni la raison pour laquelle il avait survolé la ville.
+
+Il expliqua ensuite l'idée de Zeki.
+
+Le garçon avait dessiné trois grandes cases sur une feuille.
+
+Dans la première, le dragon possédait encore toute sa liberté.
+
+Dans la deuxième, il éprouvait des difficultés à se déplacer.
+
+Dans la troisième, il était fatigué.
+
+— Nous aimerions atteindre cette troisième situation avant d'envisager un affrontement rapproché, expliqua Edrin.
+
+Le chef à la cape rouge se pencha vers le dessin.
+
+— Et s'il ne se fatigue pas aussi vite que vous l'espérez ?
+
+— Alors nous ne nous approchons pas, répondit Zeki.
+
+Le chef le regarda.
+
+— Il pourrait détruire la moitié de la ville pendant ce temps.
+
+— C'est pour cela qu'il faudrait, si possible, éviter que le combat ait lieu au milieu des maisons.
+
+Le capitaine acquiesça.
+
+La question de la protection des quartiers exposés était déjà une priorité de la garde. Il ne voulait pas que des civils soient chargés de détourner le monstre ou utilisés comme appâts.
+
+Le groupe examina les espaces à l'extérieur des habitations, les contraintes d'évacuation et les possibilités de protéger les personnes qui seraient affectées aux préparatifs.
+
+Lina prit ensuite la parole.
+
+— Les archers ne pourront pas tous tirer en même temps sur une créature qui se déplace aussi vite. Et s'ils ne se voient plus entre eux, ils auront du mal à savoir ce que font les autres.
+
+Mira ajouta :
+
+— Ce serait bien de savoir quand on doit abandonner une position. Surtout si la fumée nous empêche de voir le dragon.
+
+Zeki nota les deux remarques.
+
+Il avait envisagé les fumigènes comme moyen de gêner le monstre. Il n'avait pas suffisamment réfléchi au fait qu'ils gêneraient aussi ses alliés.
+
+Le capitaine proposa d'utiliser les signaux que les gardes connaissaient déjà. Il ne souhaitait pas imposer un langage entièrement nouveau à des personnes qui auraient peu de temps pour s'y habituer.
+
+Le responsable de la Guilde approuva.
+
+Le gardien au bouclier rond indiqua qu'il pouvait participer aux essais des protections, malgré son épaule encore douloureuse.
+
+Le soigneur demanda que des personnes soient spécifiquement affectées à l'assistance aux blessés et ne soient pas simultanément chargées d'affronter le dragon.
+
+La mage évoqua les limites des sorts protecteurs. Elle ne pourrait pas maintenir indéfiniment une barrière contre un souffle dont elle ignorait la puissance.
+
+Zeki remplissait sa feuille.
+
+Il avait imaginé qu'une réunion de défense serait surtout constituée de personnes proposant des attaques de plus en plus puissantes.
+
+En réalité, ils passaient beaucoup de temps à discuter de ce qui risquait de mal se passer.
+
+Cela lui plaisait davantage.
+
+***
+
+Les premiers essais eurent lieu dans une cour appartenant à la garde.
+
+Personne n'y attendait une arme définitive.
+
+Le forgeron voulait simplement comprendre quels appareils existants pouvaient être adaptés et lesquels devraient être abandonnés.
+
+Les cordiers examinèrent avec lui des cordages issus des réserves de la ville. Les charpentiers apportèrent des éléments de protection. L'alchimiste présenta quelques échantillons des matières adhésives que Zeki avait utilisées dans le donjon.
+
+Un grand filet fut étalé dans la cour.
+
+Zeki le regarda avec admiration.
+
+Il n'avait jamais possédé un filet aussi grand.
+
+— Et comment comptez-vous le déplacer ? demanda le gardien.
+
+Plusieurs personnes se regardèrent.
+
+Ils essayèrent.
+
+L'opération prit beaucoup plus de temps que prévu.
+
+Le filet se replia sur lui-même, accrocha un poteau et entraîna deux des participants dans une longue discussion sur la manière dont ils auraient dû s'y prendre.
+
+Mira, qui observait la scène, finit par annoncer :
+
+— Le dragon va mourir de vieillesse avant que vous ayez terminé.
+
+Le gardien éclata de rire.
+
+Le forgeron, lui, prit des notes.
+
+— Elle a raison. Cet équipement ne nous sert à rien si personne n'arrive à le manier.
+
+Les cordiers proposèrent plusieurs améliorations. L'alchimiste expliqua qu'une partie des fibres spectrales conservées depuis les dernières expéditions de Zeki pourrait éventuellement renforcer certains matériaux sans leur ajouter trop de poids.
+
+Ils ne disposaient pas de réserves suffisantes pour tout transformer.
+
+Le forgeron choisit donc de poursuivre ses essais avec les matériaux ordinaires avant de décider où les enchantements seraient réellement utiles.
+
+Zeki observa l'équipement modifié.
+
+Il comprit que les artisans ne voyaient pas les choses comme lui.
+
+Il imaginait volontiers une dizaine d'utilisations possibles pour un objet. Eux cherchaient d'abord à savoir si l'objet pouvait remplir correctement une seule fonction.
+
+Les deux manières de penser se complétaient assez bien.
+
+***
+
+L'essai suivant fut encore moins convaincant.
+
+Le forgeron avait fait apporter un ancien lance-filet pour examiner avec Zeki la possibilité de projeter d'autres sortes de textiles.
+
+L'alchimiste avait préparé une couverture enduite d'une substance adhésive magique dont elle connaissait déjà les effets.
+
+Une grande silhouette de bois et de toile représentait la tête du dragon.
+
+Elle avait été fabriquée par un apprenti charpentier pendant la matinée.
+
+Mira la contempla.
+
+— C'est un poulet.
+
+— C'est un dragon, protesta l'apprenti.
+
+— Il a une tête de poulet.
+
+Lina détourna le regard pour ne pas rire.
+
+Zeki se concentra sur l'essai.
+
+Le résultat fut immédiat.
+
+La couverture resta en partie attachée à l'appareil.
+
+L'autre partie se déplia avec une lenteur désespérante avant de tomber sur le sol.
+
+Personne ne parla pendant quelques secondes.
+
+L'alchimiste posa ses mains sur ses hanches.
+
+— Voilà exactement ce que je craignais.
+
+Zeki s'approcha de la couverture.
+
+— La colle nous gêne avant même qu'elle n'atteigne le dragon.
+
+— Oui.
+
+Le forgeron examina l'appareil.
+
+Il proposa de séparer davantage les fonctions de projection et d'adhérence. L'alchimiste envisagea d'adapter une propriété des enchantements qu'elle employait déjà dans les capsules de Zeki.
+
+Il ne s'agissait pas d'inventer un nouveau pouvoir capable de tout résoudre. Ils devaient trouver un moyen d'utiliser une matière connue sans que ses propriétés rendent l'objet inutilisable.
+
+Les essais reprirent plus tard.
+
+Cette fois, une partie de la toile adhéra à la silhouette de bois.
+
+Mira applaudit.
+
+— Le poulet est vaincu !
+
+Le charpentier leva les bras au ciel.
+
+Zeki regarda l'ouvrage.
+
+La couverture avait masqué une bonne partie du visage rudimentaire. Mais le mannequin était immobile, dépourvu d'écailles et incapable de produire des flammes.
+
+Il nota donc le résultat avec prudence.
+
+L'alchimiste ajouta elle-même une remarque.
+
+— Je ne sais pas combien de temps cette matière résisterait à la chaleur d'un dragon.
+
+Le garçon acquiesça.
+
+— Il ne faut pas compter sur elle pour le retenir longtemps.
+
+Il venait néanmoins d'obtenir quelque chose d'intéressant.
+
+L'idée n'était plus seulement un dessin dans son carnet.
+
+***
+
+Zeki passa une partie de l'après-midi à montrer Main invisible aux artisans.
+
+La compétence lui permettait de déplacer les petites pièces dont ils se servaient pour leurs démonstrations. Lorsqu'il tenta d'agir sur un élément plus lourd d'un appareil, le résultat fut insignifiant.
+
+Le forgeron lui demanda de ne pas perdre son temps à essayer de soulever un équipement conçu pour plusieurs personnes.
+
+— Ton pouvoir est utile pour ce qu'il sait faire. Tu n'as pas besoin de lui demander le reste.
+
+Zeki trouva le conseil particulièrement judicieux.
+
+Il se servit ensuite de la compétence pour déplacer un grelot de démonstration tandis que Lina testait les réactions d'un groupe chargé de reconnaître des signaux.
+
+La jeune archère lui fit remarquer que le bruit pouvait facilement être confondu avec ceux de l'atelier.
+
+Ils reprirent leur exercice.
+
+Mira se chargea de vérifier si les instructions demeuraient compréhensibles lorsqu'une partie des participants ne voyait plus les autres.
+
+Plusieurs personnes interprétèrent mal un signal.
+
+Le capitaine interrompit l'exercice.
+
+Ils recommencèrent avec des consignes plus simples.
+
+À la fin, Zeki comprit que sa nouvelle compétence pourrait lui rendre de grands services dans le donjon, mais qu'il n'était pas raisonnable de faire dépendre la coordination de toute une ville d'une aptitude dont il était le seul utilisateur.
+
+Le capitaine en tira une conclusion semblable.
+
+— Il nous faut des choses que tout le monde puisse comprendre et utiliser.
+
+Zeki referma son carnet.
+
+— Oui. Et des choses qui fonctionnent même si je ne suis pas là.
+
+Le capitaine le regarda un instant.
+
+Puis il hocha la tête.
+
+***
+
+De retour à la Guilde, le marchand fit le point sur les ressources.
+
+Le travail avançait. Les appareils d'ancrage étaient encore en cours d'étude, mais le forgeron avait identifié plusieurs éléments qu'il pouvait réutiliser. Les filets et les protections étaient préparés. Les premières toiles adhésives avaient donné des résultats assez prometteurs pour justifier d'autres essais.
+
+Les fumigènes restaient une option, dont les conditions d'emploi devraient être décidées avec prudence.
+
+Les armes ordinaires des gardes et des aventuriers étaient également disponibles.
+
+— Et les habitants qui veulent aider ? demanda l'hôtesse.
+
+Le capitaine répondit que les volontaires seraient d'abord employés à des tâches qu'ils connaissaient : transporter des fournitures, assister les artisans, aider les familles à rejoindre les refuges, distribuer de l'eau et des repas.
+
+Il refusa que des personnes inexpérimentées soient envoyées affronter le dragon.
+
+Un charpentier, présent à la réunion, acquiesça.
+
+— J'ai des outils. Pas une armure.
+
+— Nous avons surtout besoin de tes outils, lui répondit le forgeron.
+
+Zeki approuva.
+
+Il pensa à son propre parcours.
+
+Il avait mis longtemps à accepter que son manque de force ne constituait pas une raison suffisante pour renoncer à devenir aventurier.
+
+Cela ne signifiait pas qu'il pouvait demander aux autres de prendre des risques dont ils ne comprenaient pas la nature.
+
+Il expliqua qu'à ses yeux les inventions devaient d'abord servir à réduire le danger, pas à convaincre des gens effrayés de se précipiter vers le dragon.
+
+Le responsable de la Guilde lui demanda de préciser ses priorités.
+
+Zeki regarda ses feuilles.
+
+— L'immobiliser autant que possible. Éviter que les flammes atteignent les gens. Et ne pas engager un combat rapproché tant qu'on n'a pas de raison de penser qu'il est beaucoup moins dangereux.
+
+Il hésita.
+
+— On peut essayer de le fatiguer plutôt que de se fatiguer nous-mêmes.
+
+Le chef à la cape rouge, qui avait écouté en silence, regarda la feuille représentant les trois états du dragon.
+
+— Si nous réussissons à le retenir, mon équipe pourra aider à protéger les autres aventuriers.
+
+La mage acquiesça.
+
+— Et nous pourrons conserver une partie de notre énergie pour le moment où elle sera réellement nécessaire.
+
+Zeki les remercia.
+
+Il n'avait pas oublié leurs anciennes moqueries. Mais il n'y pensa pas très longtemps.
+
+Leur proposition venait de résoudre un problème dont ils avaient discuté toute la journée.
+
+***
+
+Le responsable de la Guilde demanda finalement à Edrin et à Zeki de réunir les résultats des essais, de comparer les observations et de préparer, avec le capitaine et les artisans, une proposition commune pour les défenseurs.
+
+Zeki releva la tête.
+
+— Moi aussi ?
+
+— Tu connais les équipements que nous essayons d'adapter. Et tu sembles avoir une certaine habitude des combats dont personne ne voudrait.
+
+Mira sourit.
+
+Le forgeron intervint.
+
+— Je préfère qu'il continue à travailler avec nous. Il a beaucoup d'idées, et il accepte généralement qu'on lui explique pourquoi elles ne fonctionneront pas.
+
+— Généralement ? répéta Zeki.
+
+— Généralement.
+
+Quelques personnes rirent.
+
+Le garçon regarda les feuilles posées devant lui.
+
+Il n'était pas responsable de la garde. Il ne commandait pas les aventuriers. Mais on venait de lui confier une place dans la préparation d'une défense dont dépendaient des gens qu'il croisait chaque jour dans la rue.
+
+Il sentit cette responsabilité lui peser davantage qu'un sac rempli de matériel.
+
+Edrin posa une pile de documents devant lui.
+
+— Nous avons encore du travail.
+
+Zeki acquiesça.
+
+***
+
+La nuit était tombée lorsque les ouvriers commencèrent à quitter la cour de la garde.
+
+Les préparatifs n'étaient pas terminés.
+
+Les grandes toiles devaient encore être examinées. Le forgeron avait plusieurs problèmes à résoudre. Certaines propositions de Zeki avaient été écartées, et d'autres ne dépassaient pas encore le stade d'un essai imparfait.
+
+Pourtant, les habitants qui passaient près des ateliers ne s'arrêtaient plus seulement pour demander si les vétérans étaient revenus.
+
+Ils apportaient des choses.
+
+Une femme avait trouvé des couvertures inutilisées. Un vieil homme venait proposer son aide pour réparer des chariots. Deux jeunes apprentis s'étaient présentés chez le forgeron après avoir terminé leur journée.
+
+Zeki regarda les charpentiers emporter la grande silhouette de bois.
+
+Mira lui fit signe.
+
+— Tu sais, si on gagne, je demanderai qu'on conserve le poulet.
+
+— C'est un dragon, protesta encore l'apprenti.
+
+Cette fois, même le forgeron éclata de rire.
+
+Le rire ne dura pas longtemps.
+
+Une cloche retentit du côté des remparts.
+
+Puis une deuxième.
+
+Les gardes cessèrent de parler.
+
+Un homme descendit précipitamment de son poste d'observation.
+
+— Quelque chose a été aperçu au-dessus des collines !
+
+Zeki leva les yeux.
+
+La nuit empêchait de distinguer ce qui se trouvait au loin.
+
+Il regarda les appareils encore incomplets, les filets, les artisans et les aventuriers qui s'étaient rapprochés.
+
+Il espérait qu'ils disposeraient encore d'un peu de temps.
