@@ -13954,3 +13954,1087 @@ Un autre aventurier se serait probablement demandé combien de niveaux il lui fa
 Zeki se posa une question différente.
 
 Était-il vraiment nécessaire de la vaincre ?
+
+## Tome 1 — Chapitre 28 : Entrer, voler, courir
+
+— Tu comptes vraiment retourner là-bas ?
+
+Edrin avait posé son doigt sur le dessin du Drakéide.
+
+Zeki acquiesça.
+
+— Pour le combattre ?
+
+— Non.
+
+L'érudit attendit une explication.
+
+Le garçon lui montra le coffre qu'il avait dessiné à quelques centimètres du monstre.
+
+— Pour ça.
+
+Edrin se renversa dans son fauteuil.
+
+— Naturellement.
+
+Il consulta plusieurs documents consacrés au troisième étage. Aucun ne mentionnait précisément la structure que Zeki avait découverte. En revanche, certains récits faisaient état de créatures particulièrement puissantes vivant à l'écart des régions fréquentées par les aventuriers.
+
+— Ce n'est probablement pas le gardien de l'étage, conclut-il. Mais je ne te conseillerais pas de t'en approcher pour autant.
+
+— Je n'ai pas besoin de m'en approcher beaucoup.
+
+Edrin regarda de nouveau le dessin.
+
+Le coffre se trouvait manifestement trop près du Drakéide pour que cette affirmation le rassure.
+
+— Zeki.
+
+— Oui ?
+
+— Si tu découvres que ce n'est pas possible, tu rentres.
+
+Le garçon promit.
+
+Il avait déjà perdu suffisamment d'argent en voulant récupérer des accessoires dont la valeur ne justifiait pas les risques encourus.
+
+Cette fois, il ignorait même ce que contenait le coffre.
+
+***
+
+Dans les jours qui suivirent, Zeki consacra une grande partie de ses expéditions à la reconnaissance des ruines.
+
+Il observa les créatures qui occupaient les différentes régions de la caverne. Il compléta ses cartes et s'intéressa aux passages qui reliaient les anciennes constructions.
+
+Ses découvertes lui permirent également de remporter plusieurs combats ordinaires et d'obtenir de nouvelles ressources.
+
+Il ne retourna devant le Drakéide qu'après avoir acquis une meilleure connaissance des alentours.
+
+À chacune de ses visites, il essaya de recueillir quelques renseignements supplémentaires sans attirer l'attention de la créature.
+
+Analyse avancée lui confirma la résistance élevée de ses plaques minérales. Il ne parvint cependant pas à identifier l'ensemble de ses capacités.
+
+Le Drakéide était beaucoup moins immobile qu'il ne l'avait pensé lors de sa première rencontre.
+
+Il changeait régulièrement de position. Il quittait parfois l'intérieur de la structure pour parcourir une partie de la galerie.
+
+Il revenait ensuite se reposer à proximité du coffre.
+
+Zeki ne savait pas s'il protégeait volontairement le trésor ou s'il avait simplement choisi cet endroit pour s'installer.
+
+La différence lui paraissait assez secondaire.
+
+Dans les deux cas, il fallait passer près de lui.
+
+***
+
+À la Guilde, Tomas avait réuni ses sept compagnons autour d'une table.
+
+Il déroula une copie de la carte du premier étage, à laquelle Edrin avait ajouté quelques indications tirées du rapport de Zeki.
+
+— Voilà la salle du Cyclope.
+
+Nilo se pencha.
+
+— Elle est grande ?
+
+— Très grande.
+
+— Tant mieux. On est huit.
+
+Sera lui lança un regard.
+
+— Ce n'est pas exactement un avantage pour nous.
+
+Ils avaient passé les dernières semaines à affronter des créatures de plus en plus résistantes. Ils avaient appris à battre des Gardes d'argile, à reconnaître les difficultés liées aux Araignées spectrales et à éviter les endroits où les Minotaures de pierre risquaient de les surprendre.
+
+Ils avaient progressé suffisamment pour envisager d'étudier le gardien de l'étage.
+
+Cela ne voulait pas dire qu'ils étaient prêts à le combattre.
+
+Tomas leur montra le dessin de la corniche utilisée par Zeki.
+
+— C'est de là qu'il l'a vaincu.
+
+Daren examina les indications.
+
+— Il y a assez de place pour nous tous ?
+
+— Je ne sais pas.
+
+— Et comment on monte ? demanda Oren.
+
+Un silence suivit sa question.
+
+Nilo désigna la carte.
+
+— Avec le grappin de Zeki ?
+
+— Tu sais utiliser un grappin ? demanda Brann.
+
+— Non.
+
+— Moi non plus.
+
+Sera regarda Tomas.
+
+— Avant de décider que nous allons vaincre ce monstre, il faudrait peut-être apprendre à atteindre l'endroit depuis lequel nous comptons le faire.
+
+Ils convinrent de consacrer plusieurs journées à des exercices et de demander conseil à des aventuriers habitués aux déplacements en hauteur.
+
+Marel prit note des dépenses prévisibles.
+
+Le montant lui parut assez important.
+
+Il ne protesta pas.
+
+Ils avaient tous entendu parler de groupes qui étaient revenus de la salle du Cyclope sans la totalité de leur équipement.
+
+Marel préférait payer avant l'expédition plutôt que devoir expliquer ensuite pourquoi ils n'avaient plus rien à vendre.
+
+***
+
+Zeki retourna devant le Drakéide un matin où il se sentait particulièrement reposé.
+
+Il avait emporté son équipement habituel ainsi que plusieurs des accessoires achetés après sa victoire contre le Lynx.
+
+Il contempla le coffre.
+
+Il contempla le monstre.
+
+Il eut soudain l'impression que le coffre était beaucoup plus petit que dans son souvenir.
+
+Le Drakéide, en revanche, lui parut encore plus grand.
+
+— Bon.
+
+Il activa Dissimulation olfactive, puis progressa jusqu'à un endroit où Mimétisme lui permit de se confondre avec un amas de pierres.
+
+Il attendit.
+
+Une petite créature passa près de lui sans s'arrêter.
+
+Le Drakéide releva la tête.
+
+Zeki ne bougea plus.
+
+Le monstre observa les alentours, puis se détourna.
+
+Le garçon attendit encore avant d'interrompre son illusion.
+
+Il avait décidé de ne pas utiliser ses compétences toutes en même temps sans nécessité. Certaines avaient besoin d'un délai avant de redevenir disponibles.
+
+Il lui importait surtout de conserver quelques possibilités pour le retour.
+
+Il progressa entre les ruines.
+
+Lorsque le Drakéide se déplaça à nouveau, Zeki se rapprocha de la structure.
+
+Il aperçut les motifs dorés du coffre.
+
+Un instant plus tard, il dut renoncer à avancer.
+
+Le monstre venait de tourner la tête dans sa direction.
+
+Zeki s'immobilisa.
+
+Un bruit retentit dans une autre partie de la galerie.
+
+Le Drakéide se redressa et se mit à observer les ruines.
+
+Le garçon profita de cette distraction pour se glisser dans la structure.
+
+Il atteignit le coffre.
+
+Il essaya de le déplacer avec Main invisible.
+
+Rien ne se produisit.
+
+— Évidemment.
+
+L'objet était beaucoup trop lourd.
+
+Zeki posa une main sur son couvercle.
+
+Une inscription apparut.
+
+**Coffre de découverte.**
+
+Il s'attendait à devoir trouver une clé ou résoudre une énigme.
+
+Mais le couvercle s'ouvrit.
+
+Le garçon resta un instant perplexe.
+
+Il distinguait des pièces, un parchemin et un petit cristal translucide.
+
+Il les rangea rapidement dans son sac magique.
+
+**Objectif de découverte accompli.**
+
+Il sourit.
+
+Puis le sol trembla.
+
+***
+
+Zeki n'avait jamais vu le Drakéide se déplacer aussi rapidement.
+
+Les plaques minérales de son corps luisaient d'une lumière orangée. La créature venait de pénétrer dans la structure.
+
+Le garçon recula.
+
+Le monstre ouvrit la gueule.
+
+Une vague de chaleur magique parcourut l'espace devant lui.
+
+Zeki se précipita hors de la structure.
+
+Il avait imaginé une sortie rapide.
+
+Il n'avait pas imaginé que le Drakéide puisse faire disparaître une partie du décor derrière lui.
+
+Un morceau de pierre s'effondra à proximité.
+
+Le passage qu'il souhaitait emprunter n'était plus accessible.
+
+— Ça commence bien.
+
+Il utilisa son grappin pour rejoindre une partie surélevée des ruines.
+
+Le Drakéide ne tenta pas de le suivre de la même manière que le Lynx.
+
+Il heurta la construction.
+
+Zeki sentit les pierres vibrer sous ses pieds.
+
+Il se hâta de redescendre de l'autre côté.
+
+Il n'avait encore porté aucune attaque.
+
+Le monstre paraissait néanmoins très déterminé à le poursuivre.
+
+Présence insignifiante ne lui était plus d'aucune utilité.
+
+Dissimulation olfactive, seule, ne pouvait pas davantage lui faire oublier la silhouette qu'il venait de voir courir devant lui.
+
+Le garçon se mit à regretter le temps qu'il avait consacré à imaginer l'ouverture du coffre.
+
+Il aurait dû consacrer davantage de temps à imaginer son départ.
+
+***
+
+Il fit apparaître son double près d'une ancienne arche.
+
+L'image tourna légèrement la tête.
+
+Le Drakéide s'arrêta devant elle.
+
+Zeki profita de cette brève hésitation pour s'éloigner.
+
+Un choc retentit.
+
+L'arche s'effondra.
+
+Le garçon ne se retourna pas.
+
+Il traversa une galerie étroite, puis rejoignit un espace dans lequel il avait aperçu plusieurs petites créatures minérales au cours de ses précédentes reconnaissances.
+
+Elles prirent la fuite en voyant le Drakéide.
+
+Zeki aurait volontiers fait la même chose.
+
+Il fit appel à Lâcheté calculée.
+
+L'amélioration de sa vitesse lui permit de gagner un peu de distance.
+
+Mais il ne pouvait pas courir indéfiniment.
+
+Il avait perdu de vue plusieurs repères lorsque les premières pierres s'étaient effondrées.
+
+Il retrouva enfin une construction qu'il avait dessinée dans son carnet.
+
+Un passage s'ouvrait derrière elle.
+
+Il hésita.
+
+Il se souvenait d'une seconde galerie, plus loin, qu'il avait jugée trop peu pratique pour l'emprunter lors de ses expéditions ordinaires.
+
+Elle lui parut soudain beaucoup plus intéressante.
+
+Il modifia sa route.
+
+Derrière lui, le grondement du Drakéide se rapprochait.
+
+Son grelot enchanté tinta au fond de son sac.
+
+— Ce n'est vraiment pas le moment.
+
+***
+
+Lorsque Zeki atteignit l'autre extrémité des ruines, ses jambes commençaient à lui faire mal.
+
+Il avait utilisé plusieurs accessoires. Certains avaient été abandonnés, d'autres endommagés.
+
+Il lui restait cependant une partie de son énergie.
+
+Il tenta de reprendre son souffle à l'abri d'une ancienne paroi.
+
+Le Drakéide n'apparut pas immédiatement.
+
+Zeki attendit.
+
+Il entendit un grondement lointain.
+
+Puis le silence revint.
+
+Il ne savait pas si la créature avait renoncé à le poursuivre ou si elle avait simplement perdu sa trace.
+
+Il utilisa de nouveau ses compétences de dissimulation lorsqu'elles redevinrent disponibles.
+
+Il resta immobile si longtemps qu'il commença à avoir froid.
+
+Enfin, il reprit sa route, sans chercher à récupérer les objets qu'il avait perdus.
+
+Il rejoignit une région connue et s'assit contre un mur.
+
+Il sortit une gourde.
+
+Ses mains tremblaient.
+
+Après avoir bu, il consulta son sac magique.
+
+Les trois objets y étaient toujours.
+
+Il éclata de rire.
+
+Il venait de passer un long moment à courir pour échapper à un monstre qu'il n'avait même pas essayé de blesser.
+
+Il espérait sincèrement que le trésor en valait la peine.
+
+***
+
+Une notification apparut avant qu'il ait pu examiner les objets.
+
+**Exploit accompli : récupération d'un trésor dans une zone de danger supérieur.**
+
+**Récompense d'exploration obtenue.**
+
+Zeki regarda son profil.
+
+Son niveau venait d'augmenter.
+
+Une seconde notification de progression suivit.
+
+Il cligna des yeux.
+
+Il n'avait vaincu aucune créature au cours de cette aventure.
+
+Certes, il avait couru assez longtemps pour avoir l'impression d'avoir fourni plusieurs journées d'efforts.
+
+Mais il ne s'attendait pas à recevoir autant d'expérience.
+
+Il relut les informations.
+
+Le système ne lui indiquait pas le nombre de monstres affrontés. Il reconnaissait la récupération du trésor et la difficulté de l'exploration.
+
+— Je suis d'accord avec toi, murmura Zeki.
+
+Il referma la fenêtre.
+
+Le cristal translucide lui réserva une autre surprise.
+
+**Extension d'inventaire.**
+
+*Augmente la capacité du sac magique auquel elle est associée. Ne modifie pas les limites propres aux objets incompatibles avec le stockage magique.*
+
+Le garçon se redressa.
+
+Depuis plusieurs semaines, il devait choisir avec soin les accessoires qu'il emportait. Son sac, aussi pratique fût-il, ne pouvait pas contenir tout ce qu'il désirait.
+
+Il n'aurait pas pu espérer une récompense beaucoup plus utile.
+
+Il associa le cristal à son sac après avoir lu attentivement les indications.
+
+Une lumière bleue parcourut le tissu.
+
+Le volume disponible augmenta sensiblement.
+
+Zeki sourit.
+
+Il pensa aussitôt à toutes les choses qu'il pourrait désormais emporter.
+
+Puis il se rappela les recommandations du guérisseur concernant son épaule.
+
+Il décida qu'il essaierait quand même de ne pas trop se charger.
+
+Le parchemin, enfin, contenait une compétence qu'il reconnut immédiatement.
+
+**Rappel — Niveau 1.**
+
+*Permet de faire revenir à proximité du détenteur un accessoire enchanté compatible et préalablement associé. Portée limitée. Le rappel échoue si l'objet est retenu ou séparé du détenteur par un obstacle incompatible avec l'effet.*
+
+Il avait envisagé d'acheter cette aptitude lors de sa dernière visite à la boutique de compétences.
+
+Il l'obtenait maintenant sans dépenser la somme qu'on lui avait demandée.
+
+Le garçon contempla le parchemin.
+
+Puis les pièces.
+
+Puis son sac.
+
+Il commençait à beaucoup apprécier les coffres de découverte.
+
+***
+
+Edrin se montra moins enthousiaste.
+
+Non pas parce qu'il regrettait la réussite de Zeki.
+
+Il était simplement surpris par le nombre de récompenses obtenues au cours d'une seule expédition.
+
+— Tu as bien dit que tu n'avais vaincu aucun monstre dans cette galerie ?
+
+— Aucun.
+
+— Et tu as gagné plusieurs niveaux ?
+
+— Oui.
+
+L'érudit demanda à Zeki de lui montrer les notifications dont il se souvenait.
+
+Ils les consignèrent.
+
+Edrin sortit ensuite les relevés qu'il avait établis concernant plusieurs aventuriers récemment inscrits.
+
+— Certaines de ces personnes ont obtenu des compétences pour des activités que nous considérions autrefois comme secondaires. Ton expérience semble aller dans le même sens.
+
+Zeki haussa les épaules.
+
+— Explorer, c'est quand même une activité d'aventurier.
+
+— Bien sûr. Ce qui m'étonne, c'est l'importance des récompenses.
+
+Il compara plusieurs lignes.
+
+— J'ai trop peu d'informations pour savoir s'il s'agit d'une évolution générale ou simplement de circonstances exceptionnelles.
+
+Il referma le registre.
+
+Zeki regarda les pièces qu'il avait rapportées.
+
+— Vous pensez que je devrais les rendre ?
+
+Edrin éclata de rire.
+
+— Certainement pas.
+
+***
+
+Tomas retrouva Zeki à la sortie des archives.
+
+Les huit compagnons avaient commencé à préparer leur confrontation avec le Cyclope. Ils avaient besoin de quelques précisions sur le récit de sa victoire.
+
+Zeki leur expliqua notamment que le gardien avait pu récupérer lorsqu'une équipe précédente avait quitté la salle.
+
+Il leur rappela également que la corniche ne rendait pas nécessairement l'ensemble de la pièce inoffensif.
+
+— Tu avais vraiment pris le temps de manger ? demanda Nilo.
+
+— Oui.
+
+Le boulanger se tourna vers ses compagnons avec une expression triomphante.
+
+— Vous voyez !
+
+Sera soupira.
+
+— Ce n'est pas ce que nous sommes venus lui demander.
+
+Tomas reprit ses questions.
+
+Zeki leur conseilla de ne pas tenter l'affrontement tant qu'ils n'auraient pas trouvé une méthode de déplacement qui convienne à chacun.
+
+Les huit acquiescèrent.
+
+Ils lui présentèrent les grandes lignes de leurs préparatifs.
+
+Le garçon fut surpris par le sérieux de leurs réflexions.
+
+Il ne savait pas encore s'ils étaient capables de vaincre le Cyclope.
+
+En revanche, ils avaient cessé d'espérer que le nombre suffirait à résoudre tous leurs problèmes.
+
+Ils lui demandèrent ensuite ce qu'il avait fait au troisième étage.
+
+— J'ai trouvé un trésor.
+
+— Et quel monstre gardait le coffre ? demanda Brann.
+
+— Un Drakéide.
+
+— Tu l'as vaincu ?
+
+— Non.
+
+Brann attendit la suite.
+
+Zeki sourit.
+
+— Il est toujours là.
+
+Puis il souleva son sac magique.
+
+— Le trésor, par contre, est ici.
+
+## Tome 1 — Chapitre 29 : La victoire des gens ordinaires
+
+Le jour où les huit compagnons décidèrent d'affronter le Cyclope de fer, Nilo apporta de quoi nourrir seize personnes.
+
+Sera regarda les provisions.
+
+— Pourquoi ?
+
+— Pour la victoire.
+
+— Et si nous devons rentrer avant de l'avoir vaincu ?
+
+— Nous mangerons quand même.
+
+Marel prit l'un des petits pains.
+
+Il ne voyait aucune raison de s'opposer à cette partie du programme.
+
+Les huit aventuriers avaient passé plusieurs jours à se préparer. Ils avaient travaillé avec des personnes plus expérimentées, acheté du matériel et poursuivi leurs expéditions ordinaires.
+
+Les connaissances qu'ils avaient acquises au cours de leurs anciennes professions leur avaient rendu de précieux services.
+
+Mais aucune d'entre elles ne leur avait appris à affronter un monstre de cinq mètres armé d'un marteau.
+
+Il leur avait fallu apprendre à se servir de leurs armes, à reconnaître les situations dangereuses et surtout à ne pas gêner leurs compagnons.
+
+Sur ce dernier point, il leur restait encore beaucoup de progrès à faire.
+
+Tomas déplia une dernière fois son dessin de la salle du gardien.
+
+— Si nous ne pouvons pas rejoindre la corniche en sécurité, nous rentrons.
+
+Ils acquiescèrent.
+
+— Si elle n'est pas assez solide ou assez grande, nous rentrons.
+
+Nilo leva la main.
+
+— Et si le Cyclope est déjà mort ?
+
+— Nous rentrons aussi.
+
+Le boulanger hocha la tête.
+
+— C'est un programme assez simple, finalement.
+
+***
+
+Ils mirent beaucoup plus de temps que Zeki à rejoindre la salle du gardien.
+
+Ils avaient transporté du matériel supplémentaire et ne souhaitaient pas arriver fatigués avant même le début de leur affrontement.
+
+Le Cyclope se trouvait au centre de la pièce, assis sur son bloc de pierre.
+
+Brann fut le premier à le voir.
+
+— Il est plus grand que sur le dessin.
+
+Tomas ne répondit pas.
+
+Il venait de faire la même constatation.
+
+À distance, ils étudièrent les lieux. Ils reconnurent l'ancien renfoncement indiqué sur la carte de Zeki.
+
+La corniche leur parut suffisamment large, mais ils durent renoncer à plusieurs idées qu'ils avaient envisagées dans le confort de l'auberge.
+
+Pendant un moment, Sera se demanda s'ils ne feraient pas mieux de rentrer.
+
+Ivo partageait son inquiétude.
+
+Ils en discutèrent à voix basse.
+
+Finalement, ils décidèrent de poursuivre leurs préparatifs sans engager le combat.
+
+Ils utilisèrent les équipements enchantés que les artisans avaient adaptés à leurs besoins. Leurs exercices leur permirent de rejoindre progressivement le renfoncement.
+
+L'opération fut loin d'être élégante.
+
+Lorsque Nilo parvint enfin à atteindre la corniche, il resta allongé quelques instants.
+
+— Je n'ai plus faim, annonça-t-il.
+
+Oren vérifia l'état de son matériel.
+
+— Tu te sens bien ?
+
+— Oui. C'est ça qui m'inquiète.
+
+Une fois réunis, ils disposèrent leurs affaires et examinèrent leur possibilité de retour.
+
+Puis ils regardèrent le Cyclope.
+
+Le monstre n'avait pas quitté son bloc de pierre.
+
+Il leur paraissait toujours aussi gigantesque.
+
+***
+
+Le premier projectile de Tomas ne toucha pas le gardien.
+
+Celui de Brann non plus.
+
+Daren parvint à atteindre une partie de son armure naturelle. Le carreau rebondit presque aussitôt sur les plaques métalliques.
+
+Le Cyclope releva la tête.
+
+Une notification apparut devant les huit aventuriers.
+
+**Gardien du premier étage : Cyclope de fer.**
+
+La créature se leva.
+
+Nilo recula instinctivement.
+
+— Il nous a vus.
+
+— Oui, répondit Sera. C'était un peu le but.
+
+Le Cyclope s'approcha de la paroi et abattit son marteau.
+
+La salle entière sembla trembler.
+
+Les huit compagnons sursautèrent.
+
+Oren laissa tomber un projectile.
+
+Marel se réfugia derrière le rebord de pierre.
+
+Brann chercha son arme alors qu'il la tenait encore à la main.
+
+Puis le silence revint.
+
+Ils constatèrent que le marteau n'avait pas atteint la corniche.
+
+Tomas se pencha légèrement.
+
+Le Cyclope frappa de nouveau.
+
+Les huit compagnons se replièrent derrière l'avancée rocheuse.
+
+Rien ne vint les atteindre.
+
+Daren se mit à sourire.
+
+— Ça fonctionne.
+
+Un troisième choc retentit.
+
+Nilo sortit la tête.
+
+— C'est vraiment comme ça qu'il l'a battu ?
+
+— Oui, répondit Tomas.
+
+Le boulanger regarda le gardien.
+
+— Je comprends pourquoi il a mangé.
+
+***
+
+Ils découvrirent rapidement la différence entre posséder une position avantageuse et savoir en profiter.
+
+Leurs arbalètes ne se ressemblaient pas toutes. Certains savaient mieux les utiliser que d'autres. Ils n'avaient ni les bonus solitaires de Zeki ni son expérience contre les créatures puissantes.
+
+Les protections du Cyclope résistaient à la plupart de leurs attaques.
+
+Les compagnons commencèrent à se donner des indications.
+
+Puis ils se mirent à parler tous en même temps.
+
+— Attends !
+
+— J'ai besoin de carreaux !
+
+— Qui a pris les capsules ?
+
+— C'est à moi de tirer ?
+
+Sera posa son arme.
+
+— Arrêtez.
+
+Le Cyclope frappa encore la paroi.
+
+— Lui aussi ? demanda Nilo.
+
+— Non. Vous.
+
+Elle attendit que ses compagnons se taisent.
+
+Ils reprirent la répartition des tâches qu'ils avaient préparée avant leur départ.
+
+Daren et Tomas étaient parmi les plus à l'aise avec les armes à distance. Brann et Ivo leur apportaient leur concours lorsqu'ils disposaient d'une ouverture.
+
+Oren s'occupait du matériel et des problèmes qui apparaissaient au cours de l'affrontement.
+
+Marel surveillait les réserves.
+
+Sera essayait de maintenir une certaine cohérence dans leurs actions.
+
+Nilo aidait chacun d'eux selon les besoins, ce qui lui évitait de s'entêter avec une arbalète qu'il maniait encore assez mal.
+
+Le résultat fut immédiatement meilleur.
+
+Il ne fut pas spectaculaire.
+
+Mais ils ne perdaient plus la moitié de leur temps à chercher les mêmes objets.
+
+***
+
+Ils avaient apporté plusieurs préparations magiques dont les effets avaient été éprouvés au premier étage.
+
+Certaines entretenaient une faible diminution de vitalité chez les créatures touchées. D'autres gênaient momentanément leurs mouvements.
+
+Le Cyclope leur apprit que même un objet efficace contre un Minotaure de pierre pouvait se révéler beaucoup moins impressionnant devant un gardien.
+
+Une capsule adhésive éclata.
+
+Le Cyclope arracha presque aussitôt son marteau à la matière enchantée.
+
+Un morceau de pierre resta suspendu à son arme.
+
+Brann éclata de rire.
+
+— Regardez !
+
+Ses compagnons reconnurent la scène que Zeki leur avait décrite.
+
+Le gardien secoua son marteau.
+
+Le morceau de dalle refusa de tomber.
+
+Nilo lui adressa un signe de la main.
+
+— Bienvenue au club.
+
+Le monstre rugit.
+
+Le boulanger disparut derrière la corniche.
+
+— Je crois qu'il n'a pas apprécié.
+
+Les huit continuèrent leurs efforts.
+
+L'avantage de leur nombre devenait progressivement évident. Lorsque l'un d'eux se fatiguait, d'autres pouvaient continuer. Ils partageaient les ressources, s'entraidaient et remarquaient des choses auxquelles leurs compagnons n'avaient pas prêté attention.
+
+Ils commençaient aussi à comprendre que ce n'était pas le moment de reproduire toutes les plaisanteries de Zeki.
+
+Le Cyclope semblait toujours capable d'abattre des parties du décor qui se trouvaient à sa portée.
+
+Une secousse plus forte que les précédentes les obligea à interrompre momentanément leurs attaques.
+
+Tomas observa la corniche.
+
+Oren vérifia leurs affaires.
+
+Ils envisagèrent le repli.
+
+Les parties sur lesquelles ils se trouvaient demeuraient intactes. Leur possibilité de retour n'était pas compromise.
+
+Ils décidèrent de poursuivre, avec davantage de prudence.
+
+***
+
+Au bout d'un long moment, Marel annonça qu'ils avaient utilisé une part importante de leurs munitions.
+
+— Déjà ? demanda Brann.
+
+— Oui.
+
+Le Cyclope portait désormais plusieurs fissures visibles. Ses mouvements semblaient moins réguliers, mais il continuait à lever son marteau.
+
+Tomas regarda leurs réserves.
+
+Ils avaient assez de matériel pour poursuivre encore un certain temps.
+
+Il leur fallait toutefois éviter de gaspiller ce qu'il leur restait.
+
+Sera proposa de faire une courte pause à tour de rôle.
+
+Nilo retrouva immédiatement son enthousiasme.
+
+Il sortit ses provisions.
+
+Daren le regarda lui tendre du pain au moment où le Cyclope poussait un rugissement.
+
+— Tu en as vraiment apporté pour seize personnes ?
+
+— Oui.
+
+Le pêcheur prit le petit pain.
+
+— Finalement, tu es peut-être le plus prévoyant d'entre nous.
+
+Nilo sourit.
+
+Il ne fit pas remarquer à Sera qu'elle lui avait reproché ses provisions le matin même.
+
+Il attendit simplement qu'elle ait terminé sa part avant de lui en proposer une seconde.
+
+La créature frappa la paroi.
+
+Personne n'interrompit son repas.
+
+***
+
+Ils reprirent ensuite leurs efforts avec davantage de calme.
+
+Le Cyclope avait cessé de parcourir toute la salle. Il s'appuyait de plus en plus souvent sur son marteau.
+
+Les huit compagnons le remarquèrent presque simultanément.
+
+— Il fatigue, dit Ivo.
+
+— Nous aussi, répondit Brann.
+
+— Oui, mais nous sommes huit.
+
+Cette fois, la remarque ne provoqua aucune objection.
+
+Un peu plus tard, la créature tenta une nouvelle fois d'atteindre le renfoncement.
+
+Son marteau heurta la paroi avant de retomber lourdement sur le sol.
+
+Le Cyclope recula.
+
+Les compagnons poursuivirent leurs efforts.
+
+Ils avaient mis beaucoup plus de temps qu'ils ne l'avaient espéré. Ils avaient commis des erreurs et dépensé davantage de ressources que prévu.
+
+Mais ils ne s'étaient pas désunis.
+
+Enfin, le Cyclope lâcha son arme.
+
+Il vacilla.
+
+Puis il s'effondra.
+
+Personne ne parla.
+
+Les huit aventuriers contemplèrent la créature.
+
+Une inscription apparut devant chacun d'eux.
+
+**Gardien du premier étage vaincu.**
+
+Nilo fut le premier à pousser un cri de joie.
+
+Brann le suivit.
+
+Daren serra Tomas dans ses bras avec tant d'enthousiasme que le menuisier lui demanda de faire attention au bord de la corniche.
+
+Sera éclata de rire.
+
+Oren s'assit.
+
+Marel, qui avait passé la moitié de l'affrontement à compter les projectiles, oublia complètement de noter combien il leur en restait.
+
+Ivo regarda les sept personnes qui l'entouraient.
+
+Il avait longtemps rêvé de devenir aventurier.
+
+Il venait de vaincre un gardien.
+
+Avec un menuisier, un boulanger, un boucher, un cordonnier, une couturière, un pêcheur et un aubergiste.
+
+Il se mit à rire à son tour.
+
+***
+
+Les notifications ne s'arrêtèrent pas à la défaite du gardien.
+
+Plusieurs gains de niveau apparurent devant les compagnons.
+
+Ils obtinrent également des récompenses individuelles.
+
+Nilo avait acquis une aptitude qui améliorait légèrement l'efficacité du repos de ses compagnons lorsqu'il prenait soin de leurs provisions.
+
+Sera découvrit qu'une compétence lui permettait désormais de mieux répartir son attention entre les membres de son groupe pendant une activité collective.
+
+Oren reçut une aptitude d'inspection élémentaire du matériel.
+
+D'autres obtinrent des améliorations correspondant aux tâches qu'ils avaient régulièrement accomplies.
+
+Aucun d'eux n'était devenu un combattant exceptionnel.
+
+Mais tous avaient franchi un palier de progression.
+
+Ils découvrirent également un coffre de récompenses après avoir rejoint le sol.
+
+Il contenait de l'argent et plusieurs accessoires utiles à des expéditions collectives.
+
+Marel consulta ses comptes.
+
+Même en tenant compte du matériel consommé, leur expédition se révélait beaucoup plus rentable qu'il ne l'avait estimé.
+
+Il recommença son calcul.
+
+— Qu'est-ce qu'il y a ? demanda Tomas.
+
+— Rien. J'aimerais seulement être certain que je ne me suis pas trompé.
+
+Brann ramassa le cristal orangé laissé par le gardien.
+
+Il ne ressemblait pas à une somme d'argent.
+
+Pourtant, de tous les objets qu'ils avaient récupérés ce jour-là, c'était celui qu'il tenait le plus à rapporter à la Guilde.
+
+***
+
+L'hôtesse leur demanda de répéter leur déclaration.
+
+Tomas s'exécuta.
+
+— Nous avons vaincu le Cyclope de fer.
+
+Il déposa le cristal sur le comptoir.
+
+Elle regarda les huit compagnons.
+
+Elle se souvenait de leur inscription, des inquiétudes qu'ils lui avaient inspirées et des premières ressources qu'ils lui avaient rapportées.
+
+Elle fit authentifier le cristal.
+
+La nouvelle se répandit rapidement.
+
+Lorsque Nilo rentra à sa boulangerie, plusieurs habitants l'attendaient déjà.
+
+Il leur raconta son aventure.
+
+Il prit beaucoup de plaisir à leur expliquer qu'il avait mangé au milieu d'un combat contre le Cyclope.
+
+Sera, qui l'écoutait, lui rappela qu'ils avaient surtout passé des semaines à s'entraîner.
+
+— Oui, oui, bien sûr.
+
+Mais la partie concernant les petits pains semblait intéresser davantage ses interlocuteurs.
+
+À la Guilde, de nouveaux groupes demandèrent des renseignements sur la corniche.
+
+Le marchand remarqua que les ventes d'équipements destinés aux débutants augmentaient encore.
+
+Il envisagea d'ajouter une nouvelle présentation à son catalogue.
+
+Cette fois, il n'aurait même pas besoin de citer le nom de Zeki.
+
+Huit habitants ordinaires venaient de démontrer qu'un gardien pouvait être vaincu autrement que par une équipe de combattants traditionnels.
+
+Il y voyait une occasion commerciale considérable.
+
+L'hôtesse, elle, se demanda combien de personnes allaient retenir que ces huit aventuriers avaient travaillé pendant des semaines avant de tenter leur chance.
+
+***
+
+Zeki félicita les compagnons lorsqu'il les retrouva le lendemain.
+
+Il écouta attentivement leur récit.
+
+Sera lui parla des problèmes qu'ils avaient rencontrés à huit sur la corniche. Oren lui expliqua les améliorations qu'il souhaitait apporter à leur matériel. Marel lui présenta quelques observations sur le coût des expéditions collectives.
+
+Le garçon leur posa de nombreuses questions.
+
+Il n'avait pas rencontré les mêmes difficultés lors de son propre affrontement.
+
+Leur expérience lui apprit plusieurs choses qu'il n'aurait pas pu découvrir en combattant seul.
+
+Edrin, de son côté, s'intéressa aux récompenses obtenues par les huit aventuriers.
+
+Il demanda leur autorisation avant de relever certaines informations de leurs profils.
+
+Il fut heureux de constater qu'ils avaient progressé.
+
+Mais lorsqu'il compara leurs gains avec ceux de plusieurs anciennes expéditions, il demeura songeur.
+
+Les différences étaient importantes.
+
+Il ne disposait pas encore de suffisamment de données comparables pour en tirer une conclusion.
+
+Il inscrivit cependant une nouvelle question dans son registre.
+
+La quantité d'expérience attribuée dépendait-elle davantage qu'autrefois de la nature des exploits accomplis ?
+
+Il laissa la ligne suivante vide.
+
+***
+
+Quelques jours plus tard, des cavaliers traversèrent la place de la Guilde.
+
+Ils portaient des manteaux aux couleurs de la couronne.
+
+Leur arrivée attira rapidement l'attention des habitants.
+
+L'officier qui dirigeait la petite délégation remit une lettre scellée à l'hôtesse.
+
+Elle en prit connaissance.
+
+Puis elle relut le document.
+
+— Vous venez au sujet du dragon ?
+
+— Entre autres.
+
+L'officier expliqua que les rapports transmis à la capitale avaient suscité beaucoup d'intérêt.
+
+La participation des artisans à la défense de la cité avait retenu l'attention des responsables militaires. Les renseignements venus d'autres guildes évoquaient également de nouveaux équipements et des méthodes de formation inhabituelles.
+
+La couronne souhaitait obtenir davantage de précisions.
+
+L'officier demanda à rencontrer le forgeron, l'alchimiste, les responsables de la Guilde et les personnes qui avaient contribué aux innovations.
+
+Il souhaitait notamment étudier quelles méthodes pourraient être adaptées aux besoins de l'armée royale.
+
+L'hôtesse pensa immédiatement aux registres qu'elle n'avait pas encore terminés.
+
+Puis à Edrin.
+
+Puis à Zeki.
+
+— Vous avez prévu de rester longtemps ?
+
+— Le temps nécessaire pour comprendre ce qui s'est passé ici.
+
+Elle posa la lettre.
+
+— Dans ce cas, je vous conseille de prendre une chambre.
+
+L'officier la remercia.
+
+Il s'apprêtait à partir lorsqu'il remarqua un nom qui revenait à plusieurs reprises dans les témoignages transmis à la capitale.
+
+— Ce Zeki, demanda-t-il, à quelle unité appartient-il ?
+
+L'hôtesse sourit malgré elle.
+
+— À aucune.
+
+— C'est un officier de la Guilde ?
+
+— Non.
+
+— Un vétéran ?
+
+Elle secoua la tête.
+
+— Il a seize ans.
+
+L'officier regarda ses compagnons.
+
+Puis il reprit la lettre.
+
+Il avait manifestement quelques questions supplémentaires à poser.
