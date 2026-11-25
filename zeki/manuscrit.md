@@ -13048,3 +13048,909 @@ Et Edrin lui poserait probablement des questions pendant des heures, s'il parven
 Zeki regarda sa manche violette.
 
 Il espérait surtout que personne ne lui demanderait de raconter son combat avant qu'il ait pu prendre un bain.
+
+## Tome 1 — Chapitre 26 : L'argent du Lynx
+
+Lorsque Zeki entra dans la Guilde, trois personnes se retournèrent sur son passage.
+
+Une quatrième lui demanda s'il avait participé à une fête.
+
+Il baissa les yeux vers ses vêtements couverts de peinture.
+
+— Pas vraiment.
+
+L'hôtesse le reconnut et posa les documents qu'elle tenait à la main.
+
+— Qu'est-ce qui t'est arrivé ?
+
+Zeki sortit de son sac le cristal gris-violet.
+
+— J'ai vaincu le deuxième gardien.
+
+Elle regarda le cristal.
+
+Puis le garçon.
+
+Puis de nouveau le cristal.
+
+— Seul ?
+
+— Oui.
+
+L'hôtesse appela l'un de ses collègues afin de faire examiner la pierre. Elle lui demanda également de conduire Zeki auprès du guérisseur.
+
+Le garçon aurait préféré rentrer prendre un bain.
+
+Il dut reconnaître que son épaule lui faisait de plus en plus mal.
+
+***
+
+Le guérisseur ne découvrit rien qui justifiât une inquiétude particulière. Il lui recommanda toutefois quelques jours de repos avant de retourner au donjon.
+
+Zeki accepta, avec moins de protestations qu'autrefois.
+
+Il avait plusieurs raisons de rester en ville.
+
+Il avait notamment besoin de remplacer une quantité considérable de matériel.
+
+Lorsqu'il revint au comptoir, la nouvelle de sa victoire avait commencé à circuler.
+
+— Le Lynx des ombres, confirma l'hôtesse en lui rendant son cristal. Plusieurs groupes expérimentés nous ont rapporté les difficultés qu'ils avaient rencontrées contre lui. Comment as-tu fait ?
+
+— Avec de la peinture.
+
+Elle attendit la suite.
+
+— Et quelques mines.
+
+— De la peinture ?
+
+— Beaucoup de peinture.
+
+L'hôtesse se pinça l'arête du nez.
+
+— Je vais avoir besoin d'un rapport un peu plus détaillé.
+
+Zeki lui promit de le préparer avec Edrin.
+
+Il observa les registres qui occupaient une bonne partie du comptoir. Deux employés répondaient aux demandes des nouveaux aventuriers. Un homme patientait devant eux avec une pile de lettres.
+
+— Vous recevez beaucoup de courrier ?
+
+— Davantage que je ne le souhaiterais.
+
+Elle lui montra une enveloppe portant le sceau d'une guilde d'une autre ville.
+
+Depuis la victoire contre le dragon, plusieurs guildes avaient demandé des renseignements sur la participation des artisans et des habitants à la défense de la cité.
+
+Certaines avaient commencé à recenser les compétences professionnelles de leurs propres membres. D'autres souhaitaient acheter les nouveaux équipements mis au point ici.
+
+Une guilde envisageait même d'organiser des expéditions de familiarisation pour les adultes qui n'avaient jamais pratiqué le métier d'aventurier.
+
+— Ils ont entendu parler de toi, ajouta-t-elle.
+
+Zeki parut embarrassé.
+
+— Ils ont surtout besoin de gens qui connaissent leurs propres donjons.
+
+— C'est exactement ce que je leur ai écrit.
+
+L'hôtesse reprit son registre.
+
+Elle avait longtemps souhaité que sa guilde acquière une meilleure réputation auprès des autres villes.
+
+Elle n'avait simplement pas imaginé que cette reconnaissance lui demanderait autant de travail.
+
+***
+
+Chez lui, Zeki entreprit de faire le point sur sa progression.
+
+Il consulta les informations de son profil.
+
+Depuis son inscription, ses caractéristiques avaient considérablement évolué. Il pouvait porter davantage de matériel, supporter des expéditions plus longues et manier son arbalète avec plus d'assurance.
+
+Il n'était cependant toujours pas capable de suivre un félin gigantesque dans les arbres.
+
+Son niveau avait progressé à plusieurs reprises au cours des dernières semaines. Une notification qu'il n'avait pas examinée convenablement à la fin de son combat apparut de nouveau.
+
+**Palier de progression atteint.**
+
+**Votre parcours permet l'accès à de nouvelles orientations.**
+
+Trois propositions s'affichèrent.
+
+**Éclaireur débutant.**
+
+**Illusionniste débutant.**
+
+**Artificier débutant.**
+
+Zeki prit son carnet.
+
+Il possédait déjà six classes débutantes. Pour la plupart, il les avait découvertes à la suite de ses activités dans le donjon.
+
+Ces trois orientations semblaient correspondre à des aspects différents de ses dernières expéditions.
+
+Il hésita longtemps entre l'Éclaireur et l'Illusionniste.
+
+L'Artificier l'intéressait également. Mais une bonne partie de la confection des équipements qu'il utilisait dépendait encore du savoir-faire des artisans de la ville.
+
+Il décida de choisir l'Éclaireur.
+
+La découverte de nouveaux territoires occupait une place de plus en plus importante dans ses aventures. Il souhaitait pouvoir poursuivre cette activité sans dépendre uniquement de ses capacités à fuir.
+
+**Classe acquise : Éclaireur débutant.**
+
+Il vérifia que ses six autres classes étaient toujours présentes.
+
+Elles l'étaient.
+
+Il referma la fenêtre avec satisfaction.
+
+Il n'avait pas trouvé de nom unique pour désigner ce qu'il était devenu.
+
+Cela le dérangeait beaucoup moins qu'au début.
+
+***
+
+Edrin reçut Zeki deux jours plus tard.
+
+Pour la première fois depuis longtemps, l'érudit avait fermé la porte de ses archives.
+
+Une petite pancarte indiquait qu'il consacrait la matinée à ses recherches.
+
+— Vous avez le droit de faire ça ? demanda Zeki.
+
+— Je l'ignore. Mais je vais essayer de le découvrir.
+
+Le garçon lui raconta son combat. Ils comparèrent les propriétés du Lynx avec les témoignages des groupes qui l'avaient précédé.
+
+Edrin fut particulièrement intéressé par la capacité de la créature à reconnaître les fausses pistes après plusieurs expériences.
+
+Il nota également les circonstances dans lesquelles Zeki avait obtenu Dissimulation olfactive.
+
+— Le système aurait pu te proposer cette compétence bien avant l'affrontement, remarqua-t-il.
+
+— C'est ce que je lui ai dit.
+
+— Et il t'a répondu ?
+
+— Non.
+
+— Dommage.
+
+Zeki lui présenta ensuite la nouvelle liste de classes.
+
+L'érudit observa longuement les trois propositions qu'il avait consignées.
+
+— Elles correspondent assez bien à ce que tu fais depuis plusieurs semaines.
+
+Il prit un autre registre.
+
+— Ce qui m'intéresse davantage, c'est la manière dont les récompenses varient selon les personnes. Certains des habitants qui ont participé à la défense de la ville progressent assez rapidement, alors qu'ils n'ont presque aucune expérience des donjons.
+
+Il referma le document.
+
+— Je dois encore comparer leurs parcours. Je ne voudrais pas tirer de conclusion trop vite.
+
+Sur une table voisine, Zeki aperçut plusieurs lettres.
+
+Des érudits d'autres cités souhaitaient obtenir une copie de ses travaux sur le dragon et les profils apparus après sa défaite.
+
+Edrin lui avoua qu'il en avait été très heureux.
+
+Il avait passé des années à essayer d'intéresser ses confrères à certaines de ses recherches.
+
+À présent, trois d'entre eux lui demandaient des réponses avant la fin de la semaine.
+
+— Je crois que je préférais lorsqu'ils ne s'intéressaient qu'à la moitié de ce que je faisais.
+
+Zeki sourit.
+
+Ils reprirent leur discussion.
+
+Personne ne frappa à la porte pendant près d'une heure.
+
+Ce fut, de l'avis d'Edrin, une excellente matinée.
+
+***
+
+Le marchand attendait Zeki avec ses registres.
+
+Le jeune aventurier avait commencé à recevoir des revenus réguliers sur les produits auxquels il avait contribué. Jusqu'alors, il avait consacré une grande partie de ses gains à ses expéditions.
+
+Les nouvelles commandes avaient changé la situation.
+
+Le marchand lui montra des demandes provenant d'autres villes.
+
+Des lance-filets, des accessoires de diversion et des capsules adhésives avaient notamment intéressé plusieurs confrères.
+
+— Nous allons devoir augmenter la production.
+
+Zeki observa les quantités demandées.
+
+— Le forgeron pourra suivre ?
+
+— Il le faudra bien.
+
+Le garçon fronça légèrement les sourcils.
+
+— Il ne faudrait pas que les objets soient moins bons.
+
+— Bien sûr que non.
+
+Le marchand lui présenta ensuite la somme qui lui revenait sur les ventes déjà réalisées.
+
+Zeki la compta.
+
+Il recommença.
+
+— Tout ça ?
+
+— Et tu n'as pas encore vendu les ressources de ta dernière expédition.
+
+Le garçon sentit une certaine fierté l'envahir.
+
+Il se souvenait des premiers jours durant lesquels quelques pièces suffisaient à lui donner le sourire.
+
+Il ne comptait pas cesser de faire attention à ses dépenses.
+
+Mais il pouvait désormais envisager des achats qu'il avait longtemps remis à plus tard.
+
+En se dirigeant vers la sortie, il remarqua une nouvelle affiche.
+
+**Devenez un aventurier : nos équipements vous aident à conquérir le donjon !**
+
+Au-dessous, en caractères beaucoup plus petits, figuraient quelques précautions.
+
+— Tu n'avais pas écrit ça sur les anciennes affiches.
+
+— Les gens comprennent mieux ce que nous vendons.
+
+Zeki relut la première ligne.
+
+— Ils pourraient croire qu'il suffit d'acheter le matériel.
+
+Le marchand hocha la tête.
+
+— Nous expliquons toujours son fonctionnement.
+
+— Même quand il y a beaucoup de clients ?
+
+L'homme ouvrit la bouche.
+
+Puis il la referma.
+
+— Je vais demander à mes employés de faire attention.
+
+Zeki le remercia.
+
+Le marchand contempla l'affiche après son départ.
+
+Elle avait été particulièrement efficace depuis son installation.
+
+Il ne la retira pas.
+
+***
+
+À la boutique de compétences, le vendeur reconnut immédiatement son jeune client.
+
+— Vous êtes revenu chercher quelque chose pour prendre la fuite ?
+
+— Pas cette fois.
+
+Zeki examina les parchemins disponibles.
+
+Il écarta plusieurs compétences offensives très recherchées. Il possédait déjà suffisamment de moyens d'infliger des dégâts lorsqu'il parvenait à créer les bonnes conditions.
+
+Il préférait résoudre des problèmes que ses compétences actuelles ne lui permettaient pas encore de surmonter.
+
+Deux parchemins retinrent son attention.
+
+**Récupération solitaire.**
+
+*Améliore de 25 % la récupération d'énergie lors des périodes de repos effectuées seul.*
+
+Il relut soigneusement les conditions. Cette aptitude ne lui permettrait pas de poursuivre indéfiniment un combat. En revanche, elle lui serait utile entre deux affrontements.
+
+Le second parchemin portait un nom qui lui parut prometteur.
+
+**Présence insignifiante.**
+
+*Réduit l'intérêt spontané que certaines créatures portent au détenteur lorsqu'il ne manifeste aucune hostilité.*
+
+— Celui-là se vend très mal, précisa le vendeur. Les gardes et les chevaliers cherchent généralement à attirer les monstres vers eux.
+
+— Et si un monstre m'a déjà attaqué ?
+
+— Ce n'est pas une compétence qui lui fera oublier votre existence. Vous feriez mieux de ne pas compter dessus dans ce cas.
+
+Zeki acquiesça.
+
+Il acheta les deux parchemins.
+
+Il avait également repéré une compétence permettant de rappeler certains accessoires enchantés. Son prix lui sembla cependant trop élevé au regard de ses autres projets.
+
+Il nota son nom.
+
+Il reviendrait peut-être.
+
+***
+
+Le marchand fut ravi de voir Zeki revenir quelques heures plus tard.
+
+Il lui présenta une arbalète de grande qualité, ornée de motifs argentés.
+
+— Avec tes économies, tu pourrais te l'offrir. Une arme comme celle-ci ferait sensation auprès des aventuriers.
+
+Zeki examina l'objet avec attention.
+
+Il demanda son prix.
+
+Puis il se dirigea vers un étal d'accessoires que le marchand avait installé dans un coin de la boutique.
+
+Il en choisit plusieurs.
+
+Une corde enchantée qui se raidissait brièvement lorsqu'on lui en donnait l'ordre.
+
+Un petit miroir capable de conserver une image pendant quelques instants.
+
+Une pierre lumineuse dont on pouvait modifier l'intensité.
+
+Un boomerang enchanté, conçu pour revenir près de son lanceur lorsque rien n'interrompait sa trajectoire.
+
+Deux petits anneaux qui vibraient lorsqu'on les éloignait excessivement l'un de l'autre.
+
+Le marchand observa les objets.
+
+— Tu pourrais acheter une véritable arme.
+
+— J'en ai déjà une.
+
+— Mais qu'est-ce que tu vas faire de tout ça ?
+
+Zeki considéra le boomerang.
+
+— Je ne sais pas encore pour certains.
+
+— Alors pourquoi les acheter ?
+
+— Parce que quand j'en aurai besoin, je risque de ne pas en avoir.
+
+Le marchand regarda l'arbalète argentée.
+
+Il soupira.
+
+— Je vais te faire le prix du lot.
+
+***
+
+Le forgeron avait une surprise à lui présenter.
+
+Sur son établi reposait un grappin plus imposant que celui dont Zeki se servait habituellement.
+
+Une partie de l'écaille maîtresse du dragon avait été incorporée à la tête de l'objet.
+
+— J'ai réussi à obtenir un premier prototype, expliqua l'artisan.
+
+Zeki s'approcha.
+
+— Il résiste mieux à certains effets magiques. Mais ce n'est pas parce que la tête résiste que le reste de l'équipement résistera, ni que toi, tu résisteras.
+
+Le garçon acquiesça.
+
+Il avait encore mal à l'épaule.
+
+L'artisan lui montra plusieurs essais réalisés sur des supports enchantés de son atelier. Le résultat était encourageant, mais il restait des éléments à vérifier.
+
+Zeki ne pouvait pas encore emporter l'objet au donjon.
+
+Il finança néanmoins la poursuite des travaux.
+
+Puis il confia la fourrure mimétique du Lynx à une artisane recommandée par l'alchimiste.
+
+Ils envisagèrent d'en faire une cape qui atténuerait certains contrastes visuels. Personne ne savait encore si les propriétés du matériau resteraient suffisamment efficaces après sa transformation.
+
+Zeki passa la commande.
+
+Il lui restait de l'argent.
+
+Moins qu'avant, mais suffisamment pour repartir au donjon dans de bonnes conditions.
+
+***
+
+Au cours des journées de repos qui suivirent, le garçon consacra beaucoup de temps à ses compétences.
+
+Il avait employé Leurre et Main invisible à de nombreuses reprises depuis leur acquisition.
+
+Il reprit les exercices qu'il avait imaginés au deuxième étage, en modifiant progressivement leurs conditions.
+
+Une notification apparut pendant l'une de ces séances.
+
+**Leurre — Niveau 2.**
+
+Zeki fit apparaître son double.
+
+Cette fois, l'image put tourner légèrement la tête et effectuer un geste simple du bras.
+
+Le garçon éclata de rire.
+
+Il essaya de lui faire prendre son carnet.
+
+La main illusoire traversa le papier.
+
+Il essaya ensuite de lui faire traverser la pièce.
+
+L'image resta sur place.
+
+— On ne peut pas tout avoir.
+
+Quelques jours plus tard, après avoir poursuivi ses exercices avec les accessoires qu'il venait d'acheter, une seconde évolution se manifesta.
+
+**Main invisible — Niveau 2.**
+
+La portée du pouvoir avait augmenté. Il pouvait également déplacer des objets libres un peu plus lourds qu'auparavant.
+
+Il tenta de soulever une chaise.
+
+Elle bougea à peine.
+
+Il laissa tomber son projet.
+
+Il réussit en revanche à déplacer sans difficulté le petit miroir qu'il avait acheté, alors qu'il devait autrefois se rapprocher davantage pour accomplir une opération semblable.
+
+Zeki passa le reste de la soirée à imaginer les combinaisons que ces deux évolutions pourraient lui offrir.
+
+Lorsqu'il referma enfin son carnet, plusieurs pages étaient couvertes de dessins.
+
+Il ne savait pas ce qui l'attendait au troisième étage.
+
+Mais il avait suffisamment d'idées pour avoir envie de le découvrir.
+
+## Tome 1 — Chapitre 27 : Huit aventuriers, huit problèmes
+
+— À gauche !
+
+Tomas se tourna vers sa gauche.
+
+Brann se tourna vers la sienne.
+
+Daren, qui leur faisait face, regarda dans la direction opposée.
+
+Sera ferma les yeux.
+
+— Il va falloir que nous trouvions une autre manière de nous expliquer.
+
+Un loup des cavernes venait de disparaître derrière une saillie rocheuse.
+
+Les huit aventuriers avaient entrepris de poursuivre leur exploration du premier étage. Ils découvraient qu'une équipe de huit personnes présentait des avantages considérables, mais également quelques inconvénients inattendus.
+
+À quatre, Tomas connaissait les habitudes de ses compagnons.
+
+À huit, il ne savait plus toujours qui parlait.
+
+Nilo se retourna.
+
+— Il est derrière nous !
+
+Cette fois, tout le monde regarda dans la bonne direction.
+
+Le combat leur donna beaucoup de mal.
+
+Ils réussirent néanmoins à protéger celui d'entre eux que la créature avait pris pour cible. Daren se servit de son filet, tandis que Brann et Ivo détournèrent l'attention du monstre.
+
+Leurs efforts ne furent pas parfaitement coordonnés.
+
+Mais, pour la première fois, ils eurent l'impression de s'être rendus mutuellement service pendant presque tout un affrontement.
+
+Lorsque le loup tomba, Marel se mit à rire.
+
+— On dirait presque des aventuriers.
+
+— Nous sommes des aventuriers, répondit Sera.
+
+— Je sais. C'est ce qui m'inquiète.
+
+***
+
+Au fil de leurs sorties, les huit compagnons apprirent à mieux se connaître.
+
+Ils cessèrent notamment de confier toutes les décisions à Tomas.
+
+Sera prenait en charge la lecture des cartes. Marel s'occupait des ressources et des comptes. Oren vérifiait les équipements avant chaque départ.
+
+Brann avait commencé à s'intéresser sérieusement à la manière de reconnaître les parties des monstres susceptibles d'avoir de la valeur. Il préférait maintenant poser la question aux spécialistes de la Guilde plutôt que d'emporter inutilement des morceaux de créatures dont personne ne voulait.
+
+Daren progressait avec les filets.
+
+Ivo, qui observait toujours les mouvements des animaux avec beaucoup d'attention, apprenait à remarquer certains changements dans leur comportement.
+
+Quant à Nilo, il était devenu la personne que ses compagnons cherchaient instinctivement du regard lorsqu'ils avaient besoin d'une pause.
+
+Il finit par obtenir une notification à laquelle il ne s'attendait pas.
+
+**Nouvelle compétence acquise : Gestion des provisions — Niveau 1.**
+
+La compétence l'aidait à évaluer les quantités de nourriture qu'il leur restait et à mieux anticiper leurs besoins lors des expéditions.
+
+Nilo contempla la notification avec un immense plaisir.
+
+— Je savais que c'était important !
+
+Brann secoua la tête.
+
+— Tu as enfin une raison d'emporter moins de pain.
+
+— Ou d'en emporter davantage quand c'est nécessaire.
+
+L'enthousiasme du boulanger ne diminua pas.
+
+Daren obtint, à son tour, une compétence qui améliorait légèrement sa maîtrise des filets.
+
+Il avait pratiqué ce métier pendant des années à la surface. Il avait toutefois découvert que ses connaissances de pêcheur devaient être adaptées aux circonstances du donjon.
+
+Cette nouvelle aptitude le rendit particulièrement fier.
+
+Il venait de réussir à réunir deux activités qu'il avait longtemps considérées comme complètement différentes.
+
+Les autres espéraient obtenir des compétences à leur tour.
+
+Ils n'en devinrent pas pour autant plus pressés.
+
+Ils avaient suffisamment de difficultés à maîtriser les objets qu'ils possédaient déjà.
+
+***
+
+La première rencontre avec une Gélatine d'ambre donna lieu à une longue discussion.
+
+Brann estimait qu'il était préférable de s'en débarrasser avec son arme.
+
+Daren voulait essayer son filet.
+
+Oren s'inquiétait pour les chaussures de ceux qui approcheraient trop près de la créature.
+
+Marel proposa qu'ils se renseignent d'abord sur la valeur de son noyau.
+
+Sera leur rappela qu'ils pouvaient aussi poursuivre leur chemin.
+
+Ils choisirent cette dernière solution.
+
+Deux jours plus tard, après avoir consulté les renseignements disponibles à la Guilde, ils revinrent dans la même région.
+
+Leur nouvelle rencontre avec cette espèce se déroula beaucoup mieux.
+
+Ils apprirent à reconnaître le moment où son noyau devenait visible. Ils parvinrent à terminer le combat sans abîmer autant de matériel qu'ils l'avaient craint.
+
+La somme obtenue lors de la vente ne leur permit pas de devenir riches.
+
+Mais elle finança le remplacement de plusieurs accessoires usés.
+
+Tomas réunit ses compagnons autour de la table de Marel, le soir même.
+
+Il déplia ses dessins.
+
+Une partie importante des galeries qu'ils avaient explorées y figurait désormais.
+
+— Nous avons bien avancé, dit-il.
+
+— Tu veux dire que nous sommes bientôt au bout ? demanda Nilo.
+
+Tomas secoua la tête.
+
+Il leur montra les passages qui conduisaient vers les parties les plus profondes du premier étage.
+
+— Il nous reste encore beaucoup à voir. Et il y a le gardien.
+
+Le nom du Cyclope de fer fit disparaître quelques sourires.
+
+Ils avaient tous entendu les récits de Zeki.
+
+Ils savaient aussi que la plupart des groupes ne pouvaient pas se permettre de reproduire sa manière de combattre.
+
+— Nous sommes huit, observa Brann.
+
+— Huit personnes qui ne savent pas encore vaincre un Cyclope, lui répondit Sera.
+
+Personne ne protesta.
+
+Ils convinrent de poursuivre leurs expéditions et d'accumuler davantage d'expérience avant d'envisager sérieusement la rencontre.
+
+Nilo alla chercher de quoi manger.
+
+La discussion reprit.
+
+Cette fois, ils parlèrent de la manière dont ils pourraient s'améliorer, et non de ce qu'ils feraient de la récompense.
+
+***
+
+Lina et Mira retrouvèrent Zeki dans la cour de la Guilde.
+
+L'archère portait un équipement légèrement différent de celui qu'il lui connaissait. Son arc avait été réparé et elle avait remplacé une partie de ses protections.
+
+Mira, quant à elle, venait de récupérer un manteau sombre dont elle semblait particulièrement satisfaite.
+
+— On a entendu dire que tu avais peint le gardien du deuxième étage, annonça Lina.
+
+Zeki soupira.
+
+— Il y avait aussi un combat.
+
+— On nous a parlé du combat. Mais c'est la peinture que les gens retiennent.
+
+Mira lui demanda s'il pouvait lui montrer Mimétisme.
+
+Zeki accepta.
+
+Il prit l'apparence d'une caisse posée dans la cour.
+
+Le résultat était suffisamment convaincant pour surprendre Lina.
+
+Mira s'approcha.
+
+— Et tu peux bouger comme ça ?
+
+Il retrouva son apparence habituelle.
+
+— Pas vraiment.
+
+Elle lui montra alors comment elle utilisait sa propre aptitude de discrétion. Elle put parcourir une courte distance le long des bâtiments en atténuant le bruit de ses mouvements.
+
+Zeki la suivit du regard.
+
+Il s'intéressait particulièrement à cette différence.
+
+Mira pouvait se déplacer sans attirer autant l'attention.
+
+Lui devait devenir immobile pour se confondre avec le décor.
+
+Leurs capacités semblaient proches au premier abord, mais elles répondaient à des problèmes différents.
+
+Lina proposa ensuite un exercice de tir.
+
+Le garçon accepta avec plaisir.
+
+Il changea rapidement d'avis sur ses progrès.
+
+L'archère atteignit plusieurs cibles éloignées que Zeki avait beaucoup de mal à toucher. Elle savait ajuster ses tirs pendant les déplacements et lire les mouvements d'une cible avec une aisance qu'il ne possédait toujours pas.
+
+— Tu as beaucoup progressé, remarqua-t-elle néanmoins.
+
+— Toi aussi.
+
+Ils échangèrent quelques conseils.
+
+Zeki leur parla du troisième étage.
+
+Les deux jeunes femmes, qui avaient repris leurs propres contrats avec leur équipe, lui racontèrent leurs dernières explorations.
+
+Elles envisageaient également de tenter le gardien du deuxième étage lorsqu'elles auraient suffisamment préparé leur groupe.
+
+— Tu veux qu'on t'accompagne un de ces jours ? demanda Lina.
+
+Zeki réfléchit.
+
+Il était content de les retrouver.
+
+— Avec plaisir. Mais pas pour ma prochaine sortie. J'ai plusieurs choses à essayer tout seul.
+
+— Ça ne m'étonne pas, répondit Mira.
+
+Ils se quittèrent en promettant de se revoir.
+
+***
+
+En traversant la Guilde, Zeki aperçut quatre silhouettes familières.
+
+L'aventurier à la cape rouge discutait avec l'hôtesse. Le porteur du bouclier rond examinait une pièce d'armure, tandis que le mage et le soigneur comparaient deux documents.
+
+Ils semblaient préparer une nouvelle expédition.
+
+Zeki apprit un peu plus tard qu'ils avaient terminé plusieurs contrats au deuxième étage.
+
+Le gardien leur résistait encore.
+
+Cela ne signifiait pas qu'ils avaient cessé de progresser.
+
+Ils avaient considérablement amélioré leur manière de combattre dans la forêt. Le mage avait notamment trouvé des usages intéressants à certains cristaux récupérés sur les créatures qu'ils avaient vaincues.
+
+En apercevant Zeki, le chef de leur groupe s'interrompit.
+
+— Tu l'as vraiment battu ?
+
+Zeki acquiesça.
+
+L'homme regarda ses nouvelles bottes.
+
+— Seul ?
+
+— Oui.
+
+Il sembla vouloir ajouter quelque chose.
+
+Finalement, il se contenta d'un signe de tête.
+
+Le porteur du bouclier prit la parole.
+
+— Si tu as laissé un rapport, j'aimerais bien le lire.
+
+— Edrin en a un.
+
+— Merci.
+
+Zeki les salua et poursuivit son chemin.
+
+L'échange lui parut curieux.
+
+Quelques semaines plus tôt, aucun d'entre eux ne se serait probablement intéressé à ce qu'il avait à leur apprendre.
+
+Il ne savait pas si cela signifiait qu'ils l'appréciaient davantage.
+
+Mais ils avaient au moins commencé à lui parler autrement.
+
+***
+
+Un nouveau panneau avait été installé près du comptoir de la Guilde.
+
+Il indiquait les horaires des exercices de familiarisation et les noms des personnes acceptant d'accompagner les débutants.
+
+L'hôtesse avait enfin reçu l'aide d'un employé supplémentaire.
+
+Le nombre de demandes continuait cependant d'augmenter.
+
+Un voyageur venu de l'ouest racontait que, dans sa ville, la guilde avait commencé à réunir des artisans pour étudier les moyens de défense employés lors de l'attaque du dragon.
+
+Ailleurs, des commerçants avaient déjà mis en vente des ensembles d'équipements inspirés des inventions de Zeki.
+
+Le voyageur ajouta que certains responsables espéraient ouvrir prochainement leurs propres séances d'initiation.
+
+— Ils ont fait vite, remarqua l'hôtesse.
+
+— Ils disent que ça rapporte beaucoup.
+
+Elle regarda le panneau.
+
+— Il faudrait surtout qu'ils trouvent des gens capables de s'occuper des débutants.
+
+Le voyageur haussa les épaules.
+
+Elle nota le nom de sa ville afin de lui envoyer quelques renseignements sur les exercices qu'ils avaient organisés ici.
+
+Elle n'était pas certaine qu'ils prendraient le temps de les lire.
+
+***
+
+Lorsque le guérisseur l'autorisa enfin à reprendre ses expéditions, Zeki se dirigea vers le troisième étage.
+
+Il traversa les régions déjà explorées du premier et du deuxième étage sans s'attarder sur les créatures ordinaires.
+
+Ses nouvelles bottes lui rendaient de précieux services sur les racines et les rochers humides.
+
+Il éprouva même le plaisir de ne pas glisser à un endroit où il avait pris l'habitude de tomber.
+
+Au-delà du territoire du Lynx, l'escalier qu'il avait aperçu après sa victoire descendait profondément sous terre.
+
+L'air devint plus sec.
+
+La végétation se raréfia.
+
+Zeki déboucha enfin dans une immense caverne dont une partie semblait occupée par les ruines d'une ville.
+
+Des arches de pierre soutenaient des galeries à plusieurs hauteurs. Des constructions effondrées formaient des passages entre lesquels s'étendaient de vastes espaces éclairés par des cristaux.
+
+Il resta un moment immobile.
+
+Il ne voyait pas comment un tel endroit avait pu se retrouver si profondément sous terre.
+
+Les ouvrages d'Edrin contenaient peut-être des hypothèses.
+
+Il ouvrit son carnet.
+
+Cette fois, la cartographie lui demanderait probablement beaucoup plus de travail.
+
+***
+
+Les premières créatures qu'il rencontra étaient différentes de celles des deux étages précédents.
+
+De petits animaux au dos minéral circulaient entre les pierres. Des silhouettes aux membres allongés se déplaçaient dans certaines galeries. De grandes créatures ailées quittaient régulièrement les parties hautes de la caverne.
+
+Zeki consacra ses premières sorties à apprendre à les reconnaître.
+
+Il éprouva aussi ses acquisitions.
+
+Son Leurre pouvait maintenant effectuer un geste. Une créature qui aurait autrefois ignoré une silhouette immobile se rapprocha lorsqu'elle vit le double lever un bras.
+
+Une autre créature ne se laissa pas tromper.
+
+Main invisible lui permit de récupérer son petit miroir à une distance qu'il n'aurait pas pu atteindre auparavant.
+
+Quant au boomerang, il fonctionna parfaitement lors de son premier essai.
+
+Lors du deuxième, il heurta un élément du décor et retomba loin de lui.
+
+Zeki dut aller le chercher.
+
+— Il faudrait que j'apprenne à lancer ça.
+
+Il entreprit également de combiner Mimétisme et Dissimulation olfactive.
+
+Plusieurs petits monstres passèrent près de lui sans manifester d'intérêt particulier.
+
+Il ignorait cependant quelle part de ce résultat était due à ses différentes compétences.
+
+Présence insignifiante semblait également lui permettre d'observer plus tranquillement certaines espèces peu agressives.
+
+Elle ne lui apporta aucun secours lorsqu'une grande créature le prit effectivement en chasse.
+
+Il inscrivit soigneusement cette limite dans son carnet.
+
+Il s'intéressa tout particulièrement à un petit reptile ailé capable de parcourir de courtes distances entre les structures en ruine.
+
+Il aurait beaucoup aimé obtenir une nouvelle forme de métamorphose.
+
+Cependant, le simple fait de contempler la créature ne lui apporta aucune notification.
+
+Il allait devoir trouver une manière d'approfondir ses observations.
+
+Il se rappela les nombreuses tentatives qui avaient précédé l'acquisition de sa forme de tortue.
+
+Il n'y avait aucune raison de supposer que le système lui épargnerait cette fois les efforts nécessaires.
+
+***
+
+Au cours d'une exploration, Zeki découvrit une galerie beaucoup plus vaste que les précédentes.
+
+Une ancienne structure de pierre se dressait au milieu de l'espace.
+
+Il observa les ouvertures qui permettaient d'en apercevoir l'intérieur.
+
+Quelque chose attira immédiatement son attention.
+
+Un coffre.
+
+Il était plus grand que ceux qu'il avait trouvés jusqu'alors et sa surface portait des motifs dorés que Zeki ne reconnaissait pas.
+
+Il consulta sa carte.
+
+Il n'avait encore vu aucune mention de cet endroit dans les renseignements qu'il avait recueillis.
+
+Il s'approcha de quelques pas.
+
+Puis s'arrêta.
+
+Une masse énorme occupait une partie de la galerie.
+
+Il l'avait prise pour un amas de pierres.
+
+Deux yeux s'ouvrirent.
+
+La créature redressa lentement la tête. Son corps massif était recouvert de plaques sombres, entre lesquelles brillaient des reflets orangés.
+
+Zeki utilisa Analyse avancée.
+
+**Identification partielle : Drakéide de basalte.**
+
+**Niveau : nettement supérieur au vôtre.**
+
+**Évaluation des autres caractéristiques : insuffisante.**
+
+Le garçon recula.
+
+Il n'avait aucune envie de vérifier l'exactitude de l'évaluation.
+
+Le Drakéide ne bougea pas.
+
+Zeki regagna prudemment les galeries qu'il connaissait.
+
+Il s'assit à bonne distance et ouvrit son carnet.
+
+Il dessina la créature, la structure et le coffre.
+
+Il contempla son arbalète.
+
+Puis il regarda le dessin du trésor.
+
+Un autre aventurier se serait probablement demandé combien de niveaux il lui faudrait gagner avant de pouvoir vaincre une telle créature.
+
+Zeki se posa une question différente.
+
+Était-il vraiment nécessaire de la vaincre ?
