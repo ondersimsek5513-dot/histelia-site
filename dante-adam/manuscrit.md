@@ -2927,3 +2927,313 @@ Toute cette richesse avait été fabriquée par quelqu'un.
 Jusqu'alors, il s'était contenté de la récupérer.
 
 Il voulait maintenant être capable de la créer.
+
+## Tome 1 — Chapitre 11 : Le prix d'une récolte
+
+— Tu te rends compte que tu viens de compter des pommes de terre trois fois ?
+
+Dante leva les yeux vers Adam.
+
+— Je vérifie.
+
+— Elles ne vont pas disparaître entre deux comptages.
+
+Hélène, qui les observait depuis la porte du bâtiment, se mit à rire.
+
+— Laisse-le. Il y a six mois, il croyait qu'il suffirait de mettre des graines en terre.
+
+Dante referma son carnet.
+
+La récolte avait été moins importante qu'il ne l'avait espéré. Une partie des plants avait mal supporté les conditions de la saison. Il avait également perdu plusieurs semaines en insistant sur des cultures qu'Hélène lui avait déconseillées.
+
+Il avait dû apprendre à reconnaître ses erreurs sans pouvoir en annuler les conséquences.
+
+Cette fois, les sacs alignés devant lui représentaient le résultat de son propre travail et de celui des personnes auxquelles il s'était associé. Une partie revenait à Hélène et aux autres participants, conformément à leur accord. Une autre devait être conservée pour leurs besoins et la saison suivante.
+
+Il lui restait suffisamment de marchandises pour conclure quelques échanges.
+
+Il avait pourtant décidé que les premières pommes de terre qui lui revenaient ne seraient pas vendues.
+
+Le soir, Adam les retrouva dans son assiette.
+
+— Tu les as cuisinées toi-même ?
+
+— Évidemment.
+
+— Ça explique certaines choses.
+
+Dante lui prit sa fourchette.
+
+— Alors ne mange pas.
+
+Adam récupéra son assiette en riant.
+
+Ils avaient déjà mangé des aliments bien meilleurs que ceux-là. Ils en avaient même possédé beaucoup plus au début de la crise.
+
+Mais aucun des deux ne regardait ces pommes de terre comme une nourriture ordinaire.
+
+Le lendemain, Dante demanda à Hélène de lui montrer les parcelles qu'ils pourraient remettre en culture l'année suivante.
+
+***
+
+Le premier hiver leur apprit la différence entre produire et pouvoir vivre de sa production.
+
+Dante avait conclu un accord avec une exploitation voisine pour obtenir une quantité importante de fruits à un prix très avantageux. Il pensait disposer d'un délai suffisant pour les échanger.
+
+Plusieurs déplacements furent annulés. Les fruits commencèrent à s'abîmer.
+
+Lorsqu'il comprit l'ampleur de la perte, il en était déjà à sa troisième mauvaise affaire depuis le début de l'hiver.
+
+Claire entra dans le local au moment où il examinait les marchandises devenues inutilisables.
+
+— Tu vas les inscrire dans le carnet ?
+
+— Pourquoi ? Pour le plaisir de les compter une dernière fois ?
+
+— Pour ne pas recommencer.
+
+Il soupira.
+
+Elle posa devant lui les registres de plusieurs producteurs des environs. Tous rencontraient des difficultés similaires. Le manque de débouchés et de moyens de conservation les obligeait à céder certaines productions pour presque rien.
+
+Dante se souvenait de l'ancien bâtiment de transformation agricole qu'Hélène leur avait montré à leur arrivée.
+
+— Si on pouvait remettre une partie de ce matériel en service...
+
+Claire le regarda.
+
+— Il faudra des gens qui savent s'en servir. Et de l'énergie. Et beaucoup de travail.
+
+— Je sais.
+
+Il n'avait plus l'intention d'acheter une seule caisse de fruits supplémentaire avant de savoir ce qu'il pourrait en faire.
+
+Il consacra une partie de ses réserves à ce projet. Jacques et une ancienne technicienne, Mireille, examinèrent les équipements encore récupérables. Plusieurs exploitants acceptèrent de participer aux frais en échange d'un accès aux installations une fois celles-ci remises en état.
+
+Cela leur prit presque un an.
+
+Entre-temps, Dante avait vendu des biens auxquels il tenait, renoncé à certaines acquisitions et dû renégocier des engagements qu'il n'aurait pas pu honorer autrement.
+
+Il avait parfois regretté d'avoir accepté le projet.
+
+Puis, un matin, Mireille lui remit les premiers produits transformés et contrôlés par son équipe.
+
+Dante retourna un bocal entre ses mains.
+
+— C'est tout ?
+
+— C'est le premier lot, répondit-elle. Tu en attendais combien ?
+
+Il contempla les autres bocaux.
+
+Quelques mois auparavant, ces fruits auraient probablement fini sur le sol d'un verger. À présent, ils avaient une valeur bien supérieure à celle qu'ils auraient eue au moment de la récolte.
+
+Il demanda à Claire de préparer les premiers échanges.
+
+Cette fois, il ne revendait plus seulement ce que d'autres avaient produit.
+
+Il avait investi dans quelque chose qui augmentait la valeur de leur travail.
+
+***
+
+Au terme de leur deuxième année aux Aulnes, les frères ne vivaient plus dans le logement qui leur avait été attribué à leur arrivée.
+
+Une ancienne maison, dont les propriétaires avaient décidé de s'installer ailleurs, leur avait été cédée par accord écrit, en échange de marchandises et de travaux effectués au cours de plusieurs mois.
+
+Dante avait tenu à faire reconnaître l'accord par les habitants concernés. Il avait appris que les promesses concernant les biens pouvaient devenir une source de conflits aussi grave que les pénuries.
+
+Adam le retrouva dans la cuisine.
+
+Il tourna le robinet.
+
+L'eau coula.
+
+Il regarda Dante.
+
+— Je crois que je vais prendre une douche.
+
+— Tu en as déjà pris une hier.
+
+— Je vais en prendre une deuxième.
+
+Dante sourit.
+
+L'installation collective avait été remise en état par étapes. Elle nécessitait encore des vérifications et des interventions régulières. Une production électrique d'appoint, financée par plusieurs foyers, permettait également de faire fonctionner certains équipements selon les disponibilités.
+
+Ils n'avaient pas retrouvé le niveau de confort d'avant l'effondrement.
+
+Mais ils n'avaient plus à déplacer des bouteilles pour se laver les mains.
+
+Dans l'ancien bâtiment agricole, les activités s'étaient multipliées. Jacques dirigeait son atelier avec trois personnes. Claire coordonnait les échanges de plusieurs exploitations. Mireille supervisait la transformation des produits.
+
+Dante avait acquis un deuxième véhicule et une part des équipements de stockage, tout en conservant sa participation aux activités communes. Il disposait de réserves personnelles renouvelées et d'un réseau commercial qui dépassait désormais la vallée.
+
+Ses gains n'étaient plus mesurés seulement en cartons.
+
+Ils représentaient du temps de travail, du matériel, des récoltes futures et des engagements que des dizaines de personnes avaient intérêt à respecter.
+
+Il avait également appris à manier une arme avec davantage de prudence qu'à ses débuts. Les habitants s'étaient organisés pour protéger leur communauté et résoudre ensemble les incidents. Les déplacements n'étaient pas sans danger, et certains partenaires avaient cessé de donner signe de vie.
+
+Mais Dante n'était plus cet homme qui attendait seul derrière une porte d'appartement.
+
+***
+
+Adam fit visiter à son frère la nouvelle salle de soins.
+
+Une médecin, Leïla, avait rejoint les Aulnes après plusieurs mois passés dans des communautés qui ne parvenaient plus à maintenir leurs activités médicales. Elle travaillait avec Adam et deux autres soignants.
+
+Ils disposaient de quelques équipements récupérés et d'un espace dédié à la consultation. Leur matériel restait insuffisant pour traiter certaines maladies et blessures.
+
+Dante ouvrit un placard.
+
+— Tout ce que je vous ai apporté est déjà utilisé ?
+
+— Presque.
+
+— Vous êtes incroyables.
+
+Adam lui tendit une feuille.
+
+— Justement, il y a encore des choses dont on aurait besoin.
+
+Dante parcourut la liste.
+
+Plusieurs articles ne lui évoquaient rien. Certains étaient presque impossibles à trouver en bon état, et les médicaments adaptés restaient particulièrement difficiles à obtenir.
+
+— Tu sais combien ça va coûter ?
+
+— Non.
+
+— Moi non plus, pour une fois.
+
+Leïla entra, accompagnée d'un homme qui avait terminé sa consultation. Celui-ci remercia Adam, puis Dante.
+
+— Pourquoi moi ? demanda ce dernier.
+
+— Votre frère m'a expliqué que vous aviez trouvé une partie du matériel.
+
+Dante referma le placard.
+
+Il ne se souvenait pas du nom de cet homme. Il avait fourni ces équipements parce qu'Adam le lui avait demandé et parce qu'une structure de soins était précieuse pour la vallée.
+
+Il n'avait pas pensé aux personnes qui viendraient ensuite s'y faire soigner.
+
+En sortant, il aperçut une petite fille qui courait vers Adam avec un dessin à la main.
+
+Il resta quelques secondes à les observer.
+
+Son frère n'avait jamais possédé autant de marchandises que lui.
+
+Pourtant, il y avait désormais des gens qui faisaient plusieurs heures de route simplement parce qu'ils savaient où le trouver.
+
+***
+
+À la même époque, Victor avait cessé de considérer son ancien dépôt comme le centre de ses activités.
+
+Les marchandises qu'il s'était appropriées autrefois ne pouvaient pas durer éternellement. Une partie avait été consommée, une autre échangée ou perdue.
+
+Il avait dû trouver d'autres sources de revenus.
+
+Ses hommes assuraient la protection de plusieurs groupes et intervenaient dans les différends qui opposaient des communautés. Les accords conclus au fil des années ne laissaient cependant que peu de possibilités à ceux qui souhaitaient se retirer.
+
+Renaud Valès faisait toujours partie de son organisation.
+
+Il posa devant Victor un compte rendu concernant les derniers échanges.
+
+— On pourrait obtenir davantage si les producteurs acceptaient de travailler directement avec nous.
+
+Victor examina les noms inscrits sur la feuille.
+
+— Et pourquoi ils ne le font pas ?
+
+— Ils ont déjà leurs propres intermédiaires.
+
+Renaud lui parla d'une vallée où les habitants avaient rétabli une activité de transformation agricole et où les échanges régionaux semblaient se développer.
+
+Victor reconnut un nom.
+
+Claire.
+
+Il se souvenait de la femme qui avait dirigé le dépôt avant son arrivée. Elle était partie avec quelques familles, accompagnée d'un homme qui faisait du commerce.
+
+— Dante, murmura-t-il.
+
+— Tu le connais ?
+
+— On s'est déjà rencontrés.
+
+Victor parcourut le reste du document.
+
+Il n'avait aucune envie de travailler la terre, de réparer des machines ou de passer des années à apprendre à produire ce dont il avait besoin.
+
+D'autres personnes savaient très bien le faire.
+
+***
+
+La troisième année, les Aulnes organisèrent leur première grande journée d'échanges.
+
+Des producteurs et des artisans vinrent de plusieurs localités. Certains apportaient des légumes, des céréales ou des produits transformés. D'autres proposaient des vêtements réparés, des outils, des pièces ou du matériel dont Dante ignorait encore l'existence quelques jours auparavant.
+
+Il y eut des désaccords, des transactions abandonnées, des gens qui repartirent mécontents.
+
+Mais il y eut aussi des repas partagés, des enfants qui jouaient et des personnes qui se retrouvaient après avoir passé des années sans se voir.
+
+Dante regarda Claire négocier avec deux producteurs. Un peu plus loin, Jacques discutait d'une réparation avec un homme qui avait fait le déplacement depuis une autre vallée.
+
+Hélène vint s'asseoir à côté de lui.
+
+— Alors ? Tu as gagné ta journée ?
+
+— Plutôt bien.
+
+— Tu te rappelles quand tu m'as demandé combien de sacs on pourrait produire ?
+
+Il hocha la tête.
+
+Elle lui montra les marchandises exposées.
+
+— Tu as ta réponse.
+
+Dante sourit.
+
+Il avait commencé avec quelques conserves achetées dans un supermarché.
+
+Il avait ensuite rempli un appartement, puis un local, puis un fourgon.
+
+À présent, une partie de ses ressources servait à financer des travaux et des productions dont les résultats ne seraient visibles que plusieurs mois plus tard.
+
+Le lendemain, il devrait régler des fournisseurs, examiner un nouvel accord et chercher un équipement qui manquait à l'atelier.
+
+Il n'était pas tranquille pour autant.
+
+Mais il pouvait enfin se permettre de réfléchir à ce qu'il souhaitait accomplir dans un an, au lieu de se demander ce qui lui manquerait le lendemain.
+
+Il trouva Adam à la fin de la journée.
+
+— Tu sais ce que je regrette ? lui demanda-t-il.
+
+— Quoi ?
+
+— D'avoir perdu autant de temps au début.
+
+Adam regarda les bâtiments.
+
+— On ne savait pas.
+
+Dante observa longuement la vallée.
+
+Il connaissait maintenant les personnes dont il aurait eu besoin dès les premières semaines. Il savait quelles acquisitions avaient été inutiles, quels équipements auraient dû être achetés en priorité, quelles relations avaient mis des mois à se construire.
+
+Il connaissait le prix de chacune de ses erreurs.
+
+— Imagine, dit-il, si on avait su tout ça avant.
+
+Adam sourit.
+
+— On aurait gagné trois ans.
+
+Dante ne répondit pas.
+
+Trois ans.
+
+Il aurait aimé savoir jusqu'où ils auraient pu aller avec trois années de plus.
