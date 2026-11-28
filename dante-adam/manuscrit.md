@@ -1285,3 +1285,343 @@ Dante regarda les cartons qui envahissaient toujours son salon.
 Quelques jours plus tôt, il aurait considéré leur contenu comme une fortune.
 
 Il venait de découvrir qu'il existait peut-être une fortune bien plus importante.
+
+## Tome 1 — Chapitre 6 : La fortune derrière les portes
+
+Le vingt et unième jour, Dante retrouva un endroit où l'abondance existait encore.
+
+Le dépôt dont lui avait parlé Rémi se trouvait à la périphérie de la ville. Il avait déjà eu l'occasion de s'y rendre dans le cadre de son travail, mais il n'y était jamais venu en tant que client.
+
+Il avait attendu le jour de repos d'Adam pour faire le déplacement. Le trajet avait consommé une partie du carburant qu'il lui restait. Il espérait ne pas être venu pour rien.
+
+Un homme leur fit signe de s'arrêter.
+
+Dante descendit de voiture.
+
+— On cherche à parler au responsable.
+
+— Pour quoi faire ?
+
+— Des marchandises. Je travaillais avec les magasins que vous approvisionniez.
+
+L'homme secoua la tête.
+
+— Il n'y a plus de livraison.
+
+— Je ne viens pas pour une livraison professionnelle.
+
+Adam descendit à son tour.
+
+Dante allait poursuivre lorsqu'il remarqua l'arme que portait leur interlocuteur.
+
+Un fusil.
+
+L'homme ne le menaçait pas directement. Il n'avait d'ailleurs pas changé de ton depuis le début de la conversation.
+
+Mais Dante sentit sa gorge se serrer.
+
+Il comprit soudain qu'il ne maîtrisait absolument pas la situation.
+
+— On voudrait simplement discuter, précisa Adam.
+
+L'homme leur demanda de patienter.
+
+Quelques minutes plus tard, une femme vint à leur rencontre.
+
+— Je m'appelle Claire. J'étais responsable de l'exploitation ici. Qu'est-ce que vous voulez ?
+
+Dante lui expliqua comment il avait appris que des stocks se trouvaient encore sur place. Il lui donna le nom de son entreprise et celui de quelques interlocuteurs professionnels qu'ils avaient en commun.
+
+Claire en reconnut deux.
+
+— D'accord. Mais si vous êtes venus acheter des marchandises, vous perdez votre temps.
+
+— Vous en avez encore ?
+
+— Ce n'est pas la question.
+
+Elle regarda la voiture des frères, puis leur demanda de l'accompagner pour discuter.
+
+***
+
+Dante dut faire un effort pour rester attentif à ce que Claire lui racontait.
+
+À l'intérieur du bâtiment, des palettes chargées de marchandises s'élevaient les unes à côté des autres. Il reconnut des cartons dont il connaissait les références, des sacs de riz et de farine, des conserves, des produits d'entretien et des emballages de boissons.
+
+Il avait travaillé pendant des années avec ce genre de quantités.
+
+Pourtant, il ne les avait jamais regardées de cette manière.
+
+Il connaissait approximativement le contenu d'une palette de conserves. Il pouvait imaginer le nombre de repas que cela représentait pour deux personnes.
+
+Une seule palette aurait suffi à changer considérablement leur situation.
+
+Il cessa d'essayer d'évaluer l'ensemble.
+
+Il y en avait trop.
+
+— On est une trentaine à vivre ici actuellement, expliqua Claire. Des employés et leurs familles, pour la plupart. Certains ont été rejoints par leurs proches. D'autres sont repartis.
+
+Elle désigna un homme qui transportait des couvertures.
+
+— On essaie de tenir jusqu'à ce que les choses reprennent.
+
+Dante regarda les marchandises.
+
+— Vous avez largement de quoi tenir.
+
+— Pour la nourriture, oui. Pour le reste, c'est plus compliqué.
+
+Des espaces de travail avaient été transformés en lieux de vie. Quelques enfants jouaient dans une salle commune. Une femme préparait le repas pendant qu'un autre occupant réparait une chaise.
+
+Dante remarqua un deuxième homme armé.
+
+Claire suivit son regard.
+
+— On a déjà eu des problèmes. Des gens sont venus réclamer de la nourriture. Au début, on leur en donnait. Puis certains sont revenus avec des menaces.
+
+Elle s'interrompit devant une porte.
+
+— Depuis, on ne laisse plus entrer n'importe qui.
+
+Dante comprenait parfaitement leur décision.
+
+Il avait lui-même refusé de donner quelques conserves à une voisine.
+
+Il se trouvait maintenant de l'autre côté.
+
+— Vous seriez prêts à échanger une partie de vos stocks ?
+
+— Contre quoi ?
+
+Dante évoqua l'argent, puis se ravisa. Il avait encore des économies, mais Claire ne lui laissa même pas terminer sa phrase.
+
+— On a déjà des salaires qui ne sont pas arrivés. Vous croyez vraiment qu'on a besoin de chiffres supplémentaires sur nos comptes ?
+
+— Alors, dites-moi ce qu'il vous faut.
+
+— On ne manque pas de problèmes, monsieur. Mais on ne connaît rien de vous.
+
+Elle se leva.
+
+— Désolée. Je ne peux pas prendre une décision qui engage tout le monde simplement parce que vous connaissiez nos anciens clients.
+
+***
+
+Dehors, Dante resta quelques instants sans parler.
+
+Adam lui tendit une bouteille.
+
+— Tiens.
+
+Dante ne la prit pas.
+
+— Tu as vu ce qu'ils ont ?
+
+— Oui.
+
+— Trente personnes. Même en tenant compte de leurs familles, ils ont des réserves énormes.
+
+— Et ils ne savent pas combien de temps ils vont devoir vivre dessus.
+
+Dante passa une main sur son visage.
+
+— Si je pouvais récupérer ne serait-ce qu'une petite partie de ce qu'il y a là-dedans...
+
+— Ils viennent de te dire non.
+
+— J'ai entendu.
+
+Il regarda le bâtiment.
+
+— On pourrait quand même trouver un moyen d'en prendre.
+
+Adam se tourna vers lui.
+
+— Qu'est-ce que tu veux dire ?
+
+Dante ne répondit pas immédiatement.
+
+— Je ne parle pas de faire du mal aux enfants. Je dis juste qu'on ne peut pas laisser passer une occasion pareille.
+
+— Tu crois que les adultes qui sont avec eux n'ont pas le droit de manger non plus ?
+
+— Ils ont beaucoup plus que ce dont ils ont besoin !
+
+— Comme toi, quand Mme Morel t'a demandé trois boîtes ?
+
+Dante se retourna brusquement.
+
+Il ouvrit la bouche, puis se tut.
+
+Adam avait touché un point qu'il n'avait aucune envie de reconnaître.
+
+— Et tu as vu leurs armes ? poursuivit son frère. Tu comptes faire quoi si l'un d'eux décide de s'en servir ?
+
+Dante n'avait aucune réponse.
+
+Il revit le visage de l'homme qui les avait accueillis. Ce dernier n'avait pas eu besoin de les insulter, ni de lever la voix. Dante avait compris dès le premier regard qu'il n'était pas en position d'imposer quoi que ce soit.
+
+— Je veux juste qu'on puisse vivre tranquillement, dit-il.
+
+— Eux aussi.
+
+Adam regarda l'entrée du dépôt.
+
+— Attends-moi ici.
+
+***
+
+Claire parut surprise lorsqu'Adam revint lui parler.
+
+— Votre frère a oublié quelque chose ?
+
+— Non. J'ai vu que vous aviez des enfants ici. Vous avez quelqu'un qui s'occupe des problèmes de santé ?
+
+Elle hésita.
+
+— Pourquoi ?
+
+— Je suis infirmier.
+
+Cette fois, Claire ne lui demanda pas de repartir.
+
+Une employée s'était blessée à la main quelques jours auparavant. Un des enfants avait de la fièvre. Plusieurs personnes âgées avaient du mal à renouveler leurs traitements.
+
+Ils avaient quelques fournitures de premiers secours, mais aucun professionnel de santé parmi eux.
+
+Adam proposa de voir les personnes qui le souhaitaient. Il précisa qu'il n'était pas médecin et qu'il ne pouvait ni remplacer une consultation médicale ni obtenir tous les traitements nécessaires.
+
+Claire accepta.
+
+Pendant qu'il parlait avec les occupants, Dante attendit dans la voiture.
+
+Une heure plus tard, Adam revint le chercher.
+
+— Viens. Ils ont peut-être quelque chose à nous proposer.
+
+Claire les attendait avec deux de ses collègues.
+
+L'un d'eux, un homme nommé Étienne, connaissait les stocks du dépôt. Il expliqua qu'ils avaient surtout besoin de retrouver des contacts utiles à l'extérieur. Les informations disponibles étaient devenues rares, et leurs déplacements leur coûtaient beaucoup trop de temps.
+
+— Il nous manque de tout sauf ce qu'on a ici, résuma-t-il.
+
+Dante sourit légèrement.
+
+Pour la première fois depuis leur arrivée, la conversation lui rappelait son ancien métier.
+
+Il proposa de partager les informations fiables dont il disposait sur les fournisseurs et les services encore accessibles, ainsi que de les prévenir s'il découvrait de nouvelles possibilités d'échange.
+
+Adam accepta de revenir, lorsque ses horaires et la situation le permettraient, pour apporter une aide dans les limites de ses compétences.
+
+Claire ne voulait pas prendre d'engagement indéfini. Elle consulta ses collègues, puis leur proposa un premier lot de marchandises.
+
+Dante trouva la quantité insuffisante.
+
+Ils négocièrent encore quelques minutes.
+
+Finalement, Claire consentit à ajouter plusieurs cartons de produits d'hygiène et une partie de leurs boissons en réserve.
+
+— C'est un premier échange, précisa-t-elle. Pas un abonnement à nos stocks.
+
+— Ça me convient, répondit Dante.
+
+Il mentait un peu.
+
+Il aurait aimé obtenir beaucoup plus.
+
+Mais lorsqu'il vit Étienne apporter les marchandises convenues, il se sentit néanmoins satisfait.
+
+Ils étaient venus sans rien à offrir de matériel. Ils repartaient avec de quoi améliorer considérablement leur quotidien.
+
+Et ils avaient la possibilité de revenir.
+
+***
+
+Sur le chemin du retour, Dante conduisit en silence.
+
+Adam avait posé un carton à ses pieds. Il tourna la tête vers son frère.
+
+— Alors ?
+
+— Alors quoi ?
+
+— Tu regrettes encore de ne pas avoir tout pris ?
+
+Dante sourit malgré lui.
+
+— Évidemment.
+
+— Au moins, ils nous laisseront revenir.
+
+— Tu sais, si on avait un camion et un endroit où mettre tout ça...
+
+— Il faudrait encore qu'ils acceptent de te le donner.
+
+— Oui, merci.
+
+Ils rirent.
+
+Cela faisait plusieurs jours que Dante n'avait pas entendu son frère rire de cette manière.
+
+Il pensa aux hommes armés du dépôt.
+
+— Il va falloir qu'on puisse se défendre, Adam.
+
+Le rire de son frère s'éteignit.
+
+— Tu parles d'armes ?
+
+— Tu les as vus. On ne peut plus compter sur la police comme avant. Je ne veux pas attendre que quelqu'un entre chez nous.
+
+Adam regarda la route.
+
+— Je comprends que tu veuilles nous protéger.
+
+Il marqua une pause.
+
+— Mais avoir une arme, ça veut aussi dire qu'un jour tu pourrais t'en servir.
+
+— Je sais.
+
+Dante n'avait jamais possédé d'arme à feu. Il n'avait aucune expérience de leur utilisation.
+
+Pourtant, à cet instant, il avait davantage peur de rester sans défense que d'en posséder une.
+
+***
+
+Victor posa son repas sur le bureau.
+
+Son équipe s'était agrandie depuis son dernier accord commercial. Les hommes qui l'avaient rejoint n'avaient pas tous la même expérience, et il ne disposait pas de moyens illimités. Mais il pouvait désormais compter sur davantage de personnel qu'au début de la crise.
+
+Un de ses anciens clients venait de lui parler d'un dépôt de distribution où des familles s'étaient installées.
+
+— Il paraît qu'ils ont de quoi nourrir beaucoup de monde, lui expliqua-t-il. J'ai essayé de discuter avec eux, mais ils ne veulent rien entendre.
+
+— Ils ont des gardes ?
+
+— Des employés. Des gens armés, apparemment.
+
+Victor hocha la tête.
+
+— Et ils distribuent quelque chose ?
+
+— Seulement s'ils le décident.
+
+Le client lui demanda s'il connaissait un moyen de leur faire parvenir une proposition commerciale.
+
+Victor lui répondit qu'il allait se renseigner.
+
+Une fois l'homme parti, il resta devant son bureau, pensif.
+
+Il possédait déjà quelque chose que de nombreuses personnes recherchaient : une protection.
+
+Il lui manquait encore des ressources suffisantes pour que cette protection devienne indispensable.
+
+Il pensa au dépôt.
+
+À ces familles qui avaient décidé de conserver leurs marchandises.
+
+À tous ceux qui souhaitaient en obtenir.
+
+Il n'avait aucune intention de se contenter d'un carton de conserves.
