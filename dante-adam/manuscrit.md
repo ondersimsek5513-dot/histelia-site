@@ -175,3 +175,271 @@ Adam haussa les épaules.
 — Fais comme tu veux.
 
 Ils reprirent leur repas.
+
+## Tome 1 — Chapitre 2 : L'illusion du retour à la normale
+
+Quatre jours plus tard, le métro circulait de nouveau.
+
+À la télévision, un représentant des autorités annonçait le rétablissement progressif des réseaux de transport. Les perturbations électriques étaient en cours de résolution et plusieurs mesures avaient été prises pour faciliter la circulation des marchandises.
+
+Il invita la population à conserver ses habitudes de consommation.
+
+Dante écoutait d'une oreille distraite tout en consultant les chiffres que son responsable venait de lui transmettre.
+
+La veille, leur entrepôt avait reçu moins de la moitié des marchandises attendues. Plusieurs magasins du réseau avaient déjà signalé des ruptures. Quant aux livraisons prévues pour les prochains jours, personne n'était capable de les garantir.
+
+Son téléphone sonna.
+
+— Tu as vu les informations ? demanda son responsable.
+
+— Oui.
+
+— Ça devrait nous laisser un peu de répit. On maintient les commandes habituelles pour la semaine prochaine.
+
+— Avec quels fournisseurs ?
+
+Un silence.
+
+— Ceux qui peuvent encore livrer.
+
+— Il en reste de moins en moins.
+
+Dante n'insista pas. Il passa une partie de la matinée à réorganiser les commandes restantes. Deux fournisseurs avaient augmenté leurs tarifs pour la seconde fois depuis le début de la semaine.
+
+Il connaissait suffisamment son métier pour comprendre une chose : même si les camions reprenaient la route demain, les marchandises ne réapparaîtraient pas toutes en même temps dans les rayons.
+
+À midi, il consulta son compte bancaire.
+
+Il avait économisé pendant plusieurs années dans l'espoir d'acheter un appartement. Une partie de cette somme dormait sur un compte immédiatement accessible.
+
+Il pouvait se permettre quelques dépenses inutiles.
+
+En revanche, il commençait sérieusement à douter du caractère inutile de celles qu'il envisageait.
+
+***
+
+Il y avait une cinquantaine de personnes devant le grand supermarché.
+
+Dante ralentit en apercevant la file. Le magasin était ouvert, mais deux employés régulaient les entrées. Une feuille avait été collée sur les portes vitrées.
+
+*En raison des difficultés d'approvisionnement, certains produits sont limités à deux unités par client.*
+
+Un homme protesta lorsqu'on lui demanda de patienter.
+
+— Vous fermez à quelle heure ?
+
+— Aux horaires habituels, monsieur.
+
+— Et il restera quelque chose quand je rentrerai ?
+
+L'employé ne répondit pas.
+
+À l'intérieur, Dante reconnut à peine le magasin. Les rayons les plus fréquentés avaient été pris d'assaut. Des cartons vides encombraient le sol, tandis qu'une employée tentait de répondre à trois clients à la fois.
+
+Une femme se tenait devant l'emplacement des bouteilles d'eau.
+
+— Vous allez en remettre ?
+
+— On attend une livraison, madame.
+
+— Quand ?
+
+— On ne sait pas.
+
+Plus loin, deux hommes se disputaient un paquet de farine. Un autre client intervint avant que la situation ne dégénère. Il leur rappela qu'il restait encore d'autres produits.
+
+Dante regarda autour de lui.
+
+Tout le monde semblait chercher les mêmes choses.
+
+Il connaissait pourtant suffisamment bien les marchandises qu'il achetait pour son entreprise. Certains produits moins populaires pouvaient remplir les mêmes fonctions. Les rayons les plus visibles n'étaient pas les seuls à contenir de quoi manger pendant longtemps.
+
+Il remplit progressivement son chariot, en respectant les restrictions du magasin. Il prit également des produits d'hygiène et des articles qu'il n'avait pas pensé à acheter quatre jours auparavant.
+
+Devant les caisses, une cliente avait commencé à pleurer. Son panier contenait seulement quelques yaourts et un paquet de biscuits.
+
+— Mon fils mange presque rien d'autre, répétait-elle à son mari.
+
+L'homme regardait les portes du magasin, incapable de lui répondre.
+
+Dante détourna les yeux.
+
+Il avait attendu près d'une heure avant d'atteindre la caisse. Lorsque le terminal accepta son paiement, il éprouva un soulagement disproportionné par rapport à la simplicité du geste.
+
+Dans le parking, il chargea ses achats dans sa voiture.
+
+Les sacs occupaient le coffre et une partie de la banquette arrière. Il avait dépensé beaucoup plus que lors de ses courses habituelles, mais il n'avait pas acheté un seul produit dont il pensait ne jamais avoir l'utilité.
+
+Il contempla un instant ce qu'il venait d'obtenir.
+
+Pour la première fois depuis plusieurs jours, il avait l'impression d'avoir repris le contrôle de quelque chose.
+
+***
+
+À l'hôpital, Adam n'avait pas eu le temps de terminer son café.
+
+Une collègue s'était arrêtée devant lui, téléphone à la main.
+
+— Ma mère n'arrive pas à trouver ses médicaments. La pharmacie lui dit de revenir demain.
+
+— Elle en a encore ?
+
+— Jusqu'à demain soir. Après, je sais pas.
+
+Adam lui conseilla de contacter le prescripteur et le pharmacien sans attendre la dernière prise. Il ne pouvait pas résoudre lui-même le problème.
+
+Dans le service, les conséquences des dernières perturbations s'accumulaient. Les équipes devaient composer avec les examens reportés, les lits occupés plus longtemps que prévu et les absences de personnel.
+
+Un homme attendait devant le poste de soins.
+
+— Ça fait trois heures que j'essaie de joindre quelqu'un pour ma femme !
+
+Une infirmière venait de lui expliquer qu'un médecin le recevrait dès que possible. Il élevait pourtant de plus en plus la voix.
+
+Adam s'approcha.
+
+— Vous êtes monsieur Delmas ?
+
+L'homme acquiesça.
+
+— Votre femme m'a parlé de vous ce matin. Elle s'inquiétait parce que vous n'aviez pas réussi à venir hier.
+
+La colère de l'homme céda un instant.
+
+— Mon téléphone ne fonctionnait plus. Et j'avais aucun moyen de venir.
+
+Adam l'écouta. Il vérifia ensuite auprès de l'équipe ce qu'il pouvait lui communiquer et l'accompagna vers la chambre lorsque la visite fut autorisée.
+
+En revenant au poste, il trouva sa collègue occupée à chercher un document.
+
+— Merci, lui dit-elle.
+
+— Pour quoi ?
+
+— Pour monsieur Delmas.
+
+Adam haussa les épaules et reprit son travail.
+
+Il avait la sensation que chaque problème en engendrait deux autres. Une livraison manquée, un rendez-vous reporté, un proche qui ne pouvait plus se déplacer : des incidents qui, quelques jours auparavant, auraient été résolus avec un simple appel.
+
+Désormais, ils absorbaient le temps de personnes qui en manquaient déjà.
+
+***
+
+Adam s'immobilisa en entrant chez son frère.
+
+— C'est quoi, ça ?
+
+Des sacs occupaient un côté du salon. Des bouteilles et des cartons s'entassaient contre un mur, à côté de la bibliothèque. Dante venait de dégager une étagère pour y ranger une partie de ses achats.
+
+— Des courses.
+
+— Je vois bien que c'est des courses.
+
+Adam ouvrit un sac.
+
+— Mais t'en as pour combien de temps ?
+
+— Quelques semaines, si on fait attention. Enfin, ça dépend des produits.
+
+— Quelques semaines ?
+
+Dante lui tendit une boîte de conserve.
+
+— Tu préfères ça ou faire trois heures de queue la semaine prochaine ?
+
+Adam ne répondit pas immédiatement. Après sa journée à l'hôpital, l'idée de disposer de tout ce dont il aurait besoin sans devoir courir dans les magasins lui paraissait particulièrement séduisante.
+
+— T'as bien fait, reconnut-il.
+
+Dante sourit.
+
+Il avait passé deux heures à transporter et à ranger ses achats. Son appartement lui semblait soudain beaucoup plus petit qu'auparavant. Mais chaque espace occupé représentait, à ses yeux, un problème de moins pour les jours à venir.
+
+Adam referma le sac.
+
+— Au fait, j'ai croisé Mme Morel en venant. Son fils habite à l'autre bout de la ville. Il devait lui apporter des courses, mais il n'a pas pu.
+
+— Et ?
+
+— Elle a encore de quoi manger, mais pas grand-chose. On pourrait lui laisser quelques conserves.
+
+Dante cessa de ranger.
+
+— Non.
+
+— Deux ou trois boîtes, Dante.
+
+— Non.
+
+Adam le regarda, surpris par la fermeté de sa réponse.
+
+— T'en as partout.
+
+— J'ai dépensé mon argent pour que toi et moi, on ne manque de rien. Pas pour nourrir tout le quartier.
+
+— Je te parle d'une seule personne.
+
+— Et demain ? Si elle n'a toujours rien ? Et le voisin du dessus ? Tu vas leur promettre mes courses à tous ?
+
+— Personne ne t'a demandé de nourrir tout l'immeuble.
+
+Dante posa la boîte qu'il tenait.
+
+— Alors achète-lui quelque chose avec ton argent, si tu veux. Mais ne décide pas à ma place de ce qu'on fait de mes réserves.
+
+Adam resta silencieux quelques secondes.
+
+— D'accord.
+
+Il prit sa veste.
+
+— Tu vas où ?
+
+— Chez moi.
+
+Dante n'essaya pas de le retenir.
+
+Une fois seul, il termina de ranger les derniers sacs. Il repoussa un carton du pied pour dégager le passage vers la cuisine.
+
+Il était convaincu d'avoir raison.
+
+***
+
+Le lendemain matin, Dante reçut un message de son frère.
+
+*Désolé pour hier. Je vais voir si je peux apporter quelque chose à Mme Morel après le travail.*
+
+Dante répondit par un simple :
+
+*OK.*
+
+Il ne lui en voulait pas. Adam avait toujours été comme ça.
+
+Lui, en revanche, avait l'intention de poursuivre ses achats.
+
+Il consulta son téléphone. Plusieurs applications fonctionnaient mal, mais il réussit à ouvrir son espace bancaire. L'argent était toujours là.
+
+En passant devant une boulangerie, il aperçut une pancarte sur la vitrine.
+
+*Paiement en espèces uniquement. Terminal indisponible.*
+
+Il continua jusqu'à un distributeur.
+
+Une file occupait déjà une bonne partie du trottoir. Certains attendaient depuis l'ouverture des commerces. Un homme sortit de la cabine bancaire en jurant.
+
+— Ça marche toujours pas !
+
+— Et celui d'à côté ? demanda quelqu'un.
+
+— Pareil.
+
+Dante attendit néanmoins. Le distributeur sembla revenir en service, puis afficha de nouveau un message d'indisponibilité. Une femme devant lui tenta un retrait sans succès.
+
+Plusieurs personnes quittèrent la file.
+
+Il ouvrit une nouvelle fois son application bancaire. Le solde apparaissait toujours sur son écran.
+
+Il aurait pu acheter des dizaines de chariots comme celui de la veille.
+
+À cet instant précis, il ne pouvait même pas payer une baguette.
