@@ -456,6 +456,10 @@ Il attendit quelques secondes, puis le referma. Il essaya celui de la cuisine. M
 
 Il avait déjà passé une partie de la nuit sans électricité. À présent, il ne pouvait même plus prendre une douche normalement.
 
+Dans la salle de bains, il vida le fond d'une bouteille au-dessus du lavabo. Il s'arrêta lorsqu'il vit l'eau disparaître.
+
+Il n'avait plus aucune envie de se laver.
+
 Dans la rue, les poubelles débordaient. Le camion chargé de les vider n'était pas passé depuis plusieurs jours. Un feu de circulation, éteint depuis la veille, obligeait les automobilistes à négocier leur passage à coups de klaxon.
 
 Dante descendit jusqu'à sa voiture.
@@ -600,7 +604,9 @@ Dante ne trouva rien à lui répondre.
 
 Adam sortit de l'hôpital après la tombée de la nuit.
 
-Une partie du bâtiment fonctionnait sur une alimentation de secours. Les équipes techniques et soignantes avaient dû adapter leur travail aux interruptions, tandis que des patients arrivaient de structures médicales déjà en difficulté.
+Une partie du bâtiment fonctionnait sur une alimentation de secours. Avant de partir, Adam avait vu le mari d'une patiente supplier un médecin de lui trouver une place dans un service qui n'avait plus de lit disponible. Il n'avait pas pu rester pour savoir ce qu'il était advenu d'elle.
+
+Dans un couloir, une collègue avait partagé avec lui la moitié de son sandwich. Il avait refusé le dernier morceau. Elle lui avait répondu qu'elle ne savait pas davantage que lui ce qu'elle mangerait demain. Les équipes techniques et soignantes avaient dû adapter leur travail aux interruptions, tandis que des patients arrivaient de structures médicales déjà en difficulté.
 
 Sur le chemin du retour, il vit des habitants rassemblés autour d'un véhicule de la ville. Des agents municipaux et des bénévoles distribuaient de l'eau potable aux personnes du quartier.
 
@@ -682,7 +688,9 @@ Dante ouvrit un carton et sortit de quoi préparer un repas qui ne dépendrait p
 
 Ils mangèrent dans le salon, à la lueur d'une lampe à piles.
 
-Malgré l'obscurité, malgré les nouvelles inquiétudes, Dante éprouvait une forme de bonheur.
+Adam mangea en silence, puis demanda s'il pouvait rester dormir. Il avait marché une bonne partie du trajet et n'avait plus la force de retourner chez lui.
+
+Malgré l'obscurité, malgré les nouvelles inquiétudes, Dante éprouvait un soulagement presque honteux.
 
 Il avait de quoi nourrir son frère. Pour la première fois depuis le début de la crise, il possédait bien davantage que ce dont ils avaient besoin pour les prochains jours.
 
@@ -814,7 +822,9 @@ Un véhicule de police apparut au bout de l'avenue. Plusieurs personnes se dispe
 
 Dante reprit sa marche.
 
-Il avait encore suffisamment de réserves pour ne pas avoir à se mêler à cette foule.
+Un peu plus loin, le gérant d'une pharmacie essayait de faire rentrer une femme qui pleurait devant sa porte. Elle tenait une ordonnance pliée et répétait qu'elle ne pouvait pas rentrer chez elle sans ce qu'elle était venue chercher.
+
+Dante accéléra le pas. Il avait encore suffisamment de réserves alimentaires pour ne pas avoir à se mêler à cette foule.
 
 Cette constatation lui procura un plaisir inattendu.
 
@@ -924,7 +934,7 @@ Il rentra.
 
 Adam arriva chez lui le lendemain matin.
 
-Il avait l'air épuisé. Il posa ses affaires dans l'entrée avant de s'apercevoir que le salon avait encore changé.
+Il avait l'air épuisé. Ses lèvres étaient sèches et ses vêtements portaient l'odeur du service dans lequel il avait passé la nuit. Il posa ses affaires dans l'entrée avant de s'apercevoir que le salon avait encore changé.
 
 — Tu as trouvé de l'eau ?
 
@@ -973,6 +983,10 @@ Il avait encore soif. Il termina sa bouteille.
 Dante alla chercher de quoi lui préparer un repas. Il savait qu'Adam avait des scrupules. Il savait aussi qu'il ne refuserait pas de manger.
 
 Pour le moment, cela lui suffisait.
+
+Mais Adam ne termina pas son repas. Il s'était endormi assis, la tête contre le dossier de sa chaise. Dante le regarda quelques instants, puis alla chercher une couverture.
+
+Il avait accumulé des provisions pour que son frère ne manque de rien. Il découvrait qu'il ne pouvait même pas lui garantir une nuit de sommeil.
 
 ***
 
@@ -1060,6 +1074,14 @@ Il payait ses charges, fermait sa porte et dormait.
 
 Cela lui avait toujours paru suffisant.
 
+L'appartement dont la porte avait été endommagée appartenait à un couple que Dante croisait régulièrement. La femme était partie chez des proches. Son mari était resté pour surveiller leurs affaires.
+
+— Ils ont pris nos sacs, expliqua-t-il. Même les vêtements de la petite.
+
+Il regardait le couloir sans reconnaître les voisins qui lui adressaient la parole.
+
+Alex lui proposa de l'aider à remettre sa porte en état. Dante resta en retrait. Il avait soudain très peur de retrouver un jour son propre logement dans cet état.
+
 ***
 
 Adam arriva dans la matinée avec un sac de vêtements et ses affaires de toilette.
@@ -1116,7 +1138,11 @@ Adam la glissa dans sa poche.
 
 Certains souhaitaient partir. D'autres n'avaient nulle part où aller. Plusieurs personnes avaient déjà commencé à s'entraider, notamment pour l'eau et les déplacements difficiles.
 
-Alex expliqua qu'il ne pouvait plus assurer seul le fonctionnement du bâtiment.
+Alex expliqua qu'il ne pouvait plus assurer seul le fonctionnement du bâtiment. Deux appartements étaient inhabitables depuis un dégât des eaux. Des habitants avaient commencé à déposer leurs déchets dans une cour, faute de collecte. Plusieurs enfants étaient tombés malades, sans que les familles puissent déterminer si les problèmes étaient liés.
+
+Un homme demanda combien de temps ils pourraient continuer à vivre ainsi.
+
+Personne ne se risqua à lui répondre.
 
 — Je suis gardien d'immeuble, pas policier. Et j'ai aussi une famille.
 
@@ -1227,6 +1253,20 @@ Il regarda ses provisions d'une manière différente.
 Depuis des jours, il mesurait sa réussite à la quantité de marchandises qu'il possédait.
 
 Désormais, il savait qu'il lui faudrait aussi être capable de les garder.
+
+La nuit suivante, il dormit par intervalles. Il s'imaginait entendre des pas chaque fois qu'un voisin se déplaçait dans l'escalier. Au matin, il ne parvint pas à terminer les calculs qu'il avait commencés la veille.
+
+Adam lui tendit une tasse.
+
+— Tu dors quand, toi ?
+
+— Quand j'aurai moins de problèmes.
+
+Son frère posa la tasse devant lui.
+
+— C'est pas demain, alors.
+
+Dante eut un rire bref. Il avait encore assez de force pour rire. Il espérait que cela durerait.
 
 ***
 
@@ -1372,7 +1412,7 @@ Elle regarda la voiture des frères, puis leur demanda de l'accompagner pour dis
 
 ***
 
-Dante dut faire un effort pour rester attentif à ce que Iris lui racontait.
+Dante dut faire un effort pour rester attentif à ce qu'Iris lui racontait.
 
 À l'intérieur du bâtiment, des palettes chargées de marchandises s'élevaient les unes à côté des autres. Il reconnut des cartons dont il connaissait les références, des sacs de riz et de farine, des conserves, des produits d'entretien et des emballages de boissons.
 
@@ -1401,6 +1441,12 @@ Dante regarda les marchandises.
 — Vous avez largement de quoi tenir.
 
 — Pour la nourriture, oui. Pour le reste, c'est plus compliqué.
+
+Elle leur montra un espace où plusieurs occupants avaient disposé leurs couchages. Une femme essayait de calmer un enfant malade. Un homme s'était blessé en manipulant des marchandises. Personne n'avait trouvé de moyen de remplacer le matériel dont ils avaient besoin pour entretenir leurs installations.
+
+— Vous voyez ces cartons ? reprit Iris. On peut en avoir des centaines et ne pas réussir à faire boire un enfant correctement.
+
+Dante ne répondit pas. Il s'était imaginé qu'une fois à l'intérieur de ce bâtiment, la plupart de ses problèmes disparaîtraient.
 
 Des espaces de travail avaient été transformés en lieux de vie. Quelques enfants jouaient dans une salle commune. Une femme préparait le repas pendant qu'un autre occupant réparait une chaise.
 
@@ -1572,7 +1618,11 @@ Il aurait aimé obtenir beaucoup plus.
 
 Mais lorsqu'il vit Elias apporter les marchandises convenues, il se sentit néanmoins satisfait.
 
-Ils étaient venus sans rien à offrir de matériel. Ils repartaient avec de quoi améliorer considérablement leur quotidien.
+Ils étaient venus sans rien à offrir de matériel. Ils repartaient avec de quoi améliorer leur quotidien, mais la quantité représentait bien peu face à ce qu'il avait contemplé.
+
+Il avait passé des années à négocier avec des fournisseurs. Ce matin-là, il avait dû attendre dehors jusqu'à ce qu'Adam trouve une raison de les faire entrer.
+
+Le prochain échange dépendrait encore de la bonne volonté des gens qui possédaient le dépôt.
 
 Et ils avaient la possibilité de revenir.
 
@@ -1678,6 +1728,10 @@ Il avait fini par cesser de consulter sa messagerie professionnelle.
 
 Dans l'appartement, les choses avaient pris une tournure plus organisée. Les vêtements d'Adam occupaient une partie de l'armoire. Les provisions étaient rangées par catégories et les deux frères avaient pris l'habitude de tenir leur carnet à jour.
 
+Une partie des provisions avait dû être jetée après une fuite dans le logement. Dante avait passé une matinée à déplacer les cartons et à vérifier ce qui pouvait encore être conservé.
+
+Il avait également découvert qu'ils consommaient plus vite que prévu certaines réserves. Les journées d'Adam à l'hôpital avaient pris fin plusieurs fois sans repas. Dante avait commencé à réduire ses propres portions lorsqu'il savait que son frère rentrerait.
+
 L'électricité revenait parfois pendant une heure ou deux. La dernière distribution municipale d'eau avait été annulée, mais celle d'un quartier voisin avait eu lieu. Dante s'y était rendu.
 
 Il avait également obtenu une arme à feu au cours de la semaine.
@@ -1770,7 +1824,7 @@ Victor reprit son stylo.
 
 ***
 
-Adam avait obtenu une journée de repos. Les frères comptaient retourner au dépôt de Iris.
+Adam avait obtenu une journée de repos. Les frères comptaient retourner au dépôt d'Iris.
 
 Dante avait appris que plusieurs ateliers et commerces du quartier étaient toujours occupés. Certains acceptaient de travailler ou d'échanger leurs services contre des marchandises. Il avait consigné les informations qu'il avait pu confirmer.
 
@@ -2000,6 +2054,10 @@ Il comprenait mieux maintenant pourquoi ils avaient tant de mal à dormir.
 
 Ce soir-là, Adam rangea seul les marchandises qu'ils avaient rapportées.
 
+Il découvrit que son frère n'avait plus de provisions de côté pour le lendemain. Il répartit ce qu'ils venaient d'obtenir sans faire de commentaire.
+
+Dante le regarda compter les portions. Il avait tué un homme quelques heures plus tôt et il se demandait encore, malgré lui, combien de jours leur nouvelle acquisition leur permettrait de tenir.
+
 Dante était assis près de la fenêtre.
 
 — Tu veux manger ? lui demanda son frère.
@@ -2045,6 +2103,10 @@ Dante les prit.
 Six semaines s'étaient écoulées depuis la mort de l'homme sur la route du dépôt. Durant cette période, il avait consacré une bonne partie de son temps à des négociations dont il n'aurait autrefois pas imaginé la nature.
 
 Ce matin-là, il venait d'acquérir un fourgon.
+
+Il avait maigri depuis sa dernière visite au dépôt. L'échange lui coûterait presque toutes les provisions qu'il avait réussi à économiser pendant ces semaines. Il avait dû choisir entre conserver sa voiture ou prendre le risque de financer un véhicule qui lui permettrait peut-être de travailler.
+
+Erik lui avait également annoncé qu'il ne pourrait pas lui garantir le carburant des prochains trajets.
 
 Son ancien propriétaire, un livreur indépendant, n'avait plus de travail. Le véhicule était immobilisé depuis plusieurs semaines dans l'atelier d'un mécanicien. Il avait besoin de réparations et son propriétaire avait renoncé à y consacrer ce qu'il lui restait d'argent.
 
@@ -2098,7 +2160,11 @@ Cette fois, il ne percevait plus de salaire.
 
 Il prenait une marge sur les transactions qu'il organisait.
 
-Et, à mesure que les échanges se multipliaient, ses réserves augmentaient sans qu'il ait besoin de retourner dans les commerces abandonnés.
+Sur les cinq premières transactions, deux lui avaient coûté davantage qu'elles ne lui avaient rapporté. Un client n'était jamais revenu régler sa dette. Un autre avait disparu avec une partie de la marchandise qu'il s'était engagé à livrer.
+
+Dante avait passé trois journées à travailler pour rien.
+
+Il avait pourtant découvert un moyen de gagner des provisions sans retourner dans les commerces abandonnés. Il fallait simplement qu'il cesse de perdre le peu qu'il possédait à chaque erreur.
 
 La première transaction qui lui avait réellement rapporté quelque chose avait commencé par un refus.
 
@@ -2108,7 +2174,7 @@ Erik avait besoin de fournitures que possédait un artisan rencontré par Dante.
 
 Dante lui avait demandé d'attendre avant de partir.
 
-Il connaissait les besoins de Iris. Il savait aussi que Erik pouvait remettre en service un équipement que le dépôt n'utilisait plus depuis plusieurs jours.
+Il connaissait les besoins d'Iris. Il savait aussi qu'Erik pouvait remettre en service un équipement que le dépôt n'utilisait plus depuis plusieurs jours.
 
 Il passa la matinée à discuter avec les trois personnes. L'artisan ne voulait pas se déplacer pour une promesse, Iris ne voulait pas libérer des stocks pour une réparation incertaine, et Erik refusait de travailler à perte.
 
@@ -2126,7 +2192,9 @@ Adam avait cru qu'il revenait d'un magasin.
 
 Le fourgon n'était d'ailleurs pas sa seule acquisition.
 
-Trois semaines auparavant, Erik lui avait proposé de libérer l'ancien espace de stockage attenant à son atelier. Le bâtiment comportait également un petit logement, vacant depuis le départ d'un locataire. En échange d'une contribution régulière aux besoins de l'atelier, les frères pourraient utiliser ces locaux.
+Trois semaines auparavant, les frères avaient dû quitter leur appartement. L'eau ne montait plus jusqu'à leur étage et les installations sanitaires étaient devenues inutilisables. Ils avaient passé deux nuits à dormir dans une pièce dont ils ne supportaient plus l'odeur.
+
+Erik lui avait proposé de libérer l'ancien espace de stockage attenant à son atelier. Le bâtiment comportait également un petit logement, vacant depuis le départ d'un locataire. En échange d'une contribution régulière aux besoins de l'atelier, les frères pourraient utiliser ces locaux.
 
 Ils avaient accepté.
 
@@ -2210,7 +2278,11 @@ Depuis quelques jours, un ancien électricien du voisinage avait remis en servic
 
 Ils ne disposaient pas d'une alimentation suffisante pour retrouver toutes leurs anciennes habitudes. Mais ils pouvaient s'éclairer, recharger leurs téléphones lorsque le matériel le permettait et écouter une radio sans épuiser constamment leurs piles.
 
-Le bâtiment était aussi desservi par une distribution d'eau organisée avec plusieurs ateliers voisins. Il fallait encore respecter des limites et les approvisionnements restaient incertains. Mais les frères ne passaient plus chaque matin à se demander où ils trouveraient de quoi boire.
+Le bâtiment était aussi desservi par une distribution d'eau organisée avec plusieurs ateliers voisins. Il fallait encore respecter des limites et les approvisionnements restaient incertains. Mais ils avaient retrouvé un moyen de s'approvisionner. La semaine précédente, ils avaient passé une journée entière à attendre une livraison d'eau qui n'était jamais arrivée.
+
+La nuit suivante, Adam était rentré avec un mal de ventre et de la fièvre. Dante n'avait pas dormi. Il avait cherché quelqu'un pour l'examiner, puis attendu que son frère puisse de nouveau boire sans difficulté. Il avait fallu plusieurs jours pour qu'Adam se remette.
+
+Depuis, Dante ne considérait plus l'eau comme une dépense secondaire.
 
 Adam rentra avec une mauvaise nouvelle.
 
@@ -2248,19 +2320,27 @@ Il y a quelques mois, personne n'aurait trouvé cela remarquable.
 
 Dante ne pouvait plus s'empêcher de sourire.
 
-Un véhicule à lui. Un local presque aussi grand que l'ensemble de son ancien appartement. Des réserves qu'il n'avait pas encore fini de compter. Des relations commerciales qui lui permettraient, si la situation restait favorable, de les renouveler.
+Un véhicule à lui, mais presque sans carburant. Un local dont il payait l'usage en provisions. Des marchandises qui appartenaient pour l'essentiel à ceux qu'il devait rémunérer le lendemain.
 
-Ils étaient en train de s'en sortir.
+Il lui restait cependant quelques cartons pour lui.
 
-Mieux que cela.
+Il ouvrit le paquet de biscuits.
 
-Ils commençaient à s'enrichir.
+— Si on en mange deux chacun, il en restera pour demain.
+
+Adam en prit trois.
+
+— D'accord.
+
+Dante éclata de rire.
+
+Ce soir-là, ils se sentaient riches. Il n'avait pas besoin de se demander si ce sentiment durerait jusqu'au lendemain.
 
 ***
 
 Le lendemain, une femme et son fils vinrent à l'atelier.
 
-Ils habitaient autrefois dans la même rue que Alex. La femme expliqua qu'ils avaient quitté leur logement après plusieurs intrusions dans leur immeuble. Ils cherchaient un endroit où rester quelques jours.
+Ils habitaient autrefois dans la même rue qu'Alex. La femme expliqua qu'ils avaient quitté leur logement après plusieurs intrusions dans leur immeuble. Ils cherchaient un endroit où rester quelques jours.
 
 Adam n'était pas là.
 
@@ -2296,7 +2376,9 @@ Lorsqu'ils furent partis, Dante reprit son carnet.
 
 Il avait encore plusieurs transactions à organiser.
 
-Il se félicita de ne pas s'être engagé dans une situation qu'il n'aurait pas su maîtriser.
+Il se répéta qu'il venait de prendre la bonne décision. Il avait encore des dettes à régler, une distribution d'eau incertaine et la responsabilité de son frère.
+
+Il ne parvint toutefois pas à reprendre ses calculs avant plusieurs minutes.
 
 ***
 
@@ -2364,11 +2446,13 @@ Sur une étagère voisine se trouvaient les provisions qu'il avait achetées au 
 
 Il calcula mentalement ce que représentait l'ensemble de ses réserves.
 
-Il avait désormais de quoi payer plusieurs personnes pendant des semaines sans toucher à ce dont son frère et lui avaient besoin pour vivre.
+Il avait assez de marchandises pour payer les engagements déjà pris. S'il réservait une partie de sa nourriture pour les semaines suivantes, il lui restait à peine de quoi financer un nouveau projet.
 
-À son ancien bureau, il aurait appelé cela une capacité d'investissement.
+Il regarda les semences.
 
-Ici, il lui suffisait de regarder ses étagères pour savoir qu'il en disposait.
+Adam aurait probablement préféré qu'il les échange contre des vivres. Lui-même n'était plus certain d'avoir fait le bon choix.
+
+Il avait néanmoins pris cette décision. Il ne voulait pas passer le reste de sa vie à attendre qu'un homme lui ouvre la porte d'un entrepôt.
 
 ***
 
@@ -2626,7 +2710,15 @@ Ils repartirent avec deux familles et Iris.
 
 Le reste des occupants avait choisi de rester, ou n'avait pas encore trouvé d'endroit où aller. Dante ignorait combien d'entre eux avaient pris cette décision librement.
 
-Une partie des marchandises convenues avait été chargée. Victor avait tenu cette promesse.
+Marcus avait fait retirer une partie des marchandises du chargement. Victor avait expliqué qu'il fallait désormais participer aux frais de protection du dépôt.
+
+— Ce n'était pas prévu dans notre accord, avait protesté Dante.
+
+Victor lui avait demandé s'il souhaitait vraiment continuer cette discussion.
+
+Dante avait regardé les familles qui attendaient de partir. Il avait accepté de repartir avec ce qu'on lui laissait.
+
+Il venait de perdre le fruit de plusieurs semaines de travail. Mais ce qui lui faisait le plus mal, c'était d'avoir dû remercier Victor de les laisser quitter les lieux.
 
 Dante n'éprouva aucune satisfaction en refermant les portes de son fourgon.
 
@@ -2672,7 +2764,7 @@ Juste assez longtemps pour empêcher Elias de s'approcher de cet homme.
 
 ***
 
-Erik accepta d'héberger temporairement une partie des personnes évacuées dans un espace inutilisé de son bâtiment. Une autre famille fut accueillie par des habitants que Iris connaissait.
+Erik accepta d'héberger temporairement une partie des personnes évacuées dans un espace inutilisé de son bâtiment. Une autre famille fut accueillie par des habitants qu'Iris connaissait.
 
 Dante regarda les nouveaux arrivants déposer leurs affaires.
 
@@ -2720,11 +2812,11 @@ Dante ne se souvenait pas d'avoir éprouvé une telle colère envers quelqu'un.
 
 Au début de la crise, il aurait considéré comme une victoire le fait de rentrer chez lui avec un véhicule chargé de provisions.
 
-Aujourd'hui, il avait rapporté des marchandises, préservé l'essentiel de ses réserves et trouvé de nouvelles perspectives commerciales.
+Aujourd'hui, il avait rapporté une fraction de ce qui lui était dû, perdu son principal partenaire et assisté à la mort d'un homme qui n'avait rien fait pour la mériter.
 
 Il aurait donné une grande partie de ce qu'il possédait pour que certaines choses se soient passées autrement.
 
-Il avait enfin les moyens de payer beaucoup de choses.
+Il avait passé des semaines à apprendre le prix des choses.
 
 Mais il ne pouvait pas acheter une seule minute du passé.
 
@@ -2770,9 +2862,13 @@ Adam s'interrompit pour boire.
 
 Dehors, la distribution collective dont dépendaient les ateliers n'avait pas eu lieu depuis plusieurs jours. Les habitants s'étaient mis à quitter certains bâtiments. D'autres arrivaient, persuadés qu'ils trouveraient ici de meilleures conditions de vie.
 
-Les frères avaient de quoi tenir.
+Leurs réserves diminuaient. Deux jours auparavant, Dante avait mangé la moitié d'un repas parce qu'il ne savait pas quand Adam rentrerait ni dans quel état.
 
-Mais ils vivaient au milieu de gens qui, pour beaucoup, n'avaient plus rien.
+Dans les rues, des gens fouillaient des sacs de déchets pour y chercher de la nourriture. Une femme avait demandé à Adam de venir examiner son père. Lorsqu'il était arrivé, il était trop tard.
+
+Ils ne pouvaient plus compenser la dégradation de leur environnement en remplissant des étagères.
+
+Ils devaient partir.
 
 — Iris a reçu des nouvelles de deux de ses anciens fournisseurs, annonça Dante.
 
@@ -2868,7 +2964,7 @@ Alex rangea le papier dans sa poche.
 
 Le matin du départ, Dante resta devant les étagères de son local.
 
-Le fourgon était chargé. Le véhicule de Erik l'était également.
+Le fourgon était chargé. Le véhicule d'Erik l'était également.
 
 Pourtant, il restait encore des cartons.
 
@@ -2908,7 +3004,25 @@ Ils partirent quand même.
 
 ***
 
-La première exploitation qu'ils visitèrent appartenait à un fournisseur que Iris connaissait depuis plusieurs années.
+Le premier trajet dura beaucoup plus longtemps que prévu. Des routes étaient devenues impraticables et les indications données par les personnes rencontrées se contredisaient. Ils durent renoncer à leur premier itinéraire.
+
+À la tombée de la nuit, les deux véhicules s'arrêtèrent près d'un bâtiment où d'autres voyageurs avaient obtenu l'autorisation de rester. L'endroit était froid et humide. Les enfants de la famille qui accompagnait Iris n'arrivaient plus à dormir.
+
+Dante avait passé la journée à regarder sa jauge de carburant. Il s'assit près d'Adam, qui venait de partager sa portion avec l'un des enfants.
+
+— Tu crois qu'on a bien fait de partir ?
+
+Adam posa sa main sur son genou.
+
+— Demande-moi demain.
+
+Au matin, Dante constata qu'une partie des marchandises qu'il avait entreposées pour la nuit avait été dérobée. Il ne sut jamais par qui. Il compta ses pertes sans accuser les autres voyageurs.
+
+Ils n'avaient plus les moyens de retourner en ville.
+
+***
+
+La première exploitation qu'ils visitèrent appartenait à un fournisseur qu'Iris connaissait depuis plusieurs années.
 
 Son propriétaire avait accueilli des membres de sa famille et quelques anciens salariés. Il disposait encore de bâtiments, de terres cultivées et de réserves. Il acceptait de commercer, mais il n'avait ni l'espace ni les ressources nécessaires pour recevoir durablement de nouveaux arrivants.
 
@@ -2958,7 +3072,7 @@ Helena réfléchit.
 
 — On n'arrive pas les mains vides, dit Dante.
 
-Il lui présenta ce qu'ils avaient apporté. Des vivres, des outils, des semences, des fournitures et du matériel. Il lui expliqua également ce que Iris et lui savaient faire.
+Il lui présenta ce qu'ils avaient apporté. Des vivres, des outils, des semences, des fournitures et du matériel. Il lui expliqua également ce qu'Iris et lui savaient faire.
 
 Erik examina certains équipements avec leurs propriétaires.
 
@@ -2970,9 +3084,15 @@ La discussion se poursuivit longtemps.
 
 Dante avait envisagé d'acheter un bâtiment. Il comprit vite que l'argent n'intéressait presque personne. Les habitants voulaient savoir ce que les nouveaux venus pourraient apporter au lieu, et surtout s'ils seraient prêts à y rester lorsque les difficultés commenceraient.
 
+Helena demanda une contribution immédiate en provisions pour les accueillir. Dante essaya de réduire la quantité. Plusieurs habitants refusèrent catégoriquement.
+
+Il avait imaginé qu'on lui proposerait un bâtiment en échange de ses compétences. Il comprit que ces gens avaient déjà vu des étrangers faire de grandes promesses avant de repartir avec ce qu'ils avaient obtenu.
+
+Il accepta de céder une partie de ses dernières réserves. Ce n'était pas une bonne affaire. C'était la seule qui lui permettait de rester.
+
 Ils finirent par conclure un accord provisoire.
 
-Les frères et leurs compagnons pourraient occuper deux logements inutilisés et un espace de stockage. En contrepartie, ils contribueraient aux travaux et à l'organisation des échanges. L'accès aux parcelles disponibles serait discuté avec leurs propriétaires. Chacun conserverait ses propres biens, et les ressources communes feraient l'objet d'accords distincts.
+Les frères et leurs compagnons pourraient occuper deux logements inutilisés et un espace de stockage. Le logement attribué aux frères n'avait plus d'eau courante. Une partie du plafond devait être réparée avant les pluies. Dante y passa sa première nuit sans parvenir à se réchauffer. En contrepartie, ils contribueraient aux travaux et à l'organisation des échanges. L'accès aux parcelles disponibles serait discuté avec leurs propriétaires. Chacun conserverait ses propres biens, et les ressources communes feraient l'objet d'accords distincts.
 
 Helena posa une question à Dante avant de quitter la table.
 
@@ -2990,7 +3110,9 @@ Trois semaines plus tard, Dante ouvrit la porte de leur nouveau local.
 
 Les marchandises étaient de nouveau rangées.
 
-Il en avait moins qu'en ville. Une partie de ses réserves avait servi à rémunérer les premiers travaux. Une autre avait été échangée contre des produits qu'il n'avait pas pu obtenir auparavant.
+Il en avait beaucoup moins qu'en ville. Une partie avait disparu pendant le trajet. Le reste avait payé leur installation et les premiers travaux.
+
+Sur l'étagère du haut, il avait placé ce qui leur permettrait de tenir jusqu'aux prochains échanges. Il ne voulait plus toucher à ces marchandises. Il savait pourtant qu'il le ferait si Helena lui annonçait qu'il ne pouvait pas continuer à travailler sans avancer de nouvelles ressources.
 
 Mais le bâtiment n'était plus le seul endroit qui l'intéressait.
 
@@ -3052,9 +3174,13 @@ Il avait dû apprendre à reconnaître ses erreurs sans pouvoir en annuler les c
 
 Cette fois, les sacs alignés devant lui représentaient le résultat de son propre travail et de celui des personnes auxquelles il s'était associé. Une partie revenait à Helena et aux autres participants, conformément à leur accord. Une autre devait être conservée pour leurs besoins et la saison suivante.
 
-Il lui restait suffisamment de marchandises pour conclure quelques échanges.
+Une fois les parts distribuées, Dante constata qu'il ne pourrait pas vivre de sa récolte jusqu'à la suivante. Il avait dépensé davantage de marchandises pour les travaux et les semences qu'il n'en avait récupéré.
 
-Il avait pourtant décidé que les premières pommes de terre qui lui revenaient ne seraient pas vendues.
+Helena ne chercha pas à le rassurer.
+
+— Tu apprendras. Mais il va falloir tenir jusque-là.
+
+Il avait décidé que les premières pommes de terre qui lui revenaient ne seraient pas vendues.
 
 Le soir, Adam les retrouva dans son assiette.
 
@@ -3079,6 +3205,34 @@ Le lendemain, Dante demanda à Helena de lui montrer les parcelles qu'ils pourra
 ***
 
 Le premier hiver leur apprit la différence entre produire et pouvoir vivre de sa production.
+
+Le froid était entré dans leur logement bien avant les premières chutes de neige. Ils avaient réuni de quoi se chauffer par intermittence, mais une grande partie de ce qu'ils gagnaient était aussitôt dépensée en combustible et en nourriture.
+
+Un matin, Dante se réveilla avec les doigts si engourdis qu'il eut du mal à tenir sa tasse.
+
+Adam avait déjà quitté la pièce. Il revint avec une couverture qu'un patient avait offerte au centre de soins.
+
+— Elle est pour nous, dit-il.
+
+— Tu l'as payée combien ?
+
+— Rien.
+
+Dante s'enveloppa dedans sans répondre.
+
+Les semaines suivantes, plusieurs foyers épuisèrent leurs réserves. Helena dut réduire ce qu'elle pouvait distribuer aux personnes travaillant sur ses terres. Dante se retrouva à effectuer des journées de manutention pour obtenir une ration qui lui aurait autrefois paru insuffisante pour un seul repas.
+
+Un soir, il aperçut son reflet dans une vitre. Il ne se souvenait pas d'avoir jamais été aussi maigre.
+
+La faim rendait les conversations difficiles. Il lui arriva de se mettre en colère contre Adam parce que celui-ci avait laissé une partie de leur dîner à un malade. Adam, qui n'avait presque rien mangé lui-même, refusa de lui répondre.
+
+Ils finirent par partager ce qui restait.
+
+Le lendemain, une habitante âgée mourut après plusieurs semaines de maladie et d'épuisement. Adam l'avait accompagnée avec Maya, une médecin de passage qui ne s'installerait que plus tard dans la vallée. Ils n'avaient pas pu lui procurer les soins nécessaires.
+
+Dante avait passé sa dernière journée à essayer de conclure un échange pour obtenir de la nourriture.
+
+Il ne voulait plus dépendre uniquement des prochaines récoltes.
 
 Dante avait conclu un accord avec une exploitation voisine pour obtenir une quantité importante de fruits à un prix très avantageux. Il pensait disposer d'un délai suffisant pour les échanger.
 
@@ -3154,6 +3308,18 @@ Entre-temps, Dante avait vendu des biens auxquels il tenait, renoncé à certain
 
 Il avait parfois regretté d'avoir accepté le projet.
 
+Il avait notamment cédé son fourgon à un producteur qui pouvait lui fournir le combustible et une partie des ressources nécessaires à l'atelier. Lorsqu'il rendit les clés, il retrouva dans la boîte à gants le bordereau de son premier grand échange au dépôt.
+
+Il pensa à la joie qu'il avait éprouvée en ouvrant les portes arrière.
+
+Il referma la boîte à gants et s'éloigna.
+
+Le soir, Adam lui demanda s'il était certain d'avoir fait le bon choix.
+
+— Non.
+
+C'était la première fois qu'il lui répondait aussi franchement.
+
 Puis, un matin, Vera lui remit les premiers produits transformés et contrôlés par son équipe.
 
 Dante retourna un bocal entre ses mains.
@@ -3192,11 +3358,15 @@ Cette fois, il ne revendait plus seulement ce que d'autres avaient produit.
 
 Il avait investi dans quelque chose qui augmentait la valeur de leur travail.
 
+Il avait cependant engagé bien plus qu'il ne récupérerait avant longtemps. Une grande partie des premiers lots devait revenir aux producteurs et aux personnes à qui il devait encore des ressources.
+
+Cette fois, il ne protesta pas. Pour la première fois depuis des mois, il pouvait montrer aux gens autre chose qu'une promesse.
+
 ***
 
-Au terme de leur deuxième année aux Aulnes, les frères ne vivaient plus dans le logement qui leur avait été attribué à leur arrivée.
+Au terme de leur deuxième année aux Aulnes, les frères avaient enfin quitté le logement humide qui leur avait été attribué à leur arrivée.
 
-Une ancienne maison, dont les propriétaires avaient décidé de s'installer ailleurs, leur avait été cédée par accord écrit, en échange de marchandises et de travaux effectués au cours de plusieurs mois.
+Ils avaient obtenu l'usage de deux pièces d'une ancienne maison, en échange de marchandises et de travaux. Les propriétaires avaient gardé une partie du bâtiment pour leurs proches. Dante aurait aimé pouvoir acheter l'ensemble. Il n'avait pas de quoi leur proposer un accord qui les intéresserait.
 
 Dante avait tenu à faire reconnaître l'accord par les habitants concernés. Il avait appris que les promesses concernant les biens pouvaient devenir une source de conflits aussi grave que les pénuries.
 
@@ -3210,9 +3380,13 @@ Il regarda Dante.
 
 — Je crois que je vais prendre une douche.
 
-— Tu en as déjà pris une hier.
+— Ça fait combien de temps ?
 
-— Je vais en prendre une deuxième.
+— Je sais plus.
+
+Ils se regardèrent, puis éclatèrent de rire.
+
+— Je vais prendre une douche, répéta Adam, comme s'il venait d'annoncer un voyage extraordinaire.
 
 Dante sourit.
 
@@ -3220,15 +3394,15 @@ L'installation collective avait été remise en état par étapes. Elle nécessi
 
 Ils n'avaient pas retrouvé le niveau de confort d'avant l'effondrement.
 
-Mais ils n'avaient plus à déplacer des bouteilles pour se laver les mains.
+Mais, les jours où l'eau était disponible, ils n'avaient plus à déplacer des bouteilles pour se laver les mains. Dante avait oublié le plaisir que procurait un geste aussi simple.
 
 Dans l'ancien bâtiment agricole, les activités s'étaient multipliées. Erik dirigeait son atelier avec trois personnes. Iris coordonnait les échanges de plusieurs exploitations. Vera supervisait la transformation des produits.
 
-Dante avait acquis un deuxième véhicule et une part des équipements de stockage, tout en conservant sa participation aux activités communes. Il disposait de réserves personnelles renouvelées et d'un réseau commercial qui dépassait désormais la vallée.
+Dante ne possédait plus de véhicule. Pour les transports, il dépendait d'Erik et d'autres personnes qui acceptaient de travailler avec lui. Il avait conservé une petite participation dans l'activité de transformation, mais ses revenus irréguliers étaient absorbés par les dettes et les dépenses courantes.
 
-Ses gains n'étaient plus mesurés seulement en cartons.
+Il connaissait des producteurs au-delà de la vallée. Plusieurs le respectaient. Aucun ne pouvait lui garantir de nouvelles livraisons.
 
-Ils représentaient du temps de travail, du matériel, des récoltes futures et des engagements que des dizaines de personnes avaient intérêt à respecter.
+Il avait fait des progrès. Il n'était toujours pas libre.
 
 Un soir, un transporteur se présenta à l'atelier. Il s'appelait Leon. Ses chaussures étaient fendues et il n'avait pratiquement rien à proposer, hormis sa connaissance des villages qui bordaient la vallée.
 
@@ -3248,7 +3422,9 @@ Ce fut le début d'une collaboration dont il se félicita longtemps.
 
 Il avait également appris à manier une arme avec davantage de prudence qu'à ses débuts. Les habitants s'étaient organisés pour protéger leur communauté et résoudre ensemble les incidents. Les déplacements n'étaient pas sans danger, et certains partenaires avaient cessé de donner signe de vie.
 
-Mais Dante n'était plus cet homme qui attendait seul derrière une porte d'appartement.
+Mais une arme et quelques voisins solidaires ne faisaient pas de leur communauté une puissance capable de rivaliser avec les groupes qui contrôlaient les principaux échanges.
+
+Dante le comprenait mieux chaque année.
 
 ***
 
@@ -3392,7 +3568,11 @@ Dante rejoignit Adam avec un sourire qu'il ne parvenait pas à dissimuler.
 
 — Je croyais que c'était toi qui courais après les gens.
 
-— Plus maintenant.
+— Au moins, plus aujourd'hui.
+
+Il avait obtenu un engagement utile, pas une fortune. Une partie des marchandises devrait servir à régler les dépenses engagées pour le marché.
+
+Mais il pouvait enfin rentrer avec quelque chose de plus précieux qu'une nouvelle dette : une perspective de travail.
 
 Il y eut des désaccords, des transactions abandonnées, des gens qui repartirent mécontents.
 
@@ -3420,13 +3600,15 @@ Il avait commencé avec quelques conserves achetées dans un supermarché.
 
 Il avait ensuite rempli un appartement, puis un local, puis un fourgon.
 
-À présent, une partie de ses ressources servait à financer des travaux et des productions dont les résultats ne seraient visibles que plusieurs mois plus tard.
+À présent, une partie de ce qu'il gagnait servait à rembourser les ressources qu'il avait engagées dans la reconstruction. Il avait appris à produire et à organiser des échanges, mais il dépendait encore des gens qui possédaient les terres, le carburant et les équipements.
 
 Le lendemain, il devrait régler des fournisseurs, examiner un nouvel accord et chercher un équipement qui manquait à l'atelier.
 
 Il n'était pas tranquille pour autant.
 
-Mais il pouvait enfin se permettre de réfléchir à ce qu'il souhaitait accomplir dans un an, au lieu de se demander ce qui lui manquerait le lendemain.
+Pour la première fois depuis longtemps, il se permit de réfléchir à ce qu'il souhaitait accomplir dans un an.
+
+Il n'avait pourtant pas cessé de se demander ce qui lui manquerait le lendemain.
 
 Il trouva Adam à la fin de la journée.
 
@@ -3460,7 +3642,7 @@ Il aurait aimé savoir jusqu'où ils auraient pu aller avec trois années de plu
 
 ## Tome 1 — Chapitre 12 : Le prix de la liberté
 
-Pour la première fois depuis quatre ans, Dante avait acheté quelque chose dont il n'avait absolument pas besoin.
+Pour la première fois depuis des mois, Dante avait dépensé quelque chose pour le plaisir de son frère.
 
 Il déposa le paquet devant Adam.
 
@@ -3490,59 +3672,57 @@ Dante lui demanda l'heure.
 
 Adam éclata de rire.
 
-Dante le regarda quitter la maison. Il entendit ensuite un moteur dans la cour, puis la voix de Iris qui appelait quelqu'un.
+Dante le regarda quitter la maison. Il entendit ensuite un moteur dans la cour, puis la voix d'Iris qui appelait quelqu'un.
 
-Il prit son café debout près de la fenêtre.
+Il but une tasse d'eau chaude debout près de la fenêtre. Il n'avait pas trouvé de café depuis des mois.
 
 Quatre ans auparavant, il avait regardé par une autre fenêtre, en attendant que les lumières de la rue se rallument.
 
-Ce matin, il n'attendait rien de la ville.
+Ce matin, il n'attendait plus que le retour d'un homme qui avait promis de leur apporter du combustible.
 
 ***
 
 Iris avait préparé les comptes de la dernière saison.
 
-Vingt-trois exploitations et ateliers avaient effectué au moins une transaction par l'intermédiaire de leur réseau. Toutes n'étaient pas régulières, et certaines avaient accumulé des retards. Mais les marchandises conservées dans les bâtiments représentaient désormais bien plus que les besoins des deux frères.
+Vingt-trois exploitations et ateliers avaient effectué au moins une transaction par l'intermédiaire de leur réseau depuis sa création. Onze d'entre eux n'avaient plus rien à échanger. Plusieurs autres n'avaient pas honoré leurs derniers engagements.
 
-Dante possédait personnellement deux véhicules en état de circuler, une maison, des réserves et des parts dans plusieurs installations. Il avait également financé l'agrandissement de l'atelier de Erik et l'achat de matériel de transformation.
+Iris lui montra une colonne du registre.
 
-Cette dernière opération lui avait permis de négocier une part des bénéfices sur une production qui ne dépendait plus de sa seule capacité à trouver des marchandises.
+— Ça, c'est ce qu'on doit.
 
-Il n'avait pas besoin de posséder chaque bâtiment pour gagner quelque chose lorsque l'activité se développait.
+Puis elle lui en montra une autre.
 
-— On pourrait aménager le deuxième local de stockage, proposa-t-il.
+— Et ça, c'est ce qu'on nous doit. Je ne sais pas combien on reverra.
 
-Iris lui montra une autre page.
+Dante eut beau reprendre les chiffres, il ne trouva aucun moyen de faire disparaître la différence. Il ne possédait ni les terres qu'il contribuait à exploiter ni les bâtiments dans lesquels il travaillait. Son droit d'utiliser l'atelier dépendait de sa participation aux frais.
 
-— Si tu veux aussi financer le matériel demandé par Vera, tu devras choisir.
+Le propriétaire d'une partie du matériel leur avait proposé de céder sa participation. Dante avait passé plusieurs semaines à essayer de réunir ce qu'il demandait.
 
-Dante examina les chiffres.
+Un intermédiaire de Victor l'avait finalement acquise.
 
-Autrefois, il s'était félicité de posséder de quoi vivre plusieurs semaines. À présent, il pouvait engager plusieurs mois de ses excédents dans un projet qui ne lui rapporterait peut-être rien avant la saison suivante.
+— Ils n'ont même pas besoin de travailler ici, murmura Dante.
 
-Il choisit le matériel de Vera.
+Iris referma le registre.
 
-La semaine suivante, plusieurs représentants d'une communauté voisine arrivèrent avec une proposition. Ils produisaient davantage de céréales que leurs habitants ne pouvaient en consommer, mais avaient perdu l'accès à une partie de leurs équipements.
+— Ils ont ce que le propriétaire voulait. Nous, non.
 
-Ils demandaient aux Aulnes de leur fournir des produits transformés et de leur assurer un accès régulier à l'atelier.
+Dante ne répondit pas.
 
-— On peut vous donner ce qu'il vous faut, dit leur représentante. À condition que vous ne nous laissiez pas tomber à la première difficulté.
+La semaine suivante, plusieurs représentants d'une communauté voisine arrivèrent avec une proposition. Ils disposaient encore de céréales, mais avaient perdu l'accès à une partie de leurs équipements. Ils cherchaient quelqu'un capable de remettre en état du matériel et de les aider à transformer une partie de leur production.
 
-Dante connaissait la valeur de cette demande. Il aurait pu négocier un prix très élevé.
+Dante savait que leurs capacités étaient limitées. Il refusa de promettre ce que Vera ne pouvait pas assurer. Erik examina les pièces qu'ils avaient apportées. Helena calcula les besoins des exploitations.
 
-Il demanda plutôt à Iris de faire venir les personnes qui devraient réellement tenir les engagements. Erik indiqua ce qu'il pouvait assurer. Vera précisa les limites de ses installations. Helena estima la quantité de céréales qui pouvait être absorbée sans mettre en difficulté les productions locales.
+À la fin de la journée, ils avaient trouvé un arrangement.
 
-Ils discutèrent jusqu'à la fin de l'après-midi.
+La représentante leur annonça qu'une première livraison pourrait avoir lieu dans les semaines suivantes.
 
-Lorsque l'accord fut signé, la représentante lui serra la main.
+— Vous êtes les premiers qui nous demandent autre chose que de nous placer sous leur protection.
 
-— Vous savez, on a fait le tour de plusieurs communautés avant de venir ici. C'est la première fois qu'on repart avec autre chose qu'une demande de soumission.
+Dante n'avait pas réalisé une opération qui lui permettrait de s'enrichir.
 
-Dante la regarda rejoindre les autres.
+Il avait peut-être trouvé de quoi passer la saison suivante.
 
-Il avait passé quatre ans à chercher des personnes qui accepteraient de travailler avec lui.
-
-Ce jour-là, une communauté entière avait fait le déplacement pour lui demander de travailler avec elle.
+Et, cette fois, les personnes assises devant lui avaient réellement choisi de travailler avec eux.
 
 ***
 
@@ -3564,13 +3744,13 @@ Adam leva les yeux vers lui.
 
 Dante sourit.
 
-Il avait financé une partie des travaux de cette salle. Il connaissait le prix des tables, la quantité de marchandises qu'il avait fallu échanger pour faire réparer les installations, et le temps consacré par les habitants à leur remise en état.
+Il avait consacré plusieurs journées à remettre cette salle en état avec les autres habitants. Les tables provenaient de bâtiments inutilisés. Il avait lui-même réparé une chaise sous les moqueries d'Erik.
 
 Mais il ne connaissait pas la valeur de ce qu'il voyait.
 
 Un père souleva sa fille pour lui permettre de regarder par la fenêtre. Une femme riait avec une amie qu'elle avait retrouvée après des mois de séparation.
 
-Dante termina son repas sans penser une seule fois à ce qu'ils mangeraient le lendemain.
+Dante termina son repas. Il avait encore faim, mais il n'en dit rien. Depuis longtemps, il n'avait pas entendu autant de personnes rire au même endroit.
 
 ***
 
@@ -3588,9 +3768,9 @@ Dante demanda à le visiter.
 
 Le voyage eut lieu plusieurs semaines plus tard, avec l'accord des personnes qui occupaient encore une petite partie des terres.
 
-Il ne retrouva qu'une fraction de ce qu'on lui avait décrit.
+Il ne retrouva qu'une fraction de ce qu'on lui avait décrit. Depuis la crise, un groupe avait obtenu l'usage des bâtiments les mieux conservés. Il exigeait une contribution que les Aulnes n'auraient pas été capables de payer pour accéder à certains équipements.
 
-Des toitures s'étaient effondrées. Plusieurs machines avaient été démontées. Le matériel le plus précieux avait été vendu ou dispersé depuis longtemps. Les installations qui subsistaient auraient exigé des travaux bien supérieurs à ce qu'il pouvait financer.
+Des toitures s'étaient effondrées. Plusieurs machines avaient été démontées. Le matériel le plus précieux avait été vendu ou dispersé depuis longtemps. Les installations laissées à l'abandon auraient exigé des travaux bien supérieurs à ce qu'il pouvait financer.
 
 L'ancien responsable du centre, rencontré sur place, lui montra une brochure conservée dans un classeur.
 
@@ -3632,7 +3812,7 @@ Alex arriva aux Aulnes à la fin de la saison.
 
 Adam fut le premier à le reconnaître.
 
-Dante avait imaginé cette rencontre de nombreuses fois. Il s'attendait à ce que Alex arrive accompagné de plusieurs membres de sa famille, comme il l'avait envisagé en ville.
+Dante avait imaginé cette rencontre de nombreuses fois. Il s'attendait à ce qu'Alex arrive accompagné de plusieurs membres de sa famille, comme il l'avait envisagé en ville.
 
 Le gardien était seul.
 
@@ -3642,7 +3822,7 @@ Il ne savait pas s'ils étaient morts.
 
 Il n'avait même pas de tombe devant laquelle se recueillir.
 
-Dante lui proposa un logement et du travail auprès des habitants qui s'occupaient des bâtiments communs.
+Dante lui proposa de partager leur logement quelques jours, le temps qu'il puisse discuter avec Helena et les habitants qui s'occupaient des bâtiments communs.
 
 — Tu n'as pas besoin de décider aujourd'hui, ajouta-t-il.
 
@@ -3690,9 +3870,11 @@ Elle leur expliqua comment organiser le travail et réduire les pertes. Elle n'a
 
 Dante pensa au restaurant où il lui avait acheté ses premières grandes réserves.
 
-Il avait passé quatre ans à s'enrichir.
+Il avait passé quatre ans à chercher un moyen de ne plus dépendre des autres.
 
 Elle avait passé ces mêmes années à essayer de retrouver le droit de faire ce qu'elle savait déjà faire.
+
+Ni l'un ni l'autre n'y était vraiment parvenu.
 
 ***
 
@@ -3702,9 +3884,9 @@ Certains visiteurs venaient chercher du matériel. D'autres souhaitaient s'insta
 
 Les habitants ne pouvaient pas accueillir tout le monde.
 
-Ils avaient néanmoins décidé d'étendre progressivement les activités et de remettre d'autres logements en état.
+Ils avaient néanmoins commencé à remettre d'autres logements en état. Ils manquaient de matériaux et de nourriture pour accueillir durablement de nouveaux arrivants.
 
-Dante participait au financement de ces projets. Il avait appris à demander ce qu'un nouveau partenaire pouvait apporter, mais également ce dont il aurait besoin pour réussir.
+Dante participait aux travaux lorsque ses échanges ne lui permettaient pas de gagner sa part. Il avait appris à demander ce qu'un nouveau partenaire pouvait apporter, mais également ce dont il aurait besoin pour réussir.
 
 Leon lui avait permis de développer plusieurs échanges avec des communautés éloignées depuis son arrivée aux Aulnes. Il lui arrivait encore de plaisanter à propos des chaussures que Dante lui avait fournies lors de leur première rencontre. Il connaissait leurs interlocuteurs et s'occupait d'une partie des engagements commerciaux.
 
@@ -3734,7 +3916,17 @@ Dante regarda sa main tendue.
 
 Il revit Elias, sa veste abandonnée sur une chaise, Iris qui criait son nom.
 
-Il ne lui serra pas la main.
+Marcus la maintint tendue.
+
+— On peut aussi repartir, si vous préférez.
+
+Dante vit Helena regarder les représentants qui les accompagnaient. L'organisation de Victor contrôlait une partie des échanges dont dépendait leur vallée.
+
+Il finit par lui serrer la main.
+
+Marcus sourit.
+
+Dante eut envie de retirer la sienne. Il ne le fit pas.
 
 Victor présenta sa proposition devant plusieurs représentants des foyers de la vallée.
 
@@ -3752,9 +3944,15 @@ Dante se leva.
 
 — Parce qu'on a le droit de le faire.
 
-La réunion prit fin sans accord.
+Victor lui rappela qu'il ne possédait même pas les bâtiments où il travaillait.
 
-Victor ne protesta pas. Il proposa aux habitants de réfléchir et leur souhaita une bonne saison.
+— Vous parlez de liberté, mais vous n'avez pas les moyens de payer votre prochain approvisionnement.
+
+Dante aurait voulu lui donner tort.
+
+La réunion prit fin sans accord définitif. Plusieurs habitants demandèrent un délai pour réfléchir.
+
+Victor leur souhaita une bonne saison.
 
 En quittant le bâtiment, Marcus s'arrêta près de Dante.
 
@@ -3774,29 +3972,37 @@ D'autres estimaient qu'un accord avec Victor pourrait ouvrir des débouchés. Le
 
 Le débat dura longtemps.
 
-À la fin, les habitants choisirent de maintenir leur indépendance et de renforcer leur coopération avec les communautés qui partageaient leur décision.
+Les habitants refusèrent de confier l'ensemble de leurs activités à Victor. Mais ils acceptèrent une contribution provisoire sur certains échanges pour éviter une rupture immédiate des approvisionnements.
 
-Dante passa les jours suivants à reprendre contact avec leurs partenaires. Certains refusèrent de s'engager. D'autres proposèrent de maintenir leurs accords même si l'organisation de Victor venait les solliciter.
+Dante dut aller régler lui-même le premier versement.
 
-La communauté avec laquelle ils avaient signé leur dernier contrat confirma qu'elle continuerait à travailler avec eux.
+Marcus était présent. Il examina les marchandises avant d'autoriser leur départ.
 
-Lorsque Iris lui annonça la nouvelle, Dante se permit enfin de respirer.
+— Vous voyez ? Tout le monde finit par comprendre.
 
-Les premières pressions de Victor n'avaient pas suffi.
+Dante ne répondit pas.
 
-Pour la première fois, Dante avait refusé une proposition de cet homme sans être immédiatement contraint d'en subir toutes les conséquences. Il avait obtenu ce résultat grâce à des années de relations que Victor ne pouvait pas simplement acheter.
+Il avait travaillé des journées entières pour réunir cette contribution. Marcus n'avait eu qu'à attendre qu'il arrive.
 
-Il savait que ce répit ne durerait peut-être pas.
+Sur le chemin du retour, il pensa à Elias. Il n'avait jamais autant détesté le fait d'être encore en vie.
 
-Mais il en éprouva une profonde satisfaction.
+Quelques jours plus tard, la communauté avec laquelle ils avaient signé leur dernier accord confirma qu'elle continuerait à travailler avec les Aulnes. Elle acceptait même de prendre à sa charge une partie du transport.
 
-Dante rentra chez lui.
+Iris lui annonça la nouvelle alors qu'il aidait Erik à déplacer du matériel.
 
-Adam était encore à table. Il avait retiré sa montre pour la nettoyer et la posa devant lui.
+Dante s'arrêta.
+
+— Ils ont vraiment accepté ?
+
+— Oui.
+
+Il avait cru que leur accord serait le premier à disparaître. Au moins, quelqu'un avait tenu parole.
+
+Il rentra chez lui avec la petite part de céréales qu'il avait obtenue pour son travail. Adam était encore à table. Il avait retiré sa montre pour la nettoyer et la posa devant lui.
 
 — Ça s'est mal passé ?
 
-— On a refusé.
+— On a payé.
 
 Adam acquiesça.
 
@@ -3804,21 +4010,29 @@ Adam acquiesça.
 
 Dante regarda par la fenêtre les bâtiments où quelques lumières étaient encore allumées.
 
-Il connaissait les habitants de la plupart de ces maisons. Il connaissait les projets qui devaient commencer au printemps suivant et les familles qui avaient enfin cessé de manquer de nourriture.
+Il connaissait les habitants de la plupart de ces maisons. Il savait combien ils avaient dû travailler pour pouvoir y vivre. Il savait également ce qu'était devenu le dépôt d'Iris.
 
-Il savait aussi ce qu'était devenu le dépôt de Iris.
-
-— Maintenant, dit-il, il va falloir qu'on puisse continuer à dire non.
+— Maintenant, il faut trouver un moyen de ne plus avoir à leur demander la permission.
 
 ## Tome 1 — Chapitre 13 : Tout ce qu'il restait
 
-Deux mois après la visite de Victor, les Aulnes avaient perdu une partie de leurs débouchés commerciaux.
+Deux mois après la visite de Victor, les Aulnes n'avaient plus les moyens de régler la contribution qu'ils avaient acceptée.
 
-Plusieurs partenaires avaient cessé de répondre aux propositions de Iris. D'autres expliquaient qu'ils avaient conclu des accords qui ne leur permettaient plus de travailler avec les habitants de la vallée.
+Les prélèvements avaient continué malgré la diminution des échanges. Dante avait passé plusieurs journées à travailler dans un bâtiment contrôlé par l'organisation pour obtenir une partie des fournitures dont Adam avait besoin.
+
+Il avait reconnu Marcus parmi les hommes qui surveillaient les travailleurs.
+
+Marcus lui avait demandé en souriant si les affaires marchaient toujours aussi bien.
+
+Dante avait baissé les yeux et poursuivi son travail.
+
+Il avait rapporté quelques fournitures au centre de soins. Lorsqu'Adam lui avait demandé comment il les avait obtenues, il avait changé de sujet.
+
+Plusieurs partenaires avaient cessé de répondre aux propositions d'Iris. D'autres expliquaient qu'ils avaient conclu des accords qui ne leur permettaient plus de travailler avec les habitants de la vallée.
 
 Dante chercha des solutions.
 
-Il accepta de réduire ses marges sur certaines marchandises, réorienta une partie de la production et renégocia les engagements qui risquaient de mettre les exploitants en difficulté.
+Il renonça à presque toute rémunération sur certaines marchandises, réorienta une partie de la production et renégocia les engagements qui risquaient de mettre les exploitants en difficulté.
 
 Durant quelques semaines, cela fonctionna.
 
@@ -3842,7 +4056,7 @@ Dante lui en avait procuré une paire.
 
 Il dut annoncer aux exploitants qu'une partie des marchandises qui leur revenaient ne serait pas livrée.
 
-Il assuma sa part des pertes.
+Il assuma sa part des pertes. Il n'avait presque plus rien à céder, hormis sa participation dans l'atelier. Iris lui conseilla de ne pas l'abandonner tant qu'ils avaient encore une chance de maintenir l'activité.
 
 Mais il ne pouvait pas remplacer toutes les ressources disparues.
 
@@ -3862,7 +4076,7 @@ L'homme regarda les marchandises.
 
 Dante n'avait pas de réponse.
 
-Il lui proposa un nouvel engagement, assorti d'un calendrier qu'ils pourraient ajuster si les échanges reprenaient. L'homme accepta finalement de repartir avec les biens disponibles.
+Il lui proposa de travailler pour lui lorsque les conditions le permettraient, afin de rembourser progressivement sa dette. L'homme accepta finalement de repartir avec les biens disponibles.
 
 Iris lui demanda pourquoi il avait utilisé une partie de ses réserves personnelles.
 
@@ -3938,7 +4152,7 @@ Le centre de soins reçut davantage de blessés.
 
 Adam et Maya réorganisèrent leur activité pour accueillir les cas les plus graves. Les autres soignants sollicitèrent des habitants capables de les aider dans les tâches ordinaires.
 
-Dante ouvrit ses réserves.
+Dante ouvrit le placard où ils conservaient leurs dernières provisions. Il en emporta une partie au centre de soins. Il n'avait plus la certitude de pouvoir les remplacer.
 
 Il n'avait pas les fournitures médicales que son frère réclamait. Il chercha auprès de ses derniers partenaires, mais plusieurs ne pouvaient plus assurer les échanges.
 
@@ -3956,7 +4170,7 @@ Il ne demanda pas à son frère combien de matériel ils avaient encore.
 
 Lorsque les violences atteignirent les Aulnes, Dante crut d'abord qu'ils pourraient préserver l'essentiel de leur communauté.
 
-Les habitants s'étaient organisés depuis longtemps. Ils disposaient de personnes expérimentées, de moyens de défense et de ressources qui auraient autrefois semblé considérables.
+Les habitants s'étaient organisés depuis longtemps. Ils disposaient de quelques personnes expérimentées et de moyens de défense limités. Ils savaient qu'ils ne pourraient pas soutenir un affrontement prolongé.
 
 Mais aucun d'eux n'avait construit les Aulnes dans le but de mener une guerre.
 
@@ -4152,9 +4366,15 @@ Dante eut envie de rire.
 
 Pendant quatre ans, il avait cherché des marchandises que les autres ne parvenaient pas à trouver.
 
-Il avait rempli des locaux, acheté des véhicules, financé des ateliers et fait travailler des personnes qu'il n'aurait jamais connues dans son ancienne vie.
+Il avait rempli des étagères pour les voir se vider, gagné un véhicule pour devoir le céder, travaillé des mois dans le froid pour remettre en marche des machines qui ne lui appartenaient même pas entièrement.
 
-Il avait même réussi à rendre une partie de son confort à Adam.
+Il avait appris à baisser les yeux devant un homme qu'il aurait voulu voir répondre de ses actes.
+
+Il avait survécu à la faim, à la peur et à l'humiliation en se répétant que leur situation finirait par changer.
+
+Il avait pourtant connu des jours heureux. Une assiette de pommes de terre qu'il avait cultivées lui-même. Une douche. Un repas partagé avec des gens qui riaient encore. Une montre offerte à son frère.
+
+Il n'avait pas vécu quatre années pour rien.
 
 Et maintenant, son frère demandait quelque chose que personne ne pouvait lui apporter.
 
