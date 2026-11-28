@@ -979,3 +979,309 @@ Puis à ce qu'elles valaient maintenant.
 Il n'avait jamais possédé autant de choses dont il avait réellement besoin.
 
 Et il venait de comprendre à quel point il était difficile d'en posséder davantage.
+
+## Tome 1 — Chapitre 5 : Le prix de la tranquillité
+
+Le dix-septième jour, quelqu'un essaya d'entrer dans l'appartement de Dante pendant qu'il dormait.
+
+Il fut réveillé par un bruit dans le couloir. Puis une voix d'homme.
+
+— Ouvre, on sait qu'il y a quelqu'un.
+
+Dante resta immobile quelques secondes, le temps de comprendre que ce n'était pas Adam.
+
+— Qu'est-ce que vous voulez ?
+
+— On cherche à manger.
+
+— J'ai rien à vous donner.
+
+— C'est ce que tout le monde dit.
+
+La poignée bougea de nouveau. Dante sentit son cœur accélérer.
+
+Une seconde voix intervint.
+
+— Laisse tomber. Viens.
+
+Les bruits de pas s'éloignèrent.
+
+Dante ne se recoucha pas.
+
+Il resta dans son salon jusqu'au lever du jour, les yeux posés sur les cartons qu'il avait accumulés. Il avait parfois imaginé ce qui arriverait si quelqu'un découvrait l'étendue de ses réserves. Mais il n'avait jamais vraiment envisagé de se réveiller un matin en présence d'inconnus derrière sa porte.
+
+Il ne savait même pas s'ils connaissaient l'existence de ses provisions.
+
+Au matin, il apprit que plusieurs appartements de l'immeuble avaient reçu la même visite. Une résidente avait retrouvé sa porte abîmée. Personne n'avait été blessé, mais une famille avait quitté les lieux avant l'aube.
+
+Le gardien était assis dans le hall, entouré de quelques habitants.
+
+— J'ai essayé de joindre la police, expliquait-il. On m'a demandé de patienter.
+
+Une femme se mit à rire nerveusement.
+
+— Patienter jusqu'à quand ?
+
+Personne ne lui répondit.
+
+Dante regarda les portes des appartements, les escaliers, le hall.
+
+Il avait vécu dans cet immeuble pendant plusieurs années sans jamais se demander qui était chargé de le protéger.
+
+Il payait ses charges, fermait sa porte et dormait.
+
+Cela lui avait toujours paru suffisant.
+
+***
+
+Adam arriva dans la matinée avec un sac de vêtements et ses affaires de toilette.
+
+— Tu es sérieux ? demanda-t-il en découvrant ce qui s'était passé.
+
+— Tu vas rester ici.
+
+— Je peux très bien rester chez moi.
+
+— Et si ça arrive chez toi pendant que je suis ici ?
+
+Adam ne répondit pas.
+
+Il connaissait les difficultés des services de secours. La veille, à l'hôpital, il avait vu arriver des blessés après une altercation lors d'une distribution de nourriture.
+
+Il déposa son sac dans la chambre.
+
+— D'accord. Mais il faut que je puisse continuer à aller travailler.
+
+Dante aurait préféré qu'il reste à la maison. Il savait toutefois qu'il n'avait aucune chance de le convaincre.
+
+Il lui montra les réserves qu'il avait recensées ces derniers jours.
+
+— On a de quoi manger pendant longtemps. L'eau, c'est autre chose. Et je ne vais pas pouvoir continuer à sortir en voiture indéfiniment.
+
+Adam parcourut le carnet dans lequel son frère avait noté leurs acquisitions.
+
+— T'as même compté les rouleaux de papier toilette ?
+
+— Rigole. Tu seras content de savoir combien il en reste dans un mois.
+
+Adam sourit pour la première fois depuis son arrivée.
+
+Les deux frères avaient passé des années à se rendre visite. Ils s'étaient souvent disputés pour des détails insignifiants, notamment la manière dont Adam vidait le réfrigérateur de Dante sans jamais le remplir.
+
+Cette fois, ils allaient réellement vivre ensemble.
+
+Dante lui tendit une clé.
+
+— Garde-la. Je ne veux pas ouvrir la porte à chaque fois que tu rentres.
+
+Adam la glissa dans sa poche.
+
+— Et si tu manges mes biscuits, je fais comment ?
+
+— Ils sont à moi.
+
+— Ça commence bien.
+
+***
+
+À la fin de la journée, le gardien, qui s'appelait Karim, réunit les habitants encore présents dans l'immeuble.
+
+Certains souhaitaient partir. D'autres n'avaient nulle part où aller. Plusieurs personnes avaient déjà commencé à s'entraider, notamment pour l'eau et les déplacements difficiles.
+
+Karim expliqua qu'il ne pouvait plus assurer seul le fonctionnement du bâtiment.
+
+— Je suis gardien d'immeuble, pas policier. Et j'ai aussi une famille.
+
+Une femme proposa de maintenir une présence collective dans les espaces communs. Un homme demanda que les habitants mettent leurs provisions en commun.
+
+Dante, jusque-là silencieux, releva la tête.
+
+— Non.
+
+— On est tous dans la même situation, répondit l'homme.
+
+— Justement. On ne sait pas combien de temps ça va durer. Chacun doit rester responsable de ses réserves.
+
+— Facile à dire quand on en a.
+
+Dante sentit plusieurs regards se tourner vers lui.
+
+Il se demanda combien de personnes l'avaient vu rentrer avec ses cartons.
+
+Adam prit la parole avant qu'il ne réponde.
+
+— On peut déjà s'organiser pour éviter que quelqu'un se retrouve seul face à un problème. Personne n'est obligé de donner ses provisions pour participer.
+
+La discussion reprit.
+
+Karim connaissait les habitants et les difficultés de chacun. Une résidente disposait de contacts dans les services municipaux. Un autre avait encore une radio qui fonctionnait. Adam proposa de se rendre disponible pour les problèmes de santé dans la mesure de ses compétences et de ses horaires.
+
+Dante écoutait.
+
+Il n'avait aucune intention de distribuer ses vivres. En revanche, il comprenait qu'une organisation commune pouvait lui être utile. Il accepta de prendre sa part des responsabilités ordinaires du bâtiment et de communiquer aux habitants les informations qu'il obtiendrait sur les services encore accessibles.
+
+Lorsque la réunion prit fin, aucune grande décision n'avait été prise concernant le partage des ressources.
+
+Mais les habitants savaient désormais à qui s'adresser.
+
+C'était peu de chose. La veille, ils n'avaient même pas cela.
+
+***
+
+Deux jours plus tard, Dante rentrait chez lui lorsqu'il reconnut un homme qui discutait avec Karim dans le hall.
+
+Il l'avait déjà aperçu dans le quartier. L'homme ne vivait pas dans l'immeuble.
+
+— C'est lui, dit-il soudain en montrant Dante.
+
+Karim se tourna.
+
+— Qu'est-ce qu'il y a ?
+
+— Je l'ai vu avec sa voiture pleine de marchandises. Il a de quoi nous dépanner.
+
+Dante s'arrêta.
+
+— Je ne te connais pas.
+
+— Mon frère, j'ai des gens à nourrir. Tu vas pas me dire que t'as rien.
+
+— Je t'ai dit que je ne te connaissais pas.
+
+L'homme s'approcha.
+
+— Tu crois que t'es le seul à avoir besoin de manger ?
+
+Dante aperçut un deuxième homme près de l'entrée. Il ne savait pas s'il accompagnait le premier.
+
+Il sentit revenir la même inquiétude que deux nuits auparavant.
+
+Karim intervint.
+
+— Il y a eu une distribution hier. On attend des nouvelles de la prochaine.
+
+— Je parle pas à toi.
+
+L'homme posa une main sur l'épaule de Dante. Celui-ci se dégagea brusquement.
+
+— Ne me touche pas.
+
+Deux habitants, attirés par les voix, sortirent de leurs appartements. Adam descendit à son tour.
+
+— Qu'est-ce qui se passe ?
+
+L'homme regarda autour de lui. Il sembla hésiter, puis recula.
+
+— Vous allez voir. Vos réserves, elles vont pas vous sauver longtemps.
+
+Il sortit avec son compagnon.
+
+Pendant quelques secondes, personne ne parla.
+
+Dante avait imaginé qu'il saurait réagir si quelqu'un le menaçait. Il avait cru que sa détermination suffirait à lui donner le dessus.
+
+En réalité, il n'avait pas su quoi faire.
+
+Il aurait été capable de se battre. Il ignorait seulement ce qu'il se serait passé ensuite.
+
+— Ça va ? lui demanda Adam.
+
+— Oui.
+
+Il avait répondu trop vite.
+
+Karim referma la porte du hall et s'assura qu'aucun résident n'avait été blessé.
+
+Dante remonta chez lui.
+
+Il regarda ses provisions d'une manière différente.
+
+Depuis des jours, il mesurait sa réussite à la quantité de marchandises qu'il possédait.
+
+Désormais, il savait qu'il lui faudrait aussi être capable de les garder.
+
+***
+
+Dans un autre quartier de la ville, Victor reçut la visite de l'un de ses anciens clients.
+
+Le propriétaire d'une petite résidence privée lui expliqua que plusieurs habitants s'étaient plaints d'intrusions et de menaces. Les prestations de gardiennage habituelles avaient été interrompues. Il souhaitait remettre en place un service.
+
+— Je suis prêt à vous payer davantage, assura-t-il.
+
+Victor lui demanda sous quelle forme.
+
+L'homme lui proposa un virement.
+
+Victor sourit.
+
+— Mes employés ont besoin de manger. Votre argent ne leur sert plus à grand-chose.
+
+Ils discutèrent.
+
+Le propriétaire disposait encore de quelques moyens matériels, de réserves destinées à l'entretien de ses immeubles et de logements temporairement inoccupés. Victor lui proposa un arrangement provisoire.
+
+Lorsque l'homme quitta le bureau, l'accord prévoyait des prestations de sécurité en échange d'un accès à certaines de ces ressources.
+
+Un des employés de Victor, qui avait entendu une partie de la discussion, le félicita.
+
+— Au moins, on va pouvoir continuer à travailler.
+
+Victor ne répondit pas.
+
+Il venait d'apprendre que l'ancien employé auquel il avait offert des provisions quelques jours auparavant souhaitait revenir dans son équipe.
+
+D'autres avaient fait la même demande.
+
+Il se rendait compte qu'il n'avait plus besoin de proposer de meilleurs salaires pour attirer des hommes.
+
+Il lui suffisait de leur garantir quelque chose que leurs employeurs précédents n'étaient plus capables de leur fournir.
+
+Il sortit le registre dans lequel il consignait les engagements de ses clients.
+
+Auparavant, ceux-ci lui demandaient des garanties avant de signer un contrat.
+
+Désormais, ils lui demandaient surtout de ne pas les abandonner.
+
+Victor trouva ce changement particulièrement agréable.
+
+***
+
+Ce soir-là, alors qu'Adam préparait le dîner, Dante reçut un appel de son ancien collègue Rémi.
+
+Le réseau fonctionnait par intermittence. Il dut rappeler deux fois avant de comprendre ce que l'autre lui racontait.
+
+— Tu te souviens du dépôt qui approvisionnait les magasins de l'est de la ville ?
+
+— Oui. Pourquoi ?
+
+— Les dernières livraisons n'en sont jamais parties. J'ai parlé à un ancien chauffeur. Il dit qu'il reste beaucoup de marchandises là-bas.
+
+Dante se redressa.
+
+— Beaucoup, comment ?
+
+— Des stocks de distribution. Pas des rayons de supermarché.
+
+Dante connaissait la différence.
+
+Il avait passé des années à calculer les quantités nécessaires pour approvisionner plusieurs magasins à la fois.
+
+Ce qu'il avait accumulé jusqu'à présent ne représentait qu'une fraction de ce qui pouvait se trouver dans un tel dépôt.
+
+— Et l'entreprise ?
+
+— J'en sais rien. Apparemment, des gens sont restés sur place. Le chauffeur n'a pas voulu m'en dire davantage.
+
+La communication s'interrompit.
+
+Dante essaya de rappeler Rémi, sans succès.
+
+Adam posa deux assiettes sur la table.
+
+— Qu'est-ce qu'il y a ?
+
+Dante regarda les cartons qui envahissaient toujours son salon.
+
+Quelques jours plus tôt, il aurait considéré leur contenu comme une fortune.
+
+Il venait de découvrir qu'il existait peut-être une fortune bien plus importante.
