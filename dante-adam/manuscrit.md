@@ -2257,3 +2257,389 @@ Il avait cru avoir trouvé un moyen de ne plus dépendre des magasins.
 Il découvrait qu'il dépendait encore d'un entrepôt.
 
 Et que quelqu'un d'autre venait de s'en apercevoir.
+
+## Tome 1 — Chapitre 9 : Ce qu'il ne pouvait plus réparer
+
+— Ça, tu ne le trouveras plus dans un supermarché.
+
+Jacques déposa une caisse sur l'établi.
+
+Dante l'ouvrit. Elle contenait des sachets de semences, dont plusieurs étaient destinés à des cultures qu'il n'avait encore jamais envisagé de faire pousser lui-même.
+
+— Tu connais quelqu'un qui en a d'autres ?
+
+— Un ancien client. Il tenait un commerce de matériel agricole en dehors de la ville. Il voudrait des fournitures pour remettre son exploitation en état.
+
+Dante prit l'un des sachets.
+
+Deux semaines plus tôt, il aurait sans doute préféré recevoir son équivalent en nourriture. Mais les dernières discussions avec Claire lui avaient fait comprendre que même les plus grands stocks finiraient par s'épuiser.
+
+Il accepta de rencontrer cet homme.
+
+Au cours des jours suivants, il négocia une livraison de pièces et d'outils contre une partie du matériel agricole encore disponible. À la fin de la transaction, il conserva plusieurs caisses pour son propre compte. Le reste revint à Jacques et aux autres personnes qui avaient contribué à l'échange.
+
+Ce fut sa première acquisition importante qui ne lui permettait pas de mieux manger le lendemain.
+
+Il n'avait ni terre à cultiver ni expérience de l'agriculture. Il avait en revanche obtenu des outils, des semences et le contact de quelqu'un qui connaissait ce métier.
+
+Il rangea soigneusement le tout dans son local.
+
+Sur une étagère voisine se trouvaient les provisions qu'il avait achetées au début de la crise. Il en avait depuis longtemps remplacé une partie par les produits obtenus grâce à son activité.
+
+Il calcula mentalement ce que représentait l'ensemble de ses réserves.
+
+Il avait désormais de quoi payer plusieurs personnes pendant des semaines sans toucher à ce dont son frère et lui avaient besoin pour vivre.
+
+À son ancien bureau, il aurait appelé cela une capacité d'investissement.
+
+Ici, il lui suffisait de regarder ses étagères pour savoir qu'il en disposait.
+
+***
+
+Adam lui demanda de l'accompagner au centre de soins le lendemain.
+
+Un incendie avait ravagé une partie du bâtiment utilisé comme lieu d'accueil dans le quartier. L'équipe soignante avait reçu des personnes évacuées et manquait de place pour les examiner. Plusieurs bénévoles avaient apporté des couvertures et des fournitures.
+
+Dante accepta de transporter du matériel.
+
+Il reconnut l'adresse du bâtiment en écoutant les explications d'Adam.
+
+C'était celle qu'il avait donnée, quelques jours auparavant, à la femme venue lui demander un endroit où dormir avec son fils.
+
+Il ne dit rien.
+
+Au centre, une infirmière demanda à Adam de rejoindre ses collègues. Dante déchargea les caisses et attendit qu'on lui indique où les déposer.
+
+Dans une pièce attenante, des affaires personnelles avaient été réunies pour permettre aux survivants de retrouver leurs proches.
+
+Il aperçut un petit sac à dos gris.
+
+Il se souvenait de ce sac. Le garçon l'avait gardé sur ses épaules pendant toute la conversation avec sa mère. Une des bretelles était ornée d'un morceau de tissu orange.
+
+Dante le regarda longtemps.
+
+— Vous connaissez quelqu'un ? lui demanda une bénévole.
+
+— Il y avait une femme avec son fils. Ils étaient venus ici, peut-être. Je ne connais pas leurs noms.
+
+Il décrivit les deux personnes.
+
+La bénévole consulta la responsable de l'accueil. Celle-ci avait participé au recensement des personnes hébergées avant l'incendie. Elle lui montra une photographie prise quelques jours plus tôt pour identifier les résidents.
+
+Dante les reconnut.
+
+La femme s'appelait Sonia. Son fils, Mathis.
+
+La responsable baissa les yeux.
+
+Ils faisaient partie des personnes dont le décès avait été confirmé.
+
+Dante resta devant la photographie.
+
+Il essaya de se souvenir de leur conversation.
+
+Il se rappelait parfaitement la question de la mère.
+
+*Même pour une nuit ?*
+
+Il avait répondu non.
+
+Il aurait pu en discuter avec Jacques. Il aurait pu demander à Adam de les accompagner vers un autre lieu. Il aurait pu, au minimum, vérifier qu'ils avaient trouvé un endroit où rester.
+
+Il n'avait rien fait de tout cela.
+
+Il ignorait si une décision différente les aurait sauvés. L'incendie s'était déclaré plusieurs jours après leur arrivée. Ils auraient pu partir de chez lui entre-temps. Ils auraient pu mourir ailleurs.
+
+Il le savait.
+
+Mais pour la première fois, il ne parvenait pas à se rassurer en énumérant toutes les bonnes raisons qu'il avait eues de refuser.
+
+Lorsque Adam le retrouva, Dante était assis à l'extérieur.
+
+— T'as fini de décharger ?
+
+— Oui.
+
+Il lui parla de Sonia et de Mathis.
+
+Adam s'assit près de lui.
+
+— Je ne savais pas qu'ils étaient venus te voir.
+
+— Je ne t'en ai pas parlé.
+
+Ils restèrent silencieux.
+
+— J'avais de la place, dit Dante.
+
+Adam ne répondit pas.
+
+— Pas beaucoup. Mais j'en avais.
+
+Son frère posa simplement une main sur son épaule.
+
+Dante aurait préféré qu'il lui fasse un reproche.
+
+Il n'en reçut aucun.
+
+***
+
+Trois jours plus tard, Claire reprit contact.
+
+Elle avait obtenu un accord provisoire avec les hommes qui convoitaient le dépôt. Plusieurs familles souhaitaient partir avant que la situation ne change définitivement. Elle demanda à Dante s'il pouvait transporter leurs affaires et quelques personnes.
+
+Les occupants leur avaient réservé une dernière livraison en règlement des prestations déjà réalisées.
+
+Dante hésita.
+
+Il se souvenait encore de la détonation sur la route, du visage de l'homme qu'Adam avait essayé de sauver. Depuis cet incident, il avait parfois interrompu un déplacement pour une raison qu'il aurait autrefois jugée dérisoire.
+
+Cette fois, il aurait préféré renoncer à la marchandise.
+
+Mais Claire avait toujours respecté leurs accords.
+
+Il consulta Adam et Jacques.
+
+Deux véhicules étaient disponibles. Jacques devait en utiliser un pour un déplacement prévu dans la même direction. Il accepta de participer au transport, à condition que les occupants soient prêts à partir et qu'ils ne s'engagent pas dans une confrontation.
+
+Dante rappela Claire.
+
+— On peut prendre une partie des gens. Mais pas trente personnes et toutes leurs affaires.
+
+— Je sais.
+
+Elle semblait fatiguée.
+
+— Même une partie, ça nous aiderait.
+
+***
+
+Le dépôt avait changé.
+
+Il y avait toujours des palettes, des employés et des familles. Mais Dante ne reconnut pas la plupart des hommes qui les accueillirent.
+
+Claire vint à leur rencontre.
+
+— Je vais vous montrer où sont vos marchandises. Ensuite, il faudra repartir.
+
+— Et les familles ?
+
+— Elles préparent leurs affaires.
+
+Elle les conduisit auprès d'Étienne.
+
+Celui-ci paraissait furieux.
+
+— Ils ont pris nos registres, expliqua-t-il. Ils veulent savoir exactement ce qu'il nous reste et avec qui nous avons travaillé.
+
+Il aperçut un homme qui s'avançait vers eux.
+
+— Le voilà.
+
+L'homme portait une veste propre, malgré l'état du bâtiment. Il semblait avoir une quarantaine d'années. Il regarda le fourgon, puis Dante.
+
+— C'est vous, le commerçant ?
+
+— Ça dépend de ce que vous voulez.
+
+— Je suis Victor. À partir de maintenant, vous pourrez traiter directement avec nous.
+
+Il lui tendit la main.
+
+Dante ne la prit pas immédiatement.
+
+— J'ai déjà un accord avec Claire et Étienne.
+
+— Je sais. Nous allons honorer les engagements pris aujourd'hui.
+
+Victor désigna les marchandises.
+
+— Nous ne sommes pas venus mettre fin au commerce. Au contraire. Nous voulons qu'il continue dans de bonnes conditions.
+
+— Vos conditions, précisa Étienne.
+
+Victor lui adressa un regard las.
+
+Un autre homme s'approcha. Claire l'avait déjà rencontré lors des précédentes visites.
+
+— Renaud, dit-elle. Les familles vont partir comme convenu.
+
+— Certaines, répondit-il. On doit encore régler quelques problèmes.
+
+Il demanda à Étienne de le suivre.
+
+L'ancien employé refusa.
+
+— Vous avez déjà tout ce que vous vouliez. Les stocks, les véhicules qui restent, les documents. Vous n'avez pas besoin de moi.
+
+— Ce n'est pas à toi d'en décider.
+
+Étienne regarda Victor.
+
+— Vous nous aviez promis que ceux qui voulaient partir pourraient le faire.
+
+— C'est toujours le cas, répondit Victor.
+
+Étienne prit sa veste.
+
+— Alors je m'en vais.
+
+Renaud se plaça devant lui.
+
+Claire intervint. Elle rappela l'accord conclu, le travail qu'Étienne avait fourni pour tenir le dépôt en état, les familles qui attendaient.
+
+Renaud lui demanda de se taire.
+
+Étienne posa sa veste sur une chaise.
+
+— Je ne travaillerai pas pour vous.
+
+Dante entendit le bruit avant de comprendre ce qu'il venait de voir.
+
+Étienne s'effondra.
+
+Il n'avait menacé personne.
+
+Claire cria son nom.
+
+Adam se précipita auprès de lui. Dante voulut le suivre, mais s'arrêta en voyant les hommes qui entouraient Renaud.
+
+Il avait une arme sur lui.
+
+Il pensa à la sortir.
+
+Il pensa aussi à Adam, agenouillé à quelques mètres de lui, à Claire, aux familles dans le bâtiment.
+
+Il ne bougea pas.
+
+Victor regarda Étienne, puis Renaud.
+
+— Ce n'était pas nécessaire.
+
+Renaud haussa les épaules.
+
+— Il n'aurait fait que nous causer des problèmes.
+
+Victor ne lui demanda pas de rendre son arme. Il ne le fit pas retenir. Il se tourna vers Claire.
+
+— Emmenez les personnes qui ont décidé de partir.
+
+Elle le fixa.
+
+— Et lui ?
+
+Victor baissa les yeux vers Étienne.
+
+— Votre ami est en train de s'occuper de lui.
+
+Adam leva la tête.
+
+Dante reconnut son expression.
+
+Il l'avait déjà vue sur la route, six semaines plus tôt.
+
+Cette fois, il n'y avait même pas eu de lutte.
+
+***
+
+Ils repartirent avec deux familles et Claire.
+
+Le reste des occupants avait choisi de rester, ou n'avait pas encore trouvé d'endroit où aller. Dante ignorait combien d'entre eux avaient pris cette décision librement.
+
+Une partie des marchandises convenues avait été chargée. Victor avait tenu cette promesse.
+
+Dante n'éprouva aucune satisfaction en refermant les portes de son fourgon.
+
+Claire avait récupéré les affaires d'Étienne. Elle tenait sa veste sur ses genoux.
+
+Au bout d'un moment, Dante lui demanda :
+
+— Renaud, c'est qui exactement ?
+
+— Renaud Valès. Il travaille pour Victor. C'était un des hommes qui étaient venus négocier avec nous.
+
+Elle regarda la veste.
+
+— Étienne lui avait même donné à manger la première fois.
+
+Dante ne répondit pas.
+
+Il se répétait le nom.
+
+Il savait qu'il n'oublierait pas le visage.
+
+Adam était assis à côté de lui. Il n'avait pratiquement rien dit depuis leur départ.
+
+Dante finit par lui demander :
+
+— Tu crois que j'aurais dû faire quelque chose ?
+
+Adam regarda les familles installées à l'arrière.
+
+— Et tu crois qu'on serait tous là, maintenant ?
+
+Dante serra les mains sur le volant.
+
+Il savait que son frère avait raison de lui poser la question.
+
+Il aurait pourtant voulu revenir quelques minutes en arrière.
+
+Juste assez longtemps pour empêcher Étienne de s'approcher de cet homme.
+
+***
+
+Jacques accepta d'héberger temporairement une partie des personnes évacuées dans un espace inutilisé de son bâtiment. Une autre famille fut accueillie par des habitants que Claire connaissait.
+
+Dante regarda les nouveaux arrivants déposer leurs affaires.
+
+Il aurait autrefois calculé immédiatement ce que leur présence lui coûterait.
+
+Il le fit encore.
+
+Mais lorsqu'une mère lui demanda si elle pouvait obtenir de quoi préparer un repas à ses enfants, il alla chercher les provisions lui-même.
+
+Il n'enregistra pas cette sortie dans la colonne des marchandises à échanger.
+
+Adam le regarda faire sans commentaire.
+
+Plus tard, Claire vint le rejoindre dans le local.
+
+— Je ne sais pas comment je vais vous rembourser.
+
+Dante secoua la tête.
+
+— On en parlera plus tard.
+
+Elle lui expliqua qu'elle connaissait plusieurs anciens fournisseurs installés hors de la ville. Certains avaient des exploitations, des bâtiments et du matériel. Elle ignorait lesquels étaient encore accessibles, mais elle avait conservé des contacts.
+
+Dante sortit son carnet.
+
+Pour la première fois depuis la mort d'Étienne, il éprouva l'envie de réfléchir à ce qu'ils pourraient faire ensuite.
+
+Ils disposaient de véhicules, de réserves, d'un réseau de personnes compétentes et désormais de nouvelles possibilités à l'extérieur de la ville.
+
+Il n'avait pas perdu tout ce qu'il avait construit.
+
+Il avait perdu l'illusion que cela suffirait.
+
+***
+
+Cette nuit-là, Dante resta longtemps éveillé.
+
+Il pensa au garçon avec son sac à dos. À la mère qui l'avait remercié malgré son refus. À Étienne, qui avait toujours vérifié les marchandises avant de les lui remettre.
+
+Il pensa aussi à Renaud Valès.
+
+L'homme avait quitté le dépôt sans que personne ne lui demande de répondre de ce qu'il venait de faire.
+
+Dante ne se souvenait pas d'avoir éprouvé une telle colère envers quelqu'un.
+
+Au début de la crise, il aurait considéré comme une victoire le fait de rentrer chez lui avec un véhicule chargé de provisions.
+
+Aujourd'hui, il avait rapporté des marchandises, préservé l'essentiel de ses réserves et trouvé de nouvelles perspectives commerciales.
+
+Il aurait donné une grande partie de ce qu'il possédait pour que certaines choses se soient passées autrement.
+
+Il avait enfin les moyens de payer beaucoup de choses.
+
+Mais il ne pouvait pas acheter une seule minute du passé.
