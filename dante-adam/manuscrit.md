@@ -1989,3 +1989,271 @@ Il ne regrettait pas d'avoir sauvé Adam.
 Il regrettait que, pour y parvenir, il ait fallu qu'un homme meure.
 
 Et il savait qu'il recommencerait si la vie de son frère en dépendait.
+
+## Tome 1 — Chapitre 8 : Les premiers privilégiés
+
+— Les clés sont à toi.
+
+Dante les prit.
+
+Six semaines s'étaient écoulées depuis la mort de l'homme sur la route du dépôt. Durant cette période, il avait consacré une bonne partie de son temps à des négociations dont il n'aurait autrefois pas imaginé la nature.
+
+Ce matin-là, il venait d'acquérir un fourgon.
+
+Son ancien propriétaire, un livreur indépendant, n'avait plus de travail. Le véhicule était immobilisé depuis plusieurs semaines dans l'atelier d'un mécanicien. Il avait besoin de réparations et son propriétaire avait renoncé à y consacrer ce qu'il lui restait d'argent.
+
+Dante avait conclu un accord avec lui et avec Jacques, le mécanicien dont il avait communiqué les coordonnées à Étienne.
+
+L'ancien propriétaire recevrait des provisions pour sa famille. Jacques avait accepté de remettre le véhicule en état en échange de marchandises et d'une participation aux prochains transports.
+
+Dante ouvrit la portière.
+
+Il n'avait jamais possédé de véhicule utilitaire. Quelques mois auparavant, il aurait considéré cet achat comme une dépense absurde pour un homme célibataire vivant en appartement.
+
+Il ouvrit les portes arrière.
+
+Adam, qui l'avait accompagné, s'approcha.
+
+— Tu vas mettre quoi là-dedans ?
+
+Dante contempla l'espace vide.
+
+— Pour commencer, tout ce que je n'ai pas pu prendre la dernière fois.
+
+Il songea au magasin de la zone commerciale, aux cartons qu'il avait abandonnés sur le parking et à la fumée qu'il avait découverte sur la photographie le lendemain.
+
+Il aurait donné beaucoup pour disposer de ce véhicule ce jour-là.
+
+Il ferma les portes.
+
+— On a rendez-vous avec Claire cet après-midi.
+
+***
+
+Jacques n'avait pas toujours apprécié la présence de Dante dans son atelier.
+
+Lors de leur première rencontre, plusieurs semaines plus tôt, il lui avait demandé s'il comptait le payer avec des promesses.
+
+Dante lui avait alors montré le contenu de son coffre.
+
+Le mécanicien avait changé d'avis.
+
+Depuis, leur relation avait largement dépassé le cadre de cette première transaction. Jacques réparait du matériel pour les occupants du dépôt. Dante lui trouvait des clients, des marchandises et parfois les pièces dont il avait besoin. Il connaissait maintenant une petite dizaine de personnes avec lesquelles il pouvait conclure des échanges réguliers.
+
+Il avait vite compris que le principal obstacle à ces échanges n'était pas toujours l'absence de marchandises.
+
+C'était l'absence de confiance.
+
+Certains possédaient encore des biens dont ils n'avaient plus l'utilité. D'autres étaient prêts à céder une partie de leurs réserves pour obtenir un service précis. Mais ils ne se connaissaient pas, ne voulaient pas risquer leurs déplacements et craignaient de perdre ce qu'ils possédaient déjà.
+
+Dante avait recommencé à exercer une forme de son ancien métier.
+
+Cette fois, il ne percevait plus de salaire.
+
+Il prenait une marge sur les transactions qu'il organisait.
+
+Et, à mesure que les échanges se multipliaient, ses réserves augmentaient sans qu'il ait besoin de retourner dans les commerces abandonnés.
+
+Le fourgon n'était d'ailleurs pas sa seule acquisition.
+
+Trois semaines auparavant, Jacques lui avait proposé de libérer l'ancien espace de stockage attenant à son atelier. Le bâtiment comportait également un petit logement, vacant depuis le départ d'un locataire. En échange d'une contribution régulière aux besoins de l'atelier, les frères pourraient utiliser ces locaux.
+
+Ils avaient accepté.
+
+Ils avaient ainsi quitté l'appartement de Dante pour un endroit où ils disposaient enfin de suffisamment de place.
+
+Le déménagement avait pris deux jours. Karim et quelques habitants les avaient aidés à transporter une partie des cartons, en échange d'une participation aux réserves communes de l'immeuble. Dante avait accepté de payer ce service. Il n'avait pas cédé sur la quantité, mais il avait payé ce qu'il avait promis.
+
+Depuis, lorsqu'il entrait dans son nouveau local, il n'avait plus besoin d'enjamber ses propres marchandises.
+
+Il pouvait encore en accueillir beaucoup.
+
+***
+
+Cet après-midi-là, Claire les attendait devant le dépôt.
+
+Elle regarda le fourgon avec un sourire.
+
+— Eh bien. Vous avez changé de voiture.
+
+— On a surtout changé de capacité, répondit Dante.
+
+Étienne les rejoignit. Il avait préparé la commande qui devait permettre de régler plusieurs transactions conclues au cours des derniers jours.
+
+Jacques avait remis en état du matériel dont les occupants du dépôt avaient besoin. Deux autres personnes avaient fourni des équipements et accepté d'être réglées en marchandises. Dante avait coordonné l'ensemble.
+
+À l'intérieur, Étienne lui montra les lots réservés à ces échanges.
+
+— Ceux-là, ce sont les produits convenus. Le reste, c'est votre part.
+
+Dante s'arrêta devant les cartons.
+
+Il y avait de quoi remplir le véhicule bien au-delà de ce qu'il avait prévu de conserver pour lui-même. Une fois les autres fournisseurs payés, il lui resterait des sacs de riz, des conserves, du savon, des boissons et plusieurs cartons d'aliments qu'il n'avait pas réussi à trouver depuis le début de la crise.
+
+Il vérifia le bordereau avec Étienne.
+
+Il ne voulait plus jamais découvrir une erreur après avoir traversé une partie de la ville.
+
+Claire observa les deux hommes.
+
+— On pourrait organiser ça régulièrement, dit-elle. À condition que les gens continuent à nous fournir ce dont on a besoin.
+
+Dante releva la tête.
+
+— Combien de fois par mois ?
+
+— On verra. On ne va pas promettre ce qu'on ne peut pas tenir.
+
+— D'accord.
+
+Il regarda de nouveau les lots.
+
+Ce n'était plus une sortie exceptionnelle.
+
+C'était le début d'une activité.
+
+Adam, lui, s'était rendu auprès des familles. Lorsqu'il revint, une femme l'accompagnait. Elle lui donna un paquet qu'il essaya de refuser avant de finir par l'accepter.
+
+— Qu'est-ce que c'est ? demanda Dante.
+
+— Des biscuits. Sa fille voulait nous remercier.
+
+Dante regarda le paquet.
+
+— On va finir par vivre de ton immense talent commercial.
+
+Adam lui donna un coup de coude.
+
+Ils chargèrent les marchandises avec Étienne.
+
+Dante s'attarda un instant devant les portes du fourgon. Il n'avait encore jamais quitté cet endroit avec une telle quantité de biens.
+
+Il éprouva le même plaisir qu'à l'époque où il avait rempli son premier chariot de courses.
+
+En beaucoup plus fort.
+
+***
+
+Le soir, un petit carré de lumière brillait à travers la fenêtre de leur logement.
+
+Depuis quelques jours, un ancien électricien du voisinage avait remis en service une partie de l'installation d'appoint du bâtiment. Jacques lui avait fourni de quoi travailler. Dante avait réglé une partie de sa prestation avec des conserves.
+
+Ils ne disposaient pas d'une alimentation suffisante pour retrouver toutes leurs anciennes habitudes. Mais ils pouvaient s'éclairer, recharger leurs téléphones lorsque le matériel le permettait et écouter une radio sans épuiser constamment leurs piles.
+
+Le bâtiment était aussi desservi par une distribution d'eau organisée avec plusieurs ateliers voisins. Il fallait encore respecter des limites et les approvisionnements restaient incertains. Mais les frères ne passaient plus chaque matin à se demander où ils trouveraient de quoi boire.
+
+Adam rentra avec une mauvaise nouvelle.
+
+Une partie des services de l'hôpital avait fermé. Une équipe de soignants s'était regroupée dans une ancienne structure de consultation plus proche de l'atelier. On lui avait proposé de les rejoindre.
+
+— Je vais accepter, dit-il.
+
+— Tu seras payé ?
+
+— Ils nous fournissent les repas quand ils peuvent.
+
+— C'est tout ?
+
+— C'est déjà mieux que de laisser les gens sans soins.
+
+Dante soupira.
+
+Adam posa ses affaires.
+
+— Tu sais, il y a aussi des gens qui viennent nous apporter de la nourriture sans qu'on leur demande rien.
+
+Dante le regarda.
+
+— Ils savent qu'ils auront besoin de vous un jour.
+
+— Peut-être. Mais certains n'ont même pas les moyens de nous apporter grand-chose.
+
+Dante ne répondit pas.
+
+Il sortit deux assiettes.
+
+Ce soir-là, ils mangèrent un plat chaud, assis à une véritable table, sous une lampe allumée. Le repas avait du goût. Adam se servit une deuxième fois.
+
+Il y a quelques mois, personne n'aurait trouvé cela remarquable.
+
+Dante ne pouvait plus s'empêcher de sourire.
+
+Un véhicule à lui. Un local presque aussi grand que l'ensemble de son ancien appartement. Des réserves qu'il n'avait pas encore fini de compter. Des relations commerciales qui lui permettraient, si la situation restait favorable, de les renouveler.
+
+Ils étaient en train de s'en sortir.
+
+Mieux que cela.
+
+Ils commençaient à s'enrichir.
+
+***
+
+Le lendemain, une femme et son fils vinrent à l'atelier.
+
+Ils habitaient autrefois dans la même rue que Karim. La femme expliqua qu'ils avaient quitté leur logement après plusieurs intrusions dans leur immeuble. Ils cherchaient un endroit où rester quelques jours.
+
+Adam n'était pas là.
+
+Dante écouta leur récit. Le garçon portait un petit sac à dos. Il avait à peine une quinzaine d'années et ne disait rien.
+
+— On pourrait dormir dans votre local, proposa la femme. On ne vous dérangera pas. Je peux travailler si vous avez besoin de quelqu'un.
+
+Dante regarda vers les réserves.
+
+Il venait tout juste de trouver un endroit où il pouvait conserver ses biens sans vivre au milieu de ses cartons. Il ne connaissait pas ces deux personnes. Il ignorait si d'autres les rejoindraient. Jacques utilisait toujours son propre atelier et n'avait pas accepté de transformer le bâtiment en refuge.
+
+— Je ne peux pas vous héberger.
+
+— Même pour une nuit ?
+
+Dante secoua la tête.
+
+Il leur indiqua l'adresse d'un lieu d'accueil dont Adam lui avait parlé, en précisant qu'il ne savait pas s'il y restait de la place.
+
+La femme regarda son fils.
+
+— D'accord.
+
+Elle le remercia malgré tout.
+
+Lorsqu'ils furent partis, Dante reprit son carnet.
+
+Il avait encore plusieurs transactions à organiser.
+
+Il se félicita de ne pas s'être engagé dans une situation qu'il n'aurait pas su maîtriser.
+
+***
+
+Ce soir-là, le téléphone de Dante sonna alors qu'il terminait de ranger les derniers cartons de la livraison.
+
+C'était Claire.
+
+— Tu comptais revenir la semaine prochaine ?
+
+— Oui. J'ai peut-être trouvé ce que vous cherchiez.
+
+Un long silence suivit.
+
+— Attends avant de te déplacer. On a encore reçu une visite.
+
+— Les mêmes personnes ?
+
+— Oui.
+
+Dante s'assit.
+
+— Ils veulent quoi, cette fois ?
+
+— Ils ne veulent plus seulement une part des marchandises.
+
+Claire s'interrompit. Il entendit quelqu'un lui parler à proximité.
+
+— Ils veulent décider de ce qui entre et de ce qui sort d'ici.
+
+Dante regarda son local, les étagères neuves, les marchandises, puis les clés du fourgon posées devant lui.
+
+Il avait cru avoir trouvé un moyen de ne plus dépendre des magasins.
+
+Il découvrait qu'il dépendait encore d'un entrepôt.
+
+Et que quelqu'un d'autre venait de s'en apercevoir.
