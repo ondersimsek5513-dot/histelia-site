@@ -729,3 +729,253 @@ Mais il commençait à apprécier la manière dont elle changeait le ton des con
 Il regarda la porte par laquelle l'homme venait de sortir.
 
 — J'aimerais que ça change.
+
+## Tome 1 — Chapitre 4 : Tout ce qu'il fallait laisser
+
+Le douzième jour, une odeur de nourriture avariée flottait dans le hall de l'immeuble.
+
+Quelqu'un avait déposé deux sacs-poubelle devant la porte de l'ascenseur. Celui-ci ne fonctionnait plus depuis la veille. Les habitants des étages supérieurs descendaient désormais leurs déchets lorsqu'ils avaient suffisamment de courage pour remonter les marches.
+
+Dante trouva une voisine devant les boîtes aux lettres.
+
+— Vous savez si le courant va revenir ?
+
+— Non.
+
+— On devait recevoir une information du syndic.
+
+Elle désigna son téléphone.
+
+— J'ai presque plus de batterie.
+
+Dante lui souhaita bon courage et sortit.
+
+Depuis sa dernière acquisition, il avait consacré une bonne partie de son temps au problème de l'eau. Le robinet fonctionnait encore par intermittence, mais le dernier avis municipal déconseillait de consommer l'eau du réseau dans leur secteur jusqu'à nouvel ordre. Les distributions permettaient aux habitants de patienter. Rien ne garantissait leur régularité.
+
+Il avait obtenu plusieurs bouteilles lors de la dernière distribution. Une fois rangées à côté des réserves alimentaires, elles lui avaient paru dérisoires.
+
+Il commençait à détester les choses qui prenaient beaucoup de place et s'épuisaient rapidement.
+
+Son téléphone vibra.
+
+Adam lui annonçait qu'il resterait probablement à l'hôpital jusqu'au lendemain. Il avait pu dormir quelques heures dans une salle réservée au personnel, entre deux périodes de travail.
+
+*Je vais bien. Ne viens pas me chercher.*
+
+Dante relut le message.
+
+Il répondit :
+
+*Préviens-moi quand tu rentres.*
+
+La réponse ne partit pas immédiatement.
+
+***
+
+Un bruit de verre brisé retentit de l'autre côté de l'avenue.
+
+Dante s'arrêta.
+
+Devant une petite supérette, une dizaine de personnes se pressaient autour de l'entrée. Une femme sortit avec un panier chargé. Un homme traversa la chaussée en tenant contre lui plusieurs paquets.
+
+Il y eut des cris. Une personne tomba, puis deux passants l'aidèrent à se relever. Au milieu de la confusion, le gérant du commerce tentait de faire entendre sa voix.
+
+Dante ne s'approcha pas.
+
+Il avait vu des images semblables sur son téléphone la veille. Des magasins forcés, des rayons vidés, des affrontements. Jusque-là, il s'agissait de rues qu'il ne reconnaissait pas, de quartiers dont il ne connaissait pas les habitants.
+
+Cette fois, c'était à quelques minutes de chez lui.
+
+Un véhicule de police apparut au bout de l'avenue. Plusieurs personnes se dispersèrent. D'autres continuèrent à crier.
+
+Dante reprit sa marche.
+
+Il avait encore suffisamment de réserves pour ne pas avoir à se mêler à cette foule.
+
+Cette constatation lui procura un plaisir inattendu.
+
+Quelques jours auparavant, il avait été obligé de patienter devant un distributeur avec des dizaines d'inconnus. À présent, il pouvait regarder un groupe de personnes se battre pour de la nourriture et rentrer chez lui sans rien leur demander.
+
+Il aurait aimé que cette sensation dure.
+
+***
+
+Dans l'après-midi, Dante prit sa voiture pour aller chercher de l'eau chez un commerçant dont il avait appris qu'il vendait encore quelques bouteilles.
+
+Le commerce était fermé lorsqu'il arriva.
+
+Il resta un moment devant le rideau métallique. Sur la vitrine voisine, les traces d'une tentative de réparation disparaissaient sous des morceaux de carton.
+
+Il envisageait de rentrer lorsqu'il entendit des cris provenant d'un grand magasin situé plus loin.
+
+Il reconnut l'enseigne. Son entreprise avait autrefois travaillé avec certains de ses fournisseurs.
+
+Le magasin vendait de l'alimentation, mais aussi du matériel ménager et des articles de bricolage. Dante y avait acheté sa lampe de camping deux étés auparavant.
+
+Les portes étaient endommagées. Plusieurs personnes sortaient avec des marchandises. Des emballages abandonnés jonchaient le parking.
+
+Il chercha du regard les employés.
+
+Il n'en vit aucun.
+
+Une partie du magasin avait déjà été saccagée.
+
+Il aurait pu reprendre sa voiture et partir. Il connaissait la différence entre acheter des marchandises et s'emparer de ce qui ne lui appartenait pas.
+
+Mais il voyait des gens emporter ce dont ils avaient besoin sans passer devant une caisse. Il voyait aussi des biens détruits sans raison, des bouteilles écrasées, des produits répandus sur le sol.
+
+Il pensa à son appartement, à Adam, aux jours qui viendraient.
+
+Puis il entra.
+
+L'air était lourd. Les installations frigorifiques ne fonctionnaient plus. Une odeur désagréable venait du fond du magasin.
+
+Dante passa devant les vitrines réfrigérées sans s'arrêter.
+
+Dans une autre partie du commerce, il découvrit des cartons entiers de marchandises encore utilisables. Il y avait des conserves, des produits secs, du matériel d'éclairage et des articles ménagers.
+
+Il s'attendait à trouver quelques restes.
+
+Il découvrait une quantité de biens qu'il n'aurait jamais pu s'offrir au cours d'une journée de courses ordinaire.
+
+Quelques mètres plus loin, un homme tenait un appareil électroménager neuf dans son emballage.
+
+— Ça vaut au moins quatre cents, celui-là ! lança-t-il à son compagnon.
+
+Dante observa l'appareil.
+
+Sans courant, il ne valait pratiquement rien pour lui.
+
+Il détourna les yeux et se concentra sur ce qui lui serait réellement utile.
+
+Des bouteilles d'eau. Des aliments qui n'avaient pas besoin d'être conservés au froid. Des produits d'hygiène. Des objets qui permettraient de retrouver un peu de confort lorsque tout le reste cesserait de fonctionner.
+
+Il avait rarement vu autant de possibilités réunies au même endroit.
+
+Dans son métier, la moindre décision importante était accompagnée d'un devis, d'une négociation, d'une facture. Il avait passé des années à apprendre la valeur des marchandises.
+
+Aujourd'hui, il avait devant lui de quoi bouleverser ses conditions de vie.
+
+Et il n'avait rien à négocier avec personne.
+
+***
+
+Dante contempla sa voiture.
+
+Il n'y avait presque plus de place.
+
+Il regarda les biens qui restaient à sa disposition, puis son coffre. La masse des bouteilles d'eau l'obligeait déjà à renoncer à une partie de ce qu'il avait choisi.
+
+Il laissa de côté plusieurs cartons qu'il aurait voulu emporter.
+
+Derrière lui, un homme venait de récupérer un objet qu'il avait abandonné. Dante le regarda s'éloigner avec une pointe d'agacement.
+
+Ce n'était pourtant pas à lui.
+
+Il s'en rendit compte avec un certain malaise.
+
+Il avait réussi à obtenir davantage de ressources que lors de n'importe laquelle de ses sorties précédentes. Malgré cela, il ne parvenait pas à se réjouir pleinement.
+
+Il pensait à tout ce qu'il devait laisser.
+
+À l'intérieur du magasin, il restait des choses dont il aurait peut-être besoin pendant des mois. Certaines ne lui paraissaient même pas particulièrement utiles dans l'immédiat, mais il savait qu'il risquait de regretter leur absence un jour.
+
+Il ne pouvait pas prévoir tous ses besoins.
+
+Il ne pouvait pas tout transporter.
+
+Et il ne disposait pas d'un endroit assez grand pour tout conserver.
+
+Un nouveau groupe arriva sur le parking. Dante entendit les voix monter à proximité du magasin. Il regarda l'heure, puis la jauge de carburant.
+
+Il avait obtenu suffisamment de choses pour que cette journée constitue déjà une réussite. Il se força à accepter ce fait.
+
+Il rentra.
+
+***
+
+Adam arriva chez lui le lendemain matin.
+
+Il avait l'air épuisé. Il posa ses affaires dans l'entrée avant de s'apercevoir que le salon avait encore changé.
+
+— Tu as trouvé de l'eau ?
+
+Dante lui montra ses nouvelles réserves.
+
+Adam prit une bouteille et but plusieurs gorgées.
+
+— Ça fait du bien.
+
+Il regarda le reste.
+
+— C'est Nora qui t'a vendu tout ça ?
+
+— Non.
+
+Dante lui raconta ce qu'il avait vu au magasin.
+
+Adam reposa lentement sa bouteille.
+
+— T'as pris des choses là-bas ?
+
+— Oui.
+
+Son frère ne répondit pas.
+
+— Quoi ? demanda Dante.
+
+— Je ne pensais pas qu'on en était déjà là.
+
+Dante s'attendait à un reproche. Il avait préparé plusieurs réponses pendant la nuit. Mais Adam ne semblait pas avoir envie de se disputer.
+
+Il s'assit et regarda longuement la bouteille qu'il tenait.
+
+— Hier, une collègue m'a dit qu'elle n'avait pratiquement rien chez elle. Elle s'occupe de patients toute la journée et elle ne sait même pas ce qu'elle va manger en rentrant.
+
+Dante s'adossa au mur.
+
+— Toi, tu sais ce que tu vas manger.
+
+Adam acquiesça.
+
+— Oui.
+
+Il avait encore soif. Il termina sa bouteille.
+
+Dante alla chercher de quoi lui préparer un repas. Il savait qu'Adam avait des scrupules. Il savait aussi qu'il ne refuserait pas de manger.
+
+Pour le moment, cela lui suffisait.
+
+***
+
+Un peu plus tard, Dante apprit qu'un incendie avait endommagé plusieurs locaux de la zone commerciale durant la nuit.
+
+Il ne savait pas ce qui l'avait déclenché. Un ancien collègue lui envoya une photographie prise de loin. Une épaisse fumée s'élevait derrière les bâtiments.
+
+Dante reconnut le grand magasin.
+
+Il n'était pas certain que les réserves qu'il avait laissées aient brûlé. Mais l'accès à une partie de la zone était désormais interdit et les secours intervenaient encore.
+
+Il contempla la photographie jusqu'à ce que son téléphone s'éteigne.
+
+La veille, il avait eu sous les yeux des marchandises dont il aurait pu se servir pendant des années.
+
+Aujourd'hui, il n'avait plus aucune certitude de pouvoir les retrouver.
+
+Il se leva et ouvrit la porte du salon.
+
+Les cartons formaient une masse imposante. Adam dormait sur le canapé, une couverture remontée jusqu'aux épaules.
+
+Dante aurait dû être satisfait.
+
+Il avait de la nourriture, de l'eau, de quoi s'éclairer et entretenir leur logement. Son frère était rentré vivant. Pour la première fois depuis plusieurs jours, il pouvait espérer ne pas avoir à sortir le lendemain.
+
+Il s'assit à côté des réserves.
+
+Il pensa à ce que ces marchandises auraient coûté autrefois.
+
+Puis à ce qu'elles valaient maintenant.
+
+Il n'avait jamais possédé autant de choses dont il avait réellement besoin.
+
+Et il venait de comprendre à quel point il était difficile d'en posséder davantage.
