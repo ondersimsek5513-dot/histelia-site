@@ -1625,3 +1625,367 @@ Il pensa au dépôt.
 À tous ceux qui souhaitaient en obtenir.
 
 Il n'avait aucune intention de se contenter d'un carton de conserves.
+
+## Tome 1 — Chapitre 7 : Le poids des décisions
+
+Quatre semaines après l'annulation de sa première livraison, Dante n'avait toujours pas repris le travail.
+
+Il avait reçu deux messages de son responsable depuis la fermeture des bureaux. Le dernier datait de cinq jours.
+
+*Nous n'avons pas de visibilité sur la reprise de l'activité.*
+
+Il avait fini par cesser de consulter sa messagerie professionnelle.
+
+Dans l'appartement, les choses avaient pris une tournure plus organisée. Les vêtements d'Adam occupaient une partie de l'armoire. Les provisions étaient rangées par catégories et les deux frères avaient pris l'habitude de tenir leur carnet à jour.
+
+L'électricité revenait parfois pendant une heure ou deux. La dernière distribution municipale d'eau avait été annulée, mais celle d'un quartier voisin avait eu lieu. Dante s'y était rendu.
+
+Il avait également obtenu une arme à feu au cours de la semaine.
+
+Le premier soir, il l'avait montrée à Adam.
+
+Son frère l'avait regardée sans rien dire.
+
+— Tu es rassuré, maintenant ? avait-il fini par demander.
+
+— Un peu.
+
+— Moi, pas vraiment.
+
+Ils n'en avaient plus parlé depuis. Dante avait conscience de son inexpérience. Il avait surtout voulu ne plus éprouver cette sensation d'impuissance qui l'avait saisi devant les hommes du dépôt.
+
+Pourtant, les premières nuits après son acquisition, il n'avait pas mieux dormi.
+
+***
+
+Dans la résidence où Victor assurait désormais la sécurité, les habitants avaient cessé de se plaindre de l'absence de policiers.
+
+Des personnes qui ne vivaient pas là venaient régulièrement demander de l'aide. Certaines proposaient des objets en échange de nourriture ou d'un endroit où dormir. Victor avait accepté plusieurs d'entre elles.
+
+Ses hommes recevaient des provisions. Leurs familles aussi.
+
+Un employé, Samuel, se présenta ce matin-là dans le bureau de Victor.
+
+— Il faut que je m'absente cet après-midi. Ma sœur n'a plus rien chez elle.
+
+— Elle habite où ?
+
+Samuel lui expliqua qu'elle vivait à quelques rues de la résidence, avec sa fille.
+
+— Pourquoi elle n'est pas venue ici ?
+
+— Elle n'a pas envie de quitter son appartement.
+
+— Alors, c'est son choix.
+
+Samuel fronça les sourcils.
+
+— Je ne te demande rien. Je vais simplement lui apporter une partie de mes provisions.
+
+Victor releva la tête.
+
+— Tes provisions ?
+
+— Ma part. Celle que j'ai gagnée en travaillant.
+
+Victor posa son stylo.
+
+— On a tous des proches à l'extérieur. Si chacun commence à emporter ce qu'on distribue ici, on n'aura plus rien.
+
+— Mais c'est ma part.
+
+Samuel s'aperçut que deux autres employés avaient cessé de discuter près de la porte.
+
+— Tu ne peux pas me dire ce que j'ai le droit de faire avec ma nourriture, Victor.
+
+Il y eut un silence.
+
+Victor lui demanda de quitter le bureau.
+
+Samuel refusa.
+
+Les deux hommes présents intervinrent à la demande de leur chef. L'un d'eux hésita lorsqu'il comprit que Victor ne souhaitait pas seulement mettre fin à la discussion.
+
+Quelques instants plus tard, Samuel était à terre, le visage en sang.
+
+Victor attendit qu'il se relève.
+
+— Tu es libre de partir. Mais ne reviens pas me demander de quoi nourrir ta famille.
+
+Samuel essuya sa bouche. Il regarda ses collègues. Aucun d'eux ne lui adressa la parole.
+
+Il quitta la pièce.
+
+Un des hommes suivit son départ du regard.
+
+— Il faisait bien son travail, murmura-t-il.
+
+Victor reprit son stylo.
+
+— Alors il aurait dû le garder.
+
+***
+
+Adam avait obtenu une journée de repos. Les frères comptaient retourner au dépôt de Claire.
+
+Dante avait appris que plusieurs ateliers et commerces du quartier étaient toujours occupés. Certains acceptaient de travailler ou d'échanger leurs services contre des marchandises. Il avait consigné les informations qu'il avait pu confirmer.
+
+Il espérait que ces renseignements intéresseraient Claire et Étienne.
+
+Ils avaient à peine parcouru une partie du trajet lorsqu'ils découvrirent plusieurs véhicules abandonnés sur la chaussée.
+
+Dante ralentit.
+
+Un homme se tenait près de l'un d'eux. Deux autres personnes apparurent un peu plus loin.
+
+— Attendez ! cria le premier.
+
+Dante immobilisa la voiture. L'homme s'approcha et lui demanda s'il avait de la nourriture.
+
+— Non, répondit Dante.
+
+— De l'argent ?
+
+— Non plus.
+
+L'homme regarda Adam.
+
+— Et lui, il peut pas parler ?
+
+Adam essaya de répondre calmement.
+
+— On ne peut pas vous aider. On doit rejoindre quelqu'un.
+
+— Descendez.
+
+Dante sentit son ventre se nouer.
+
+— On veut pas de problème.
+
+L'homme sortit un couteau.
+
+Adam cessa de parler.
+
+Tout se passa très vite ensuite.
+
+Il y eut une bousculade, des cris. Adam essaya de s'écarter de l'homme qui venait de le saisir. Dante vit la lame, puis le visage de son frère.
+
+Une détonation retentit.
+
+Le silence qui suivit ne dura qu'une seconde.
+
+Les deux autres hommes s'enfuirent.
+
+Adam resta debout, les bras écartés, comme s'il ne comprenait pas encore pourquoi personne ne le retenait.
+
+L'homme au couteau était étendu sur le sol.
+
+Dante regarda sa propre main.
+
+Il avait tiré.
+
+— Adam...
+
+Son frère ne lui répondit pas. Il s'était précipité vers le blessé.
+
+Dante entendit des mots qu'il ne comprit pas. Adam tentait de lui parler, de le maintenir conscient. Il demanda à Dante d'appeler les secours.
+
+Le téléphone afficha un appel en cours, puis plus rien.
+
+Dante réessaya.
+
+Aucune réponse utile.
+
+Il aurait voulu faire quelque chose. N'importe quoi.
+
+Il regarda Adam s'acharner auprès de l'homme.
+
+Puis son frère cessa de parler.
+
+Il resta penché sur lui quelques instants, avant de se redresser lentement.
+
+— Adam ?
+
+Celui-ci secoua la tête.
+
+Dante regarda l'homme.
+
+Quelques minutes plus tôt, il s'était tenu devant eux, leur avait posé des questions, avait parlé.
+
+Il ne parlerait plus.
+
+***
+
+Ils ne repartirent pas immédiatement.
+
+Dante resta assis dans la voiture, incapable de décider ce qu'il devait faire de ses mains.
+
+Adam vérifia qu'il n'avait pas été blessé. Puis il examina sa propre manche déchirée. Il avait une éraflure au bras et aucune blessure grave.
+
+— Tu vas bien ? demanda Dante.
+
+— Oui.
+
+— T'es sûr ?
+
+— Oui, Dante.
+
+Il tourna le visage vers la fenêtre.
+
+Dante regarda la route devant lui.
+
+— Il allait te tuer.
+
+Adam ne répondit pas.
+
+— Tu l'as vu, non ?
+
+— Je l'ai vu.
+
+— Alors pourquoi tu dis rien ?
+
+Adam inspira profondément.
+
+— Parce qu'il est mort.
+
+Dante serra les dents.
+
+— Qu'est-ce que tu voulais que je fasse ?
+
+— Je ne sais pas.
+
+— Moi non plus, je savais pas quoi faire ! Tu crois que j'avais prévu ça ?
+
+Adam se retourna.
+
+— Je ne te reproche pas de m'avoir protégé.
+
+Dante sentit la colère retomber aussi vite qu'elle était apparue.
+
+— Je sais.
+
+Il passa ses mains sur son visage.
+
+— Je sais.
+
+Ils réussirent finalement à quitter les lieux. Dante ne pouvait plus regarder dans le rétroviseur sans chercher le corps qu'ils laissaient derrière eux.
+
+Il avait imaginé plusieurs fois ce qu'il ressentirait s'il parvenait à défendre son frère.
+
+Il ne s'était jamais imaginé avoir envie de vomir.
+
+***
+
+Claire s'aperçut immédiatement que quelque chose n'allait pas.
+
+— Vous avez eu un problème sur la route ?
+
+Adam acquiesça.
+
+— On a été agressés.
+
+Elle leur apporta de l'eau et leur proposa de s'asseoir.
+
+Dante but quelques gorgées. Il regarda les employés circuler entre les marchandises.
+
+Il avait passé une bonne partie de la semaine à penser à cette nouvelle visite. Il avait imaginé les quantités qu'il pourrait négocier, les articles qu'il lui faudrait obtenir en priorité, les endroits où il pourrait les ranger.
+
+À présent, les palettes lui semblaient étrangement ordinaires.
+
+Adam demanda à revoir les personnes qu'il avait rencontrées lors de leur première visite. Claire lui indiqua la salle commune.
+
+Dante resta avec Étienne.
+
+Il ouvrit son carnet.
+
+— J'ai quelques informations pour vous.
+
+Il dut recommencer sa première phrase. Sa voix tremblait.
+
+Étienne ne fit aucun commentaire.
+
+Ils parlèrent des commerces encore en activité, des possibilités de réparation, des personnes qui cherchaient à échanger des services et des difficultés de transport.
+
+Dante avait appris qu'un artisan du quartier disposait encore de matériel et acceptait d'examiner certains équipements en échange de vivres. Claire souhaitait le rencontrer. Dante pouvait lui transmettre les coordonnées qu'il avait obtenues avec son accord.
+
+Pour la première fois depuis l'incident, Dante parvint à se concentrer sur autre chose.
+
+Ils conclurent un nouvel échange.
+
+Cette fois, les frères obtinrent notamment des produits d'entretien, des aliments variés et des fournitures qu'ils n'avaient pas encore dans leurs réserves.
+
+Étienne leur proposa également de revenir avec les besoins qu'ils auraient identifiés.
+
+— On ne peut pas tout vous donner, dit-il. Mais on peut continuer à s'arranger.
+
+Dante hocha la tête.
+
+Il aurait voulu que toutes les rencontres ressemblent à celle-ci.
+
+Claire les rejoignit alors.
+
+— Je dois vous demander quelque chose. Vous avez entendu parler d'une entreprise de sécurité qui continue à travailler dans la ville ?
+
+Dante secoua la tête.
+
+— Pourquoi ?
+
+— Des gens sont venus nous proposer leur protection. Ils veulent une part de nos stocks en échange.
+
+— Vous avez accepté ?
+
+— Non.
+
+Claire regarda les marchandises autour d'elle.
+
+— Ils ont dit qu'ils reviendraient. Ils nous ont expliqué qu'on ne pourrait pas protéger cet endroit indéfiniment.
+
+Étienne ne semblait pas apprécier le souvenir de cette visite.
+
+— Ce qui m'inquiète, ajouta-t-il, c'est qu'ils ont l'air de considérer notre refus comme une erreur qu'on finira par corriger.
+
+Adam revint de la salle commune. Claire lui parla des dernières difficultés rencontrées par les occupants.
+
+Dante écouta leurs voix.
+
+Il se souvenait de sa première visite. Il avait envié ces gens parce qu'ils possédaient tout ce qu'il désirait.
+
+Il comprenait mieux maintenant pourquoi ils avaient tant de mal à dormir.
+
+***
+
+Ce soir-là, Adam rangea seul les marchandises qu'ils avaient rapportées.
+
+Dante était assis près de la fenêtre.
+
+— Tu veux manger ? lui demanda son frère.
+
+— Pas maintenant.
+
+Adam prépara tout de même deux assiettes.
+
+Il s'installa à côté de lui.
+
+— Tu sais, dit-il, je suis content d'être rentré.
+
+Dante regarda son frère.
+
+— Moi aussi.
+
+Adam lui tendit une assiette.
+
+Pendant un moment, ils mangèrent sans parler.
+
+Dante observait le visage de son frère. Il essayait d'imaginer ce qu'aurait été cet appartement si Adam n'était pas revenu.
+
+Les cartons seraient toujours là. Les bouteilles aussi. Il aurait pu manger pendant des semaines sans avoir à quitter le logement.
+
+Il aurait eu tout ce qu'il avait cherché à obtenir depuis le début de la crise.
+
+Cette pensée lui fit plus peur que tout le reste.
+
+Il ne regrettait pas d'avoir sauvé Adam.
+
+Il regrettait que, pour y parvenir, il ait fallu qu'un homme meure.
+
+Et il savait qu'il recommencerait si la vie de son frère en dépendait.
