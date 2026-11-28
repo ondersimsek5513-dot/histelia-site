@@ -3237,3 +3237,571 @@ Dante ne répondit pas.
 Trois ans.
 
 Il aurait aimé savoir jusqu'où ils auraient pu aller avec trois années de plus.
+
+## Tome 1 — Chapitre 12 : Le prix de la liberté
+
+Pour la première fois depuis quatre ans, Dante avait acheté quelque chose dont il n'avait absolument pas besoin.
+
+Il déposa le paquet devant Adam.
+
+— Joyeux anniversaire.
+
+Son frère regarda le calendrier accroché au mur de la cuisine.
+
+— Tu es en retard de deux jours.
+
+— Tu n'es pas obligé de l'ouvrir.
+
+Adam s'empressa de défaire l'emballage. Il découvrit une montre mécanique, dont le bracelet avait été remplacé par un artisan de la vallée voisine.
+
+— Elle fonctionne ?
+
+— J'espère. Vu ce que j'ai payé.
+
+Adam l'attacha à son poignet.
+
+— Merci.
+
+Dante lui demanda l'heure.
+
+— Sept heures et demie.
+
+— Parfait. Tu es en retard pour travailler.
+
+Adam éclata de rire.
+
+Dante le regarda quitter la maison. Il entendit ensuite un moteur dans la cour, puis la voix de Claire qui appelait quelqu'un.
+
+Il prit son café debout près de la fenêtre.
+
+Quatre ans auparavant, il avait regardé par une autre fenêtre, en attendant que les lumières de la rue se rallument.
+
+Ce matin, il n'attendait rien de la ville.
+
+***
+
+Claire avait préparé les comptes de la dernière saison.
+
+Vingt-trois exploitations et ateliers avaient effectué au moins une transaction par l'intermédiaire de leur réseau. Toutes n'étaient pas régulières, et certaines avaient accumulé des retards. Mais les marchandises conservées dans les bâtiments représentaient désormais bien plus que les besoins des deux frères.
+
+Dante possédait personnellement deux véhicules en état de circuler, une maison, des réserves et des parts dans plusieurs installations. Il avait également financé l'agrandissement de l'atelier de Jacques et l'achat de matériel de transformation.
+
+Cette dernière opération lui avait permis de négocier une part des bénéfices sur une production qui ne dépendait plus de sa seule capacité à trouver des marchandises.
+
+Il n'avait pas besoin de posséder chaque bâtiment pour gagner quelque chose lorsque l'activité se développait.
+
+— On pourrait aménager le deuxième local de stockage, proposa-t-il.
+
+Claire lui montra une autre page.
+
+— Si tu veux aussi financer le matériel demandé par Mireille, tu devras choisir.
+
+Dante examina les chiffres.
+
+Autrefois, il s'était félicité de posséder de quoi vivre plusieurs semaines. À présent, il pouvait engager plusieurs mois de ses excédents dans un projet qui ne lui rapporterait peut-être rien avant la saison suivante.
+
+Il choisit le matériel de Mireille.
+
+***
+
+Un producteur d'une autre vallée était venu proposer un échange.
+
+Il avait apporté des échantillons de farine et souhaitait obtenir des pièces pour son matériel. À la fin de leur discussion, il demanda à Dante s'il connaissait l'ancien domaine des Granges.
+
+— Non.
+
+— Il y avait une grosse exploitation, là-bas. Et un centre de formation agricole. Ils vendaient le domaine avant que tout s'arrête.
+
+Il expliqua que les bâtiments comprenaient des serres, des logements, des ateliers et des installations de stockage. Le domaine disposait également d'un accès à l'eau qui aurait rendu possible une activité diversifiée.
+
+Dante demanda à le visiter.
+
+Le voyage eut lieu plusieurs semaines plus tard, avec l'accord des personnes qui occupaient encore une petite partie des terres.
+
+Il ne retrouva qu'une fraction de ce qu'on lui avait décrit.
+
+Des toitures s'étaient effondrées. Plusieurs machines avaient été démontées. Le matériel le plus précieux avait été vendu ou dispersé depuis longtemps. Les installations qui subsistaient auraient exigé des travaux bien supérieurs à ce qu'il pouvait financer.
+
+L'ancien responsable du centre, rencontré sur place, lui montra une brochure conservée dans un classeur.
+
+— Ils n'arrivaient pas à trouver d'acheteur. Le propriétaire aurait même accepté de céder certains équipements séparément.
+
+Dante feuilleta le document.
+
+Il demanda le prix auquel les machines avaient été proposées.
+
+Puis il demanda de le répéter.
+
+Il avait autrefois disposé de suffisamment d'économies pour acheter une partie de ce matériel. Une somme qui, après l'effondrement, n'aurait même pas permis de remplir un réservoir.
+
+Il replia la brochure.
+
+— Vous avez connu des gens capables de remettre tout ça en état ?
+
+— Bien sûr. Mais beaucoup sont partis. Certains, je ne les ai jamais revus.
+
+Sur le chemin du retour, Dante pensa à tout ce qu'il aurait pu faire de cet endroit s'il l'avait découvert quelques années plus tôt.
+
+Il aurait aimé ne jamais avoir vu cette brochure.
+
+***
+
+Karim arriva aux Aulnes à la fin de la saison.
+
+Adam fut le premier à le reconnaître.
+
+Dante avait imaginé cette rencontre de nombreuses fois. Il s'attendait à ce que Karim arrive accompagné de plusieurs membres de sa famille, comme il l'avait envisagé en ville.
+
+Le gardien était seul.
+
+Il avait retrouvé sa sœur, mais pas ses deux neveux. Il avait passé de longs mois à chercher leur trace, avant de devoir accepter qu'il ne pouvait plus rester dans les quartiers où ils avaient vécu.
+
+Il ne savait pas s'ils étaient morts.
+
+Il n'avait même pas de tombe devant laquelle se recueillir.
+
+Dante lui proposa un logement et du travail auprès des habitants qui s'occupaient des bâtiments communs.
+
+— Tu n'as pas besoin de décider aujourd'hui, ajouta-t-il.
+
+Karim hocha la tête.
+
+Il avait vieilli bien davantage que les années écoulées ne semblaient le justifier.
+
+Avant de partir, il demanda des nouvelles de Mme Morel.
+
+Dante ne put lui en donner.
+
+***
+
+Quelques jours plus tard, Adam appela son frère à la salle de soins.
+
+Une femme attendait dans le couloir. Elle avait été amenée par des commerçants qui avaient traversé plusieurs localités.
+
+Dante mit un instant à la reconnaître.
+
+— Nora ?
+
+Elle sourit avec difficulté.
+
+— Vous avez toujours vos conserves ?
+
+Dante ne trouva pas immédiatement quoi répondre.
+
+Le restaurant avait fermé définitivement. Elle avait perdu le contact avec une partie de sa famille. Pendant plus d'un an, elle avait travaillé dans un établissement qui lui promettait nourriture et hébergement en échange de journées de travail interminables.
+
+Elle en était partie sans pouvoir récupérer les biens qu'elle avait laissés en garantie.
+
+— Je ne pensais pas finir par demander à quelqu'un si je pouvais manger, dit-elle.
+
+Dante lui demanda ce qu'elle aimerait faire si elle en avait la possibilité.
+
+Elle réfléchit.
+
+— Cuisiner. Comme avant.
+
+Il lui parla de la grande salle commune et des producteurs qui cherchaient de nouveaux débouchés.
+
+Ce soir-là, Nora prépara un repas avec les personnes qui s'occupaient habituellement de la cuisine.
+
+Elle leur expliqua comment organiser le travail et réduire les pertes. Elle n'avait rien oublié de son ancien métier.
+
+Dante pensa au restaurant où il lui avait acheté ses premières grandes réserves.
+
+Il avait passé quatre ans à s'enrichir.
+
+Elle avait passé ces mêmes années à essayer de retrouver le droit de faire ce qu'elle savait déjà faire.
+
+***
+
+La réputation des Aulnes dépassait désormais les communautés avec lesquelles ils commerçaient habituellement.
+
+Certains visiteurs venaient chercher du matériel. D'autres souhaitaient s'installer. Plusieurs personnes étaient venues uniquement parce qu'on leur avait parlé d'un endroit où l'on pouvait encore trouver un médecin et être payé pour son travail.
+
+Les habitants ne pouvaient pas accueillir tout le monde.
+
+Ils avaient néanmoins décidé d'étendre progressivement les activités et de remettre d'autres logements en état.
+
+Dante participait au financement de ces projets. Il avait appris à demander ce qu'un nouveau partenaire pouvait apporter, mais également ce dont il aurait besoin pour réussir.
+
+Bastien, un ancien transporteur installé depuis plus d'un an dans la vallée, lui avait permis de développer plusieurs échanges avec des communautés éloignées. Il connaissait leurs interlocuteurs et s'occupait d'une partie des engagements commerciaux.
+
+Dante lui faisait confiance.
+
+Lorsque Bastien lui demanda davantage de responsabilités, il accepta de lui confier la coordination de plusieurs transactions.
+
+Claire lui conseilla toutefois de ne pas concentrer les décisions entre les mains d'une seule personne.
+
+— Même les miennes, précisa-t-elle.
+
+Dante lui promit d'en tenir compte.
+
+***
+
+Les représentants de Victor arrivèrent un matin.
+
+Dante reconnut immédiatement Renaud Valès parmi eux.
+
+Quatre ans avaient passé. L'homme avait obtenu davantage de responsabilités et semblait avoir très bien vécu pendant tout ce temps.
+
+Il salua Dante comme un ancien partenaire commercial.
+
+— On dirait que vous avez réussi.
+
+Dante regarda sa main tendue.
+
+Il revit Étienne, sa veste abandonnée sur une chaise, Claire qui criait son nom.
+
+Il ne lui serra pas la main.
+
+Victor présenta sa proposition devant plusieurs représentants des foyers de la vallée.
+
+Son organisation garantirait la sécurité des échanges. En contrepartie, les communautés qui travaillaient avec elle devraient lui réserver une partie de leur production et accepter que certains accords passent par ses services.
+
+— Vous aurez moins de risques et davantage de clients, expliqua-t-il.
+
+Hélène lui demanda ce qu'il arriverait si les habitants souhaitaient mettre fin à cet arrangement.
+
+Victor sourit.
+
+— Pourquoi voudriez-vous mettre fin à quelque chose qui vous protège ?
+
+Dante se leva.
+
+— Parce qu'on a le droit de le faire.
+
+La réunion prit fin sans accord.
+
+Victor ne protesta pas. Il proposa aux habitants de réfléchir et leur souhaita une bonne saison.
+
+En quittant le bâtiment, Renaud s'arrêta près de Dante.
+
+— Vous avez beaucoup à perdre, maintenant.
+
+Dante ne répondit pas.
+
+***
+
+Le soir, plusieurs habitants exprimèrent leur inquiétude.
+
+D'autres estimaient qu'un accord avec Victor pourrait ouvrir des débouchés. Bastien fit partie de ceux qui souhaitaient reprendre les discussions.
+
+— On ne peut pas se permettre de perdre tous nos partenaires, expliqua-t-il.
+
+— On ne peut pas non plus leur abandonner le droit de décider avec qui on travaille, répondit Claire.
+
+Le débat dura longtemps.
+
+À la fin, les habitants choisirent de maintenir leur indépendance et de renforcer leur coopération avec les communautés qui partageaient leur décision.
+
+Dante rentra chez lui.
+
+Adam était encore à table. Il avait retiré sa montre pour la nettoyer et la posa devant lui.
+
+— Ça s'est mal passé ?
+
+— On a refusé.
+
+Adam acquiesça.
+
+— Et maintenant ?
+
+Dante regarda par la fenêtre les bâtiments où quelques lumières étaient encore allumées.
+
+Il connaissait les habitants de la plupart de ces maisons. Il connaissait les projets qui devaient commencer au printemps suivant et les familles qui avaient enfin cessé de manquer de nourriture.
+
+Il savait aussi ce qu'était devenu le dépôt de Claire.
+
+— Maintenant, dit-il, il va falloir qu'on puisse continuer à dire non.
+
+## Tome 1 — Chapitre 13 : Tout ce qu'il restait
+
+Deux mois après la visite de Victor, les Aulnes avaient perdu une partie de leurs débouchés commerciaux.
+
+Plusieurs partenaires avaient cessé de répondre aux propositions de Claire. D'autres expliquaient qu'ils avaient conclu des accords qui ne leur permettaient plus de travailler avec les habitants de la vallée.
+
+Dante chercha des solutions.
+
+Il accepta de réduire ses marges sur certaines marchandises, réorienta une partie de la production et renégocia les engagements qui risquaient de mettre les exploitants en difficulté.
+
+Durant quelques semaines, cela fonctionna.
+
+Puis un partenaire avec lequel Bastien avait organisé une transaction leur annonça qu'il avait déjà réglé les marchandises qu'il attendait.
+
+Claire consulta les registres.
+
+Aucun paiement n'avait été enregistré.
+
+Bastien avait disparu.
+
+Il avait emporté des biens qui lui avaient été confiés, laissé plusieurs engagements impossibles à honorer et rejoint l'organisation de Victor.
+
+Un producteur qui l'avait aperçu confirma la nouvelle.
+
+Dante resta un long moment devant la page du registre portant sa signature.
+
+Il se souvenait de la première fois où Bastien lui avait demandé du travail. Il n'avait alors pas de quoi remplacer ses chaussures.
+
+Dante lui en avait procuré une paire.
+
+Il dut annoncer aux exploitants qu'une partie des marchandises qui leur revenaient ne serait pas livrée.
+
+Il assuma sa part des pertes.
+
+Mais il ne pouvait pas remplacer toutes les ressources disparues.
+
+***
+
+Victor revint aux Aulnes.
+
+Cette fois, il ne se présenta pas comme un partenaire éventuel.
+
+Plusieurs habitants avaient quitté la vallée au cours des dernières semaines. D'autres avaient accepté de discuter séparément avec son organisation. Il leur avait promis le rétablissement des échanges et des conditions plus favorables.
+
+Dante découvrit Bastien parmi les personnes qui accompagnaient Victor.
+
+— Tu aurais pu nous dire que tu voulais partir.
+
+Bastien évita son regard.
+
+— Je voulais assurer mon avenir.
+
+— Et les gens que tu as laissés derrière ?
+
+— Vous trouverez bien quelque chose. Vous avez toujours trouvé.
+
+Dante eut envie de le frapper.
+
+Il se contenta de regarder l'homme à qui il avait confié une partie de son activité.
+
+Victor intervint.
+
+— Nous pouvons encore régler tout ça.
+
+Les conditions qu'il proposait étaient bien plus dures que les précédentes.
+
+Les habitants conserveraient une partie de leurs ressources, mais les principales activités économiques seraient placées sous le contrôle de son organisation.
+
+Dante aurait même pu conserver certaines responsabilités.
+
+— Vous êtes quelqu'un d'utile, lui expliqua Victor. Ce serait dommage de perdre tout ce que vous avez construit pour une question d'orgueil.
+
+Dante regarda Claire.
+
+Elle avait connu cette conversation bien avant lui.
+
+— Vous avez déjà obtenu un entrepôt de cette manière, dit-il.
+
+Victor soupira.
+
+— Et vous êtes toujours vivant.
+
+Ce fut la seule réponse qu'il lui donna.
+
+Les habitants ne parvinrent pas à s'accorder ce jour-là. Certains voulaient accepter les conditions. D'autres préféraient abandonner les Aulnes.
+
+Dante comprenait leur peur.
+
+Il avait lui-même passé une grande partie de sa première année à essayer d'y échapper.
+
+***
+
+Quelques jours plus tard, les bruits de violence se rapprochèrent de la vallée.
+
+Des familles arrivèrent de communautés voisines, avec très peu de biens. Leurs récits décrivaient des affrontements, des confiscations et des menaces.
+
+Le centre de soins reçut davantage de blessés.
+
+Adam et Leïla réorganisèrent leur activité pour accueillir les cas les plus graves. Les autres soignants sollicitèrent des habitants capables de les aider dans les tâches ordinaires.
+
+Dante ouvrit ses réserves.
+
+Il n'avait pas les fournitures médicales que son frère réclamait. Il chercha auprès de ses derniers partenaires, mais plusieurs ne pouvaient plus assurer les échanges.
+
+Une nuit, Leïla lui annonça qu'un jeune patient était mort.
+
+Elle lui expliqua qu'avec les moyens dont elle disposait avant l'effondrement, elle aurait probablement pu lui offrir une chance de survivre.
+
+Dante ne connaissait pas l'enfant.
+
+Il connaissait en revanche parfaitement le visage qu'Adam avait fait en sortant de la salle.
+
+Il ne demanda pas à son frère combien de matériel ils avaient encore.
+
+***
+
+Lorsque les violences atteignirent les Aulnes, Dante crut d'abord qu'ils pourraient préserver l'essentiel de leur communauté.
+
+Les habitants s'étaient organisés depuis longtemps. Ils disposaient de personnes expérimentées, de moyens de défense et de ressources qui auraient autrefois semblé considérables.
+
+Mais aucun d'eux n'avait construit les Aulnes dans le but de mener une guerre.
+
+Les affrontements se prolongèrent. Des habitants quittèrent leurs maisons. Plusieurs partenaires refusèrent de prendre de nouveaux risques pour leur venir en aide.
+
+Au bout de quelques jours, le bâtiment où Mireille avait remis en service les équipements de transformation fut gravement endommagé.
+
+Jacques était devant son atelier lorsqu'il apprit que plusieurs installations étaient devenues inutilisables.
+
+Il ne dit rien.
+
+Il se contenta d'aller chercher les personnes dont il avait besoin pour évaluer ce qu'ils pourraient encore sauver.
+
+Plus tard, Dante apprit qu'il avait été blessé et transporté vers le centre de soins.
+
+L'atelier était désormais vide.
+
+Dante passa devant les bâtiments de stockage. Une partie des marchandises avait disparu. D'autres étaient encore là, sans qu'il sache s'il pourrait les déplacer ou les conserver.
+
+Il revit Claire lui montrer les comptes de la dernière saison.
+
+Il avait fallu presque un an pour remettre en marche les premières machines.
+
+Il avait fallu quatre ans pour obtenir ce qu'il voyait disparaître.
+
+***
+
+Hélène décida de rester auprès des habitants qui ne pouvaient pas partir immédiatement.
+
+Claire, elle, cherchait à retrouver les familles évacuées et à préserver les accords encore possibles avec les communautés voisines.
+
+Dante voulait qu'Adam quitte les Aulnes.
+
+Son frère refusa de partir tant que le centre de soins accueillait des patients qui ne pouvaient pas être déplacés.
+
+— Tu vas finir par te faire tuer pour quelqu'un que tu ne connais même pas, lui dit Dante.
+
+— Je ne vais pas les laisser ici.
+
+— Et moi, tu crois que je vais te laisser ici ?
+
+Adam ne répondit pas.
+
+Dante aurait voulu lui reprocher toutes les décisions qu'il avait prises depuis le début de la crise, toutes les fois où il avait risqué quelque chose pour des inconnus.
+
+Mais il pensa à Sonia et à Mathis.
+
+Il pensa aux personnes qui étaient arrivées aux Aulnes parce qu'elles savaient qu'elles pourraient trouver Adam.
+
+Il se tut.
+
+— Alors on partira ensemble, finit-il par dire.
+
+***
+
+Le jour où les hommes de Victor arrivèrent au centre de soins, plusieurs patients avaient déjà pu être transférés ailleurs.
+
+Leïla se trouvait encore à l'intérieur. Adam aidait une personne âgée à quitter le bâtiment.
+
+Dante reconnut Renaud.
+
+L'homme discutait avec des habitants et exigeait que le matériel médical soit recensé. Il affirmait qu'à partir de maintenant, les fournitures seraient distribuées selon les décisions de leur organisation.
+
+Leïla protesta.
+
+— Nous avons besoin de ce matériel pour les patients.
+
+Renaud lui répondit que les patients n'avaient rien à craindre, à condition que chacun coopère.
+
+Adam s'approcha.
+
+— Ces personnes ne peuvent pas attendre vos décisions.
+
+Dante sentit la peur revenir.
+
+La même peur qu'il avait éprouvée sur une route encombrée, alors qu'il venait tout juste d'acquérir sa première arme.
+
+Il demanda à Adam de reculer.
+
+Renaud reconnut les deux frères.
+
+— Encore vous.
+
+Dante se souvint de la facilité avec laquelle cet homme avait mis fin à la vie d'Étienne.
+
+Il ne pouvait plus supporter l'idée de le voir repartir une nouvelle fois comme si de rien n'était.
+
+Il ne se souvenait pas, plus tard, d'avoir entendu toutes les paroles qui furent échangées.
+
+Il se souvint d'un cri, d'une détonation et d'Adam qui perdait l'équilibre.
+
+Il se précipita vers son frère.
+
+Il y eut un autre bruit.
+
+Puis Dante sentit ses jambes céder.
+
+***
+
+Il était allongé dans la salle de soins.
+
+Adam était au-dessus de lui.
+
+— Reste avec moi.
+
+Dante essaya de lui demander s'il était blessé. Les mots ne sortirent pas correctement.
+
+— Je vais bien, répéta Adam. Reste avec moi.
+
+Leïla était à ses côtés. Elle parla à Adam, puis demanda quelque chose à une autre personne. Dante n'arrivait plus à distinguer leurs phrases.
+
+Il entendit son frère répondre qu'ils n'avaient pas ce qu'il fallait.
+
+Dante eut envie de rire.
+
+Pendant quatre ans, il avait cherché des marchandises que les autres ne parvenaient pas à trouver.
+
+Il avait rempli des locaux, acheté des véhicules, financé des ateliers et fait travailler des personnes qu'il n'aurait jamais connues dans son ancienne vie.
+
+Il avait même réussi à rendre une partie de son confort à Adam.
+
+Et maintenant, son frère demandait quelque chose que personne ne pouvait lui apporter.
+
+— Dante.
+
+Il tourna légèrement la tête.
+
+Adam le regardait.
+
+Il n'avait jamais vu son frère aussi effrayé.
+
+— Je suis là.
+
+Dante voulut lui dire de partir, de retrouver Claire, de ne pas essayer de sauver tout le monde.
+
+Il voulut lui dire qu'il avait eu raison, parfois.
+
+Il ne réussit qu'à prononcer son prénom.
+
+Adam lui prit la main.
+
+La montre qu'il lui avait offerte dépassait de sa manche.
+
+Dante fixa le bracelet.
+
+Il aurait aimé pouvoir revenir à ce matin-là. À la cuisine, au paquet posé sur la table, au rire d'Adam.
+
+Il aurait aimé revenir plus loin encore.
+
+Au restaurant de Nora. À la première fois où il avait parlé à Étienne. À la femme et au garçon qui lui avaient demandé un endroit où dormir.
+
+À ce premier jour, lorsque tout était encore possible et qu'il n'en savait rien.
+
+Il pensa à Renaud.
+
+Il pensa à Victor, à Bastien, aux personnes qui avaient travaillé pendant des années pour obtenir ce que d'autres venaient de leur prendre.
+
+Il ne voulait pas mourir.
+
+Pas ainsi.
+
+Pas après tout ce temps.
+
+Adam lui parlait encore.
+
+Dante essaya de serrer sa main.
+
+Il n'y parvint pas.
+
+Le dernier visage qu'il vit fut celui de son frère.
+
+Puis il n'y eut plus rien.
