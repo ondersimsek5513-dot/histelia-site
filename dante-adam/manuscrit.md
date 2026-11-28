@@ -2643,3 +2643,287 @@ Il aurait donné une grande partie de ce qu'il possédait pour que certaines cho
 Il avait enfin les moyens de payer beaucoup de choses.
 
 Mais il ne pouvait pas acheter une seule minute du passé.
+
+## Tome 1 — Chapitre 10 : Une terre à nous
+
+Dante venait de refuser une transaction qui, un mois auparavant, lui aurait paru excellente.
+
+Un homme lui proposait plusieurs meubles et un téléviseur en échange de nourriture. Il n'avait trouvé personne pour les lui acheter.
+
+— Vous avez autre chose ? demanda Dante.
+
+— Qu'est-ce que vous voulez ?
+
+— Du carburant. Du matériel agricole. Des outils.
+
+L'homme regarda autour de lui, comme s'il espérait découvrir la réponse parmi les affaires qu'il avait apportées.
+
+— Non.
+
+Dante lui donna une boîte de conserve avant de le laisser repartir.
+
+Il avait passé les trois semaines qui avaient suivi la mort d'Étienne à chercher de nouveaux partenaires. Il en avait trouvé quelques-uns, mais les échanges devenaient difficiles. Certains de ses anciens interlocuteurs avaient quitté la ville. D'autres ne possédaient plus rien dont ils pouvaient se séparer.
+
+Le problème n'était plus de trouver des clients. Il y en avait partout.
+
+C'était de trouver quelque chose à leur vendre, puis de trouver une raison d'accepter ce qu'ils offraient en retour.
+
+Adam arriva peu avant midi.
+
+— On a perdu deux patients cette semaine, dit-il.
+
+Il posa ses affaires.
+
+— On aurait probablement pu les soigner il y a six mois.
+
+Dante releva les yeux.
+
+— Vous avez encore du matériel ?
+
+— Pas assez. Et on reçoit de plus en plus de gens malades. Les problèmes d'eau, les infections...
+
+Adam s'interrompit pour boire.
+
+Dehors, la distribution collective dont dépendaient les ateliers n'avait pas eu lieu depuis plusieurs jours. Les habitants s'étaient mis à quitter certains bâtiments. D'autres arrivaient, persuadés qu'ils trouveraient ici de meilleures conditions de vie.
+
+Les frères avaient de quoi tenir.
+
+Mais ils vivaient au milieu de gens qui, pour beaucoup, n'avaient plus rien.
+
+— Claire a reçu des nouvelles de deux de ses anciens fournisseurs, annonça Dante.
+
+Adam reposa sa bouteille.
+
+— En dehors de la ville ?
+
+— Oui. L'un d'eux accepte de nous recevoir. L'autre cherche des gens capables de remettre une exploitation en état.
+
+— Et tu veux partir ?
+
+Dante ouvrit son carnet.
+
+Il avait noté tout ce qu'il possédait, tout ce qu'il pouvait encore obtenir et les dépenses que représentait chaque déplacement.
+
+Depuis quelques jours, il avait commencé une nouvelle page.
+
+Ce qu'il lui faudrait pour ne plus revenir.
+
+***
+
+Ils consacrèrent plusieurs jours à organiser leur départ.
+
+Claire souhaitait quitter la ville. Une des familles qu'elle avait accompagnées depuis le dépôt accepta de partir avec elle. L'autre avait retrouvé des proches et préférait rester.
+
+Jacques hésita plus longtemps.
+
+Il avait passé une grande partie de sa vie dans son atelier. Une partie de ses équipements ne pouvait être déplacée sans des moyens dont il ne disposait plus.
+
+— Vous voulez que je laisse tout ça ? demanda-t-il à Dante.
+
+— Non. Je veux savoir ce que tu veux faire.
+
+Jacques regarda les outils, les machines, les véhicules immobilisés.
+
+— Si je pars, je ne pourrai plus faire la moitié de ce que je fais ici.
+
+— Et si tu restes ?
+
+Le mécanicien ne répondit pas.
+
+Il finit par accepter de les accompagner, à condition de conserver la liberté de choisir son lieu d'installation. Il emporterait les équipements transportables auxquels il tenait le plus. Il ne leur promettait pas de pouvoir réparer tout ce qui tomberait en panne.
+
+Adam, de son côté, informa ses collègues de son départ. Deux d'entre eux envisageaient également de quitter la ville, mais aucun ne souhaitait abandonner immédiatement les patients du centre.
+
+Il leur laissa une partie des fournitures qu'il avait réunies et leur promit de reprendre contact s'il trouvait un lieu où ils pourraient exercer.
+
+La veille du départ, les frères retournèrent dans leur ancien immeuble.
+
+Karim était encore là.
+
+Il leur expliqua que Mme Morel avait réussi à rejoindre son fils quelques semaines auparavant. Il ignorait comment ils vivaient désormais.
+
+Adam sourit en apprenant la nouvelle.
+
+Dante éprouva un soulagement qu'il n'aurait pas su expliquer.
+
+Il proposa à Karim de l'accompagner.
+
+Le gardien le remercia, mais plusieurs membres de sa famille vivaient encore dans le quartier. Il préférait tenter de les réunir avant de prendre une décision.
+
+Dante ne chercha pas à le convaincre.
+
+Il lui remit une adresse, celle de leur première destination.
+
+— Si on trouve quelque chose de bien, je te le ferai savoir.
+
+Karim rangea le papier dans sa poche.
+
+— Fais attention à ton frère.
+
+— Comme d'habitude.
+
+— Et à toi aussi.
+
+***
+
+Le matin du départ, Dante resta devant les étagères de son local.
+
+Le fourgon était chargé. Le véhicule de Jacques l'était également.
+
+Pourtant, il restait encore des cartons.
+
+Dante avait passé des heures à choisir ce qu'il emporterait. Il avait dû renoncer à une partie des produits d'entretien, aux équipements les plus encombrants et à plusieurs sacs de nourriture. Il avait conservé ses outils agricoles et les semences, malgré la place qu'ils occupaient.
+
+Il souleva un dernier carton.
+
+— Il ne rentrera pas, dit Adam.
+
+— Je sais.
+
+Il le reposa.
+
+Une partie des biens resterait à la disposition des personnes qui occupaient encore les bâtiments voisins. Jacques avait accepté de laisser son atelier à ceux qui y travaillaient déjà, en espérant pouvoir retrouver un jour une partie de son matériel.
+
+Dante se souvenait de chaque transaction qui lui avait permis de remplir ces étagères.
+
+Il se souvenait surtout du temps qu'il avait fallu.
+
+Il aurait aimé emporter les marchandises, le local, l'atelier et tout ce qui rendait leur vie un peu plus facile.
+
+À la place, il devait se contenter de deux véhicules, dont un seul lui appartenait.
+
+Il referma la porte.
+
+Adam l'attendait dehors.
+
+— Prêt ?
+
+— Non.
+
+Son frère ne répondit rien.
+
+Ils partirent quand même.
+
+***
+
+La première exploitation qu'ils visitèrent appartenait à un fournisseur que Claire connaissait depuis plusieurs années.
+
+Son propriétaire avait accueilli des membres de sa famille et quelques anciens salariés. Il disposait encore de bâtiments, de terres cultivées et de réserves. Il acceptait de commercer, mais il n'avait ni l'espace ni les ressources nécessaires pour recevoir durablement de nouveaux arrivants.
+
+Dante passa deux jours à discuter avec lui.
+
+Il découvrit que les problèmes n'étaient pas les mêmes qu'en ville. Ici, certains produits frais existaient encore, mais les habitants manquaient de pièces, de fournitures et de moyens de transport.
+
+Une partie de la production de légumes risquait même d'être perdue, faute de pouvoir être conservée ou distribuée à temps.
+
+Dante négocia quelques échanges.
+
+Ils mangèrent des légumes frais pour la première fois depuis plusieurs semaines.
+
+Adam lui fit remarquer qu'il avait presque oublié le goût d'une tomate.
+
+Dante en reprit une.
+
+Il pensa à toutes les marchandises qu'il avait vues se détériorer depuis le début de la crise.
+
+Il pensa aussi au prix qu'elles auraient désormais à quelques dizaines de kilomètres de là.
+
+Avant leur départ, le propriétaire les orienta vers un ancien partenaire, dans une vallée située plus loin. Celui-ci disposait de bâtiments qui n'étaient plus entièrement utilisés.
+
+— Je ne sais pas s'il vous acceptera, les prévint-il. Mais il a besoin de monde.
+
+***
+
+Le lieu s'appelait les Aulnes.
+
+Ce n'était ni un village abandonné ni une propriété miraculeusement restée intacte. Une douzaine de foyers y vivaient encore, autour de quelques fermes et d'un ancien site de transformation agricole.
+
+Ils furent reçus par Hélène, une exploitante qui connaissait Claire de réputation.
+
+Elle ne leur proposa pas de terres.
+
+Elle leur montra ce qui ne fonctionnait plus.
+
+Un bâtiment dont la toiture devait être réparée. Des équipements inutilisables. Des logements vides, mais qui nécessitaient des travaux. Des parcelles que leurs propriétaires ne parvenaient plus à exploiter correctement.
+
+— Vous êtes combien ? demanda-t-elle.
+
+Claire lui répondit.
+
+Hélène réfléchit.
+
+— On ne peut pas nourrir des gens qui arrivent les mains vides.
+
+— On n'arrive pas les mains vides, dit Dante.
+
+Il lui présenta ce qu'ils avaient apporté. Des vivres, des outils, des semences, des fournitures et du matériel. Il lui expliqua également ce que Claire et lui savaient faire.
+
+Jacques examina certains équipements avec leurs propriétaires.
+
+Adam passa une partie de l'après-midi auprès d'une famille qui cherchait depuis plusieurs jours quelqu'un capable d'évaluer l'état de santé d'un de ses proches.
+
+Hélène les invita à partager le repas du soir.
+
+La discussion se poursuivit longtemps.
+
+Dante avait envisagé d'acheter un bâtiment. Il comprit vite que l'argent n'intéressait presque personne. Les habitants voulaient savoir ce que les nouveaux venus pourraient apporter au lieu, et surtout s'ils seraient prêts à y rester lorsque les difficultés commenceraient.
+
+Ils finirent par conclure un accord provisoire.
+
+Les frères et leurs compagnons pourraient occuper deux logements inutilisés et un espace de stockage. En contrepartie, ils contribueraient aux travaux et à l'organisation des échanges. L'accès aux parcelles disponibles serait discuté avec leurs propriétaires. Chacun conserverait ses propres biens, et les ressources communes feraient l'objet d'accords distincts.
+
+Hélène posa une question à Dante avant de quitter la table.
+
+— Et vous, vous savez cultiver ?
+
+— Non.
+
+Elle éclata de rire.
+
+— Au moins, vous le savez.
+
+***
+
+Trois semaines plus tard, Dante ouvrit la porte de leur nouveau local.
+
+Les marchandises étaient de nouveau rangées.
+
+Il en avait moins qu'en ville. Une partie de ses réserves avait servi à rémunérer les premiers travaux. Une autre avait été échangée contre des produits qu'il n'avait pas pu obtenir auparavant.
+
+Mais le bâtiment n'était plus le seul endroit qui l'intéressait.
+
+Dehors, Jacques travaillait avec deux habitants sur des équipements qu'ils espéraient remettre en service. Claire avait commencé à recenser les productions et les besoins des exploitations voisines. Adam avait obtenu l'usage d'une pièce dans laquelle il pouvait accueillir les personnes nécessitant des soins.
+
+Dante rejoignit Hélène près d'une parcelle qu'elle avait accepté de leur laisser utiliser en échange de leur participation aux travaux.
+
+Il n'avait encore rien récolté.
+
+Il avait appris qu'il lui faudrait attendre la saison adaptée, accepter les mauvaises surprises et écouter des gens dont il ignorait presque tout du métier.
+
+Hélène lui expliqua ce qu'ils pourraient envisager au cours des prochains mois.
+
+Il écouta attentivement.
+
+Puis il lui demanda combien de personnes supplémentaires il faudrait pour exploiter les autres parcelles disponibles.
+
+— Tu penses déjà aux autres ?
+
+— J'essaie de comprendre ce qu'on pourrait faire.
+
+Elle lui montra les terres qui s'étendaient au-delà des premiers bâtiments.
+
+Certaines étaient encore cultivées. D'autres avaient été délaissées par manque de moyens.
+
+Dante calcula instinctivement.
+
+Pas le nombre de sacs qu'il pourrait rapporter chez lui.
+
+Le nombre de sacs que ces terres pourraient produire.
+
+Il pensa aux réserves de Victor. Aux palettes d'Étienne. Aux étagères qu'il avait remplies et qu'il venait d'être contraint d'abandonner.
+
+Toute cette richesse avait été fabriquée par quelqu'un.
+
+Jusqu'alors, il s'était contenté de la récupérer.
+
+Il voulait maintenant être capable de la créer.
