@@ -443,3 +443,289 @@ Il ouvrit une nouvelle fois son application bancaire. Le solde apparaissait touj
 Il aurait pu acheter des dizaines de chariots comme celui de la veille.
 
 À cet instant précis, il ne pouvait même pas payer une baguette.
+
+## Tome 1 — Chapitre 3 : Ce qui ne s'achète plus
+
+Le huitième jour, Dante ouvrit son robinet et n'obtint qu'un mince filet d'eau.
+
+Il attendit quelques secondes, puis le referma. Il essaya celui de la cuisine. Même résultat.
+
+Il avait déjà passé une partie de la nuit sans électricité. À présent, il ne pouvait même plus prendre une douche normalement.
+
+Dans la rue, les poubelles débordaient. Le camion chargé de les vider n'était pas passé depuis plusieurs jours. Un feu de circulation, éteint depuis la veille, obligeait les automobilistes à négocier leur passage à coups de klaxon.
+
+Dante descendit jusqu'à sa voiture.
+
+Il devait se rendre au bureau. Son responsable lui avait demandé de venir malgré les difficultés de transport : plusieurs magasins menaçaient de fermer et il fallait décider lesquels recevraient les quelques livraisons encore possibles.
+
+À mi-chemin, il passa devant une station-service.
+
+Les pompes étaient à l'arrêt.
+
+Un automobiliste discutait avec le gérant, qui tentait de lui expliquer que le carburant présent dans les cuves ne pouvait pas être distribué dans les conditions actuelles.
+
+Dante jeta un coup d'œil à son tableau de bord. Il lui restait un peu plus de la moitié du réservoir.
+
+Il avait passé des journées à acheter de la nourriture.
+
+Il n'avait presque jamais pensé à ce qui lui permettait d'aller la chercher.
+
+***
+
+Dans les bureaux de son entreprise, une trentaine de salariés avaient réussi à venir. Les autres travaillaient à distance quand ils le pouvaient, ou attendaient simplement de nouvelles instructions.
+
+Une réunion était en cours lorsque l'électricité se coupa.
+
+Les écrans s'éteignirent. Quelqu'un poussa un soupir.
+
+Dante attendit, les mains croisées sur la table.
+
+Le courant ne revint pas.
+
+— On fait quoi ? demanda l'un de ses collègues.
+
+Le responsable se leva et ouvrit les stores.
+
+— On va devoir renvoyer les équipes chez elles. Je vous tiendrai au courant dès qu'on pourra reprendre.
+
+— Et les magasins ?
+
+— Ils feront avec ce qu'ils ont.
+
+Dante regarda les visages autour de lui. Personne n'avait envie d'être le premier à poser la question suivante.
+
+Et quand ils n'auraient plus rien ?
+
+En quittant le bâtiment, il remarqua que plusieurs commerces du quartier avaient baissé leur rideau. Le nouveau restaurant dont ses collègues parlaient encore la semaine précédente avait placardé une feuille sur sa porte.
+
+*Fermeture temporaire.*
+
+Une femme sortit du restaurant avec deux caisses vides. Dante la reconnut. Elle était venue distribuer des prospectus dans les bureaux lors de l'ouverture.
+
+— Vous fermez déjà ?
+
+— On ne peut plus travailler. Pas d'eau cet après-midi, presque pas de courant hier. J'ai dû jeter une partie de mes produits frais.
+
+Elle posa les caisses au sol.
+
+— Je venais à peine de remplir ma réserve.
+
+Dante s'arrêta.
+
+— Il vous reste quoi ?
+
+***
+
+La propriétaire s'appelait Nora.
+
+Elle avait investi une grande partie de ses économies dans ce restaurant. Six jours auparavant, les tables étaient presque toutes occupées à midi. À présent, elle ne savait même pas quand elle pourrait rouvrir.
+
+Elle montra à Dante une partie des marchandises qu'elle envisageait de vendre pour récupérer un peu d'argent avant de suspendre son activité.
+
+Des sacs de produits secs, des cartons de conserves, de l'huile, des condiments. Des quantités qui auraient paru déraisonnables dans une cuisine ordinaire.
+
+Dante estima rapidement la valeur de l'ensemble.
+
+— Je peux vous prendre les produits que vous avez mis de côté.
+
+— Tous ?
+
+— Si on trouve un prix qui nous convient.
+
+Nora hésita. Elle avait conservé une partie des réserves pour elle et sa famille. Ce qu'elle proposait à Dante représentait le reste de sa marchandise à céder, mais aussi une fraction importante de son investissement.
+
+Elle lui annonça un prix.
+
+Il demanda à voir ses factures d'achat.
+
+Pendant quelques minutes, ils discutèrent comme l'auraient fait deux professionnels dans n'importe quelle situation commerciale. Nora défendait sa marge. Dante rappelait qu'il achetait un lot entier, sans aucune certitude sur l'évolution des prix.
+
+Ils finirent par se mettre d'accord.
+
+Restait le paiement.
+
+Dante n'avait toujours pas réussi à retirer suffisamment d'espèces. Son application bancaire fonctionnait de manière intermittente. Il proposa un virement, à condition que Nora puisse en constater la réception avant de lui remettre la marchandise.
+
+Elle accepta d'essayer.
+
+Ils durent attendre plusieurs minutes. La première tentative n'aboutit pas. À la seconde, Nora consulta son téléphone, puis releva la tête.
+
+— C'est bon. Je l'ai reçu.
+
+Elle lui fit un signe vers les cartons.
+
+Dante regarda la marchandise qu'il venait d'acquérir.
+
+Il avait acheté en quelques minutes ce qu'il aurait mis des jours à réunir dans les commerces, à supposer qu'il y trouve encore les produits nécessaires.
+
+Pourtant, il n'y avait là ni nouveauté ni luxe. Seulement de la nourriture.
+
+Et il n'avait jamais été aussi satisfait d'une transaction.
+
+Lorsqu'il eut terminé de charger sa voiture, il remercia Nora et lui demanda si elle avait l'intention de rester dans le quartier.
+
+— Pour l'instant, oui. J'espère encore rouvrir.
+
+Elle regarda la salle vide derrière elle.
+
+— J'ai mis trois ans à préparer ce projet.
+
+Dante ne trouva rien à lui répondre.
+
+***
+
+Adam sortit de l'hôpital après la tombée de la nuit.
+
+Une partie du bâtiment fonctionnait sur une alimentation de secours. Les équipes techniques et soignantes avaient dû adapter leur travail aux interruptions, tandis que des patients arrivaient de structures médicales déjà en difficulté.
+
+Sur le chemin du retour, il vit des habitants rassemblés autour d'un véhicule de la ville. Des agents municipaux et des bénévoles distribuaient de l'eau potable aux personnes du quartier.
+
+La file avançait lentement.
+
+Une femme âgée tenait deux bouteilles contre sa poitrine. À côté d'elle, un jeune homme attendait avec un chariot de courses.
+
+Adam reconnut le gardien de l'immeuble de Mme Morel, qui participait à la distribution.
+
+— Vous avez besoin d'aide ?
+
+— Surtout pour les gens qui ne peuvent pas descendre, répondit le gardien. On essaie de savoir qui est encore chez lui.
+
+Adam resta avec eux jusqu'à la fin de la distribution. Il transporta quelques bouteilles jusqu'aux étages et signala au gardien deux habitants dont la mobilité réduite rendait les déplacements difficiles.
+
+Il frappa aussi chez Mme Morel.
+
+Elle ouvrit presque immédiatement.
+
+— Ah, Adam ! Vous tombez bien. J'essayais d'appeler mon fils.
+
+Il lui remit les bouteilles et quelques provisions qu'il avait prises chez lui.
+
+— Vous avez de quoi tenir pour le moment ?
+
+— Oui, mon garçon. Merci.
+
+Elle voulut lui donner un billet. Il refusa.
+
+Lorsqu'il arriva enfin chez Dante, il avait les épaules douloureuses et n'avait rien mangé depuis le milieu de la journée.
+
+Son frère lui ouvrit.
+
+— Viens voir.
+
+***
+
+Dante avait étalé ses nouvelles acquisitions dans le salon.
+
+Adam contempla les cartons, puis les sacs déjà rangés le long du mur.
+
+— Qu'est-ce que t'as encore fait ?
+
+Dante lui raconta sa rencontre avec la restauratrice.
+
+— Avec tout ça, on devrait pouvoir tenir beaucoup plus longtemps.
+
+Adam se pencha pour regarder les marchandises.
+
+— C'est incroyable.
+
+Dante savourait sa réaction.
+
+— On ne va pas avoir besoin de courir dans les magasins comme tout le monde.
+
+Adam se redressa.
+
+— Et pour l'eau ?
+
+Dante perdit son sourire.
+
+Il lui montra les bouteilles qu'il avait achetées les jours précédents.
+
+Adam les compta du regard.
+
+— Tu penses vraiment qu'on a autant de marge avec ça qu'avec la nourriture ?
+
+Dante savait qu'il avait raison.
+
+Il avait raisonné comme un acheteur : obtenir le plus de marchandises possible avant qu'elles disparaissent. Mais une réserve de nourriture ne faisait pas couler l'eau du robinet et ne permettait pas de faire fonctionner une station-service.
+
+— Demain, je m'occupe de ça, dit-il.
+
+Adam s'assit sur une chaise.
+
+— Je peux manger quelque chose ?
+
+Dante ouvrit un carton et sortit de quoi préparer un repas qui ne dépendrait pas du retour du courant.
+
+Ils mangèrent dans le salon, à la lueur d'une lampe à piles.
+
+Malgré l'obscurité, malgré les nouvelles inquiétudes, Dante éprouvait une forme de bonheur.
+
+Il avait de quoi nourrir son frère. Pour la première fois depuis le début de la crise, il possédait bien davantage que ce dont ils avaient besoin pour les prochains jours.
+
+Il regarda les cartons autour d'eux.
+
+— Tu sais ce que je veux, Adam ?
+
+— Un appartement plus grand ?
+
+Dante sourit.
+
+— Ne plus dépendre de personne.
+
+***
+
+À quelques kilomètres de là, un autre homme venait d'ouvrir la porte de son établissement.
+
+Victor dirigeait une petite entreprise de gardiennage. Depuis le début des perturbations, plusieurs de ses clients avaient suspendu leurs activités et certains de ses employés n'avaient plus réussi à le rejoindre.
+
+Il disposait encore d'un local éclairé par intermittence et de quelques réserves, réunies pour maintenir son équipe au travail.
+
+Ce soir-là, un ancien employé était venu lui demander de l'aide.
+
+— Je sais que je ne suis plus chez toi, dit l'homme. Mais j'ai deux enfants à la maison. Les magasins près de chez moi ont fermé.
+
+Victor l'invita à s'asseoir.
+
+Il lui proposa un café et écouta son récit. L'homme lui expliqua qu'il avait perdu plusieurs journées de salaire et qu'il n'avait pas réussi à contacter son nouvel employeur.
+
+Victor lui remit un sac contenant quelques provisions.
+
+— Combien je te dois ? demanda l'homme.
+
+— Rien.
+
+Il attendit que l'autre relève les yeux.
+
+— Je vais avoir besoin de gens sur qui je peux compter. Si je t'appelle, tu viendras ?
+
+— Bien sûr.
+
+— Même si ton autre patron reprend son activité ?
+
+L'homme hésita, puis regarda le sac.
+
+— Oui.
+
+Victor lui sourit.
+
+Lorsque son visiteur fut parti, un de ses employés, qui avait assisté à la conversation, vint s'asseoir près de lui.
+
+— On a assez de nourriture pour nous, mais pas pour aider tous les gens qui vont venir.
+
+— Je sais.
+
+— Alors pourquoi tu lui as donné ça ?
+
+Victor posa son café.
+
+Il avait passé des années à négocier avec des clients capables de résilier ses contrats d'un simple courrier. À présent, certains de ces mêmes hommes l'appelaient pour lui demander s'il pouvait encore assurer leur sécurité.
+
+Il ne savait pas combien de temps durerait la crise.
+
+Mais il commençait à apprécier la manière dont elle changeait le ton des conversations.
+
+— Jusqu'à présent, dit-il, les gens pouvaient très bien se passer de nous.
+
+Il regarda la porte par laquelle l'homme venait de sortir.
+
+— J'aimerais que ça change.
